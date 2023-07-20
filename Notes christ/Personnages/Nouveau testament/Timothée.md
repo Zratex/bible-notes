@@ -1,0 +1,1 @@
+Considéré comme le fils spirituel de [[Paul]]

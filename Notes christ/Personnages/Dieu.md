@@ -1,0 +1,1 @@
+Il est Dieu tout puissant

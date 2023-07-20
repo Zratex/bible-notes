@@ -1,0 +1,1 @@
+Le commencement de toutes choses.

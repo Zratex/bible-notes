@@ -1,0 +1,44 @@
+Textes bibliques principalement tourné sur l'histoire d'Israël (par extension des juifs) avant la naissance de [[Jésus]]. Donc il précède du [[Nouveau testament]]
+## Composition
+- [[Genèse]]
+- Textes de loi
+	- Exode
+	- Lévitique
+	- Nombres
+	- Deutéronome
+- Premiers livres historiques
+	- Josué
+	- Juges
+	- Ruth
+	- 1 et 2 Samuel
+	- 1 et 2 Rois
+- Seconds livres historiques
+	- 1 et 2 Chroniques
+	- Esdras
+	- Néhémie
+	- Esther
+- Livres dit "poétiques"
+	- Job
+	- Psaumes
+	- Proverbes
+	- Ecclésiaste
+	- Cantique des cantiques
+- Premiers livres prophétiques
+	- [[Esaïe]]
+	- Jérémie
+	- Lamentations
+	- [[Ezéchiel]]
+	- Daniel
+- Seconds livres prophétiques
+	- Osée
+	- Joël
+	- Amos
+	- Abdias
+	- [[Jonas]]
+	- Michée
+	- Nahum
+	- Habakuk
+	- Sophonie
+	- Aggée
+	- Zacharie
+	- Malachie
