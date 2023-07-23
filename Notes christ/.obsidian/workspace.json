@@ -4,55 +4,31 @@
     "type": "split",
     "children": [
       {
-        "id": "b46cd24eeb0f0791",
+        "id": "7ade196ee135f751",
         "type": "tabs",
         "children": [
           {
-            "id": "b61ef09577a8d3bf",
+            "id": "563f334fc907e77d",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.md",
-                "mode": "preview",
-                "source": false
-              }
-            }
-          },
-          {
-            "id": "3281b2a184e09ff6",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Personnages/Nouveau testament/Timothée.md",
+                "file": "Référence Biblique/Nouveau testament/Jacques.md",
                 "mode": "source",
                 "source": false
               }
             }
           },
           {
-            "id": "25be19a6896461a4",
+            "id": "5d10c507bcf9a0ea",
             "type": "leaf",
             "state": {
               "type": "graph",
               "state": {}
             }
-          },
-          {
-            "id": "3da893671180e052",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Personnages/Nouveau testament/Disciples de Jésus/Disciples de Jésus.md",
-                "mode": "source",
-                "source": false
-              }
-            }
           }
         ],
-        "currentTab": 2
+        "currentTab": 1
       }
     ],
     "direction": "vertical"
@@ -118,7 +94,6 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Référence Biblique/Nouveau testament.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -135,7 +110,6 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "Référence Biblique/Nouveau testament.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -157,9 +131,7 @@
             "type": "leaf",
             "state": {
               "type": "outline",
-              "state": {
-                "file": "Référence Biblique/Nouveau testament.md"
-              }
+              "state": {}
             }
           }
         ]
@@ -180,36 +152,24 @@
     }
   },
   "floating": {
-    "id": "2039eac682b2a22e",
+    "id": "c2694349a3b239ae",
     "type": "floating",
     "children": [
       {
-        "id": "54793d93e132eca7",
+        "id": "17c187f0c4fc2011",
         "type": "window",
         "children": [
           {
-            "id": "30cd9a7dc3487388",
+            "id": "d09e4a4536c39845",
             "type": "tabs",
             "children": [
               {
-                "id": "0b57876c6cc4d29e",
+                "id": "982519a31b79aefd",
                 "type": "leaf",
                 "state": {
                   "type": "markdown",
                   "state": {
-                    "file": "Référence Biblique/Nouveau testament.md",
-                    "mode": "preview",
-                    "source": false
-                  }
-                }
-              },
-              {
-                "id": "79857f5675cfc043",
-                "type": "leaf",
-                "state": {
-                  "type": "markdown",
-                  "state": {
-                    "file": "Positionnement du cœur.md",
+                    "file": "Pouvoir de l'évangile.md",
                     "mode": "preview",
                     "source": false
                   }
@@ -219,52 +179,54 @@
           }
         ],
         "direction": "vertical",
-        "x": 2880,
-        "y": 0,
-        "width": 960,
-        "height": 1040,
-        "maximize": false,
+        "x": 468,
+        "y": 20,
+        "width": 1576,
+        "height": 1000,
+        "maximize": true,
         "zoom": 0
       }
     ]
   },
-  "active": "0b57876c6cc4d29e",
+  "active": "5d10c507bcf9a0ea",
   "lastOpenFiles": [
+    "Personnages/Nouveau testament/Timothée.md",
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/15&16 - Timothée.md",
+    "Référence Biblique/Nouveau testament/2 - Actes des apôtres/Actes.md",
+    "Personnages/Nouveau testament/Philippe.md",
+    "Pouvoir de l'évangile.md",
+    "Personnages/Saint-Esprit.md",
+    "Personnages/Nouveau testament/Disciples de Jésus/Apôtres.md",
+    "Lieux historiques/Samarie.md",
+    "Lieux historiques/Judée.md",
+    "Personnages/Nouveau testament/Etienne.md",
+    "Lieux historiques/Jérusalem.md",
+    "Lieux historiques/Carte Judée.png",
+    "Judée.png.md",
+    "Personnages/Nouveau testament/Paul.md",
+    "Lieux historiques/Bithynie.md",
+    "Lieux historiques/Judée.png",
+    "Actes.md",
+    "Référence Biblique/Nouveau testament/Jacques.md",
     "Positionnement du cœur.md",
-    "Personnages/Nouveau testament/Disciples de Jésus/Disciples de Jésus.md",
+    "A quiconque désire suivre Jésus.md",
+    "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.md",
+    "Référence Biblique/Nouveau testament.md",
     "Référence Biblique/Nouveau testament/4 - Lettres générales/18 - Hébreux.md",
     "Référence Biblique/Nouveau testament/1 -Evangiles/2nd Evangile - Marc.md",
     "Personnages/Nouveau testament/Disciples de Jésus",
     "Référence Biblique/Nouveau testament/1 -Evangiles/4eme Evangile - Jean.md",
     "Personnages/Nouveau testament/Disciples de Jésus/Jean.md",
     "Personnages/Nouveau testament/Disciples de Jésus/Marc.md",
-    "Référence Biblique/Nouveau testament.md",
-    "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.md",
     "Personnages/Nouveau testament/Disciples de Jésus/Matthieu.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/15&16 - Timothée.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/Corinthiens.md",
-    "Personnages/Nouveau testament/Timothée.md",
-    "Lieux historiques/Bithynie.md",
-    "Untitled 1.md",
     "Personnages/Ancien testament",
     "Personnages/Nouveau testament",
-    "Référence Biblique/Nouveau testament/4 - Lettres générales/Pierre.md",
-    "Nos Forteresses.md",
-    "Notes sur Proverbes.md",
-    "Référence Biblique/Ancien Testament.md",
-    "Personnages/Jésus.md",
-    "Référence Biblique/Bible.md",
-    "Régions historiques/Untitled.md",
     "Lieux historiques",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/Philippiens.md",
     "Référence Biblique/Nouveau testament/5 - La fin",
     "Référence Biblique/Nouveau testament/4 - Lettres générales",
     "Référence Biblique/Nouveau testament/3 - Lettres de Paul",
     "Référence Biblique/Nouveau testament/2 - Actes des apôtres",
     "Référence Biblique/Nouveau testament/1 -Evangiles",
-    "Référence Biblique/Ancien testament/6 - Premiers livres prophétiques/Ezéchiel.md",
-    "Référence Biblique/Ancien testament/1 - Le commencement/Genèse.md",
-    "Référence Biblique/Ancien testament/6 - Premiers livres prophétiques/Esaïe.md",
     "Référence Biblique/Ancien testament/7 - Seconds livres prophétiques"
   ]
 }

@@ -81,9 +81,21 @@
                 "source": false
               }
             }
+          },
+          {
+            "id": "b6e333f48632440c",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Pouvoir de l'évangile.md",
+                "mode": "source",
+                "source": false
+              }
+            }
           }
         ],
-        "currentTab": 2
+        "currentTab": 3
       }
     ],
     "direction": "vertical"
@@ -149,7 +161,7 @@
         "state": {
           "type": "backlink",
           "state": {
-            "file": "Positionnement du cœur.md",
+            "file": "Pouvoir de l'évangile.md",
             "collapseAll": false,
             "extraContext": false,
             "sortOrder": "alphabetical",
@@ -166,7 +178,7 @@
         "state": {
           "type": "outgoing-link",
           "state": {
-            "file": "Positionnement du cœur.md",
+            "file": "Pouvoir de l'évangile.md",
             "linksCollapsed": false,
             "unlinkedCollapsed": true
           }
@@ -178,7 +190,7 @@
         "state": {
           "type": "outline",
           "state": {
-            "file": "Positionnement du cœur.md"
+            "file": "Pouvoir de l'évangile.md"
           }
         }
       }
@@ -195,10 +207,11 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "956e4a43c0bf6794",
+  "active": "b6e333f48632440c",
   "lastOpenFiles": [
-    "Abraham.md",
     "Positionnement du cœur.md",
+    "Pouvoir de l'évangile.md",
+    "Abraham.md",
     "David.md",
     "Notes sur Proverbes.md",
     "Référence Biblique/Ancien testament/5 - Livres poétiques/Proverbes.md",
