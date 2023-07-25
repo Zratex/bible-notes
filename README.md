@@ -28,13 +28,13 @@ Suivez ces étapes :
   - [Optionnel] : Paramètrez Obsdian selon vos préférences. Normalement cela ne devrait pas affecter les notes qui ont été prises
 - Ouvrez avec Obsidian le dossier `Notes christ` que vous avez précédemment téléchargé
 - Enjoy!
-### Modifier les notes
+## Modifier les notes
 
-Si vous n'avez pas l'habitude d'utiliser un dépôt Git mais que vous voulez tout de même apporter des modifications, je vous conseil de prendre copier coller le dossier `Notes christ` dans un autre dossier de votre ordinateur, pour éviter des conflits quand vous voudriez mettre à jour votre dépôt local au dépôt distant.
+Si vous n'avez pas l'habitude d'utiliser un dépôt Git mais que vous voulez tout de même apporter des modifications, je vous conseil de copier coller le dossier `Notes christ` dans un autre dossier de votre ordinateur, pour éviter des conflits quand vous voudriez mettre à jour votre dépôt local au dépôt distant.
 
 Ce n'est évidemment pas la seule solution, donc si vous vous y connaissez faites comme vous le souhaitez.
 
-### Mettre à jour le dépôt
+## Mettre à jour le dépôt
 > Lisez le segment à propos des modifications avant de lire ceci
 
 Pour mettre à jour de dépôt, assurez vous que vous n'avez réalisé aucunes modifications.
@@ -48,8 +48,9 @@ Ensuite, avec le même outil où vous avez initialement réalisé la commande `g
 - Allez dans la catégorie "Hotkeys" dans les paramètres d'Obsidian
 - Dans la barre de recherche, cherchez `pull`
 - Attribuez une touche à cette commande en appuyant sur le bouton **+** : pour moi par exemple c'est `F5`
+- Pressez votre touche, et sélectionnez `origin` puis ensuite `origin/main` pour mettre à jour votre dossier
 
-Un fois que vous avez attribué les touches, il vous suffira de, une fois que vous avez pressez la touche, sélectionné `origin` puis ensuite `origin/main` pour mettre à jour votre dossier.
+Désormais, à chaque vous que vous voudriez mettre à jour votre dépôt, il vous suffira d'appuyer sur votre bouton de prédilection.
 > Si vous rencontrez des erreurs, c'est parce que vous avez apporté des modifications à votre dépôt
 
 # Voilà !
