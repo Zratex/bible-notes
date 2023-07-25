@@ -5,7 +5,7 @@ Ce testament est séparé en plusieurs parties :
 - ==Evangiles :== vie de [[Jésus]] sur Terre ^94270d
   - [[1er Evangile - Matthieu|Matthieu]]
   - [[2nd Evangile - Marc|Marc]]
-  - Luc
+  - [[3eme Evangile - Luc|Luc]]
   - [[4eme Evangile - Jean|Jean]]
 - [[Actes|Actes des apôtres]]
 - Lettres de [[Paul]]

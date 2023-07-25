@@ -3,3 +3,4 @@ Les apôtres sont disciples de [[Jésus]] sont ceux qui étaient au service de [
 - [[Marc]]
 - [[Jean]]
 - [[Matthieu]]
+- [[Luc]]

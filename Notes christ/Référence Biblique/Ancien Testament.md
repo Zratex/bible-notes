@@ -34,7 +34,7 @@ Textes bibliques principalement tourné sur l'histoire d'Israël (par extension 
 	- Joël
 	- Amos
 	- Abdias
-	- [[Jonas]]
+	- [[32 - Jonas|Jonas]]
 	- Michée
 	- Nahum
 	- Habakuk
