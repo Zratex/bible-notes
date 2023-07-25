@@ -39,7 +39,18 @@ Ce n'est évidemment pas la seule solution, donc si vous vous y connaissez faite
 
 Pour mettre à jour de dépôt, assurez vous que vous n'avez réalisé aucunes modifications.
 
+Ensuite, il existe 2 méthodes pour mettre à jour votre dépôt :
+#### Via Git bash
 Ensuite, avec le même outil où vous avez initialement réalisé la commande `git clone` pour récupérer mes notes sur votre machines, executez la commande `git pull` (Si vous utilisez un logiciel dédié, cherchez sur internet comment **pull** avec votre logiciel)
+#### Via Obsidian
+- Installez le plugin `Obsidian Git` dans les plugins communautaires (accessible depuis les paramètres du logiciel)
+- Activez le plugin
+- Allez dans la catégorie "Hotkeys" dans les paramètres d'Obsidian
+- Dans la barre de recherche, cherchez `pull`
+- Attribuez une touche à cette commande en appuyant sur le bouton **+** : pour moi par exemple c'est `F5`
+
+Un fois que vous avez attribué les touches, il vous suffira de, une fois que vous avez pressez la touche, sélectionné `origin` puis ensuite `origin/main` pour mettre à jour votre dossier.
+> Si vous rencontrez des erreurs, c'est parce que vous avez apporté des modifications à votre dépôt
 
 # Voilà !
 C'était tout ce dont vous aviez normalement besoin de savoir. Si vous avez un soucis, ou que vous remarquez une erreur dans le dépôt, n'hésitez pas à me contacter !
