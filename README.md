@@ -9,7 +9,7 @@ Ce dépôt Git est un dépôt sur les notes que je prends sur l'étude de la Bib
 Comme vous le remarquez, ce n'est pas un format de note habituel. C'est parce que j'utilise le logiciel de notes **[Obsidian](https://obsidian.md/)** pour faire des liens entre mes notes. De ce fait, si vous voulez utiliser à but personnel ces notes, il vous faudra installer le même setup que moi : explications plus bas dans ce `README`.
 
 J'avais envie que mes notes sur mon téléphone et sur mon PC soient liés. Cependant, comme il n'est pas possible d'installer Git directement sur Android, je me suis retrouvé à devoir installé [syncthing](https://syncthing.net/). Ce système fonctionne super bien, en vrai je suis content, mais je me suis dit qu'il serait intéressant de réaliser un dépôt Git pour pouvoir le partager à ceux qui seraient intéressés.
-> Seul **moi** (c'est à dire Zratex sur Github) sera authorisé à push
+> Seul **moi** (c'est à dire **Zratex** sur Github) sera authorisé à force push. Autrement le dépôt sera en read-only pour les autres utilisateurs.
 ## Installation
 Pour un développeur c'est assez classique, mais je me dois de donner une explication pour ceux qui n'ont pas l'habitude.
 
