@@ -1,0 +1,1 @@
+Créé à l'image de [[Dieu]], c'est le premier homme. Il eut comme femme la première femme : [[Eve]].

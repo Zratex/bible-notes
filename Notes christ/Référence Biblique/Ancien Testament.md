@@ -18,7 +18,7 @@ Textes bibliques principalement tourné sur l'histoire d'Israël (par extension 
 	- Néhémie
 	- Esther
 - Livres dit "poétiques"
-	- Job
+	- [[18 - Job|Job]]
 	- Psaumes
 	- Proverbes
 	- Ecclésiaste

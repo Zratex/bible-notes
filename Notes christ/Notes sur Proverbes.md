@@ -16,11 +16,11 @@ Cependant, ils ne sont pas pour autant regroupés par thématique. Et il faut du
 - `Proverbes 9:1` : Sagesse de Dieu construit
 - `Proverbes 4:7` -> il faut acquérir la sagesse
 
-==Sagesse :== Savoir utiliser ses connaissances pour servir Dieu
+==Sagesse :== Savoir utiliser ses connaissances pour servir Dieu ^dd161f
 ### Sagesse monde != Sagesse Dieu
 Différence entre Sagesse du monde et de Dieu : `Jacques 3:13-17`  (~=`Mathieu 5`)
 
-Faire confiance à sa propre sagesse ou celle du monde, est un cas similaire de Adam et Ève (`Genèse 3:6-7`) -> on se fait facilement avoir par la tentation et les mauvais choix
+Faire confiance à sa propre sagesse ou celle du monde, est un cas similaire de [[Adam]] et [[Eve]] (`Genèse 3:6-7`) -> on se fait facilement avoir par la tentation et les mauvais choix
 -> Principe expliqué dans les proverbes comme un chemin de **folie**
 > On ne doit pas se confier à sa propre intelligence, mais en la foi en Dieu
 

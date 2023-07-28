@@ -3,7 +3,7 @@ Notes initialement prises sur le sujet de Ulrich nommé "A quiconque désire sui
 `Mathieu 16:21-28` [[Simon Pierre|Pierre]], un homme qui a eut la révélation de [[Dieu]] et marche souvent avec Jésus physiquement, est malgré tout influencé par [[Satan]]
 -> Il refuse de s'aligner sur la volonté de [[Dieu]], comme [[Fruit#^e559dc|Jonas]]
 
-> [[Satan]] tente n'importe qui, même si il sait que la personne est pure comme Adam&Eve ou [[Jésus]] dans le désert
+> [[Satan]] tente n'importe qui, même si il sait que la personne est pure comme [[Adam]] & [[Eve]] ou [[Jésus]] dans le désert
 
 >Dès que l'on s'oppose à la parole de [[Dieu]], [[Satan|l'ennemi]] viens 
 

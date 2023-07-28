@@ -1,0 +1,1 @@
+Il fut l'un des disciples de [[Jésus]], et est le frère de [[Jean]]

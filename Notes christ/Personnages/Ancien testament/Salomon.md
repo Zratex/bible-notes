@@ -1,1 +1,1 @@
-Dit l'homme le plus sage
+Dit l'homme le plus [[Notes sur Proverbes#^dd161f|sage]], fils de [[David]]

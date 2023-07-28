@@ -9,13 +9,13 @@ Ce testament est séparé en plusieurs parties :
   - [[4eme Evangile - Jean|Jean]]
 - [[Actes|Actes des apôtres]]
 - Lettres de [[Paul]]
-  - Romains
-  - [[Corinthiens#1 Corinthiens|1 Corinthiens]]
-  - [[Corinthiens#2 Corinthiens|2 Corinthiens]]
+  - [[6 - Romains|Romains]]
+  - [[7&8 - Corinthiens#1 Corinthiens|1 Corinthiens]]
+  - [[7&8 - Corinthiens#2 Corinthiens|2 Corinthiens]]
   - Galates
-  - Ephésiens
+  - [[10 - Ephésiens|Ephésiens]]
   - [[Philippiens]]
-  - Colossiens
+  - [[12 - Colossiens|Colossiens]]
   - 1 et 2 Thessaloniciens
   - [[15&16 - Timothée#1 Timothée|1 Timothée]]
   - [[15&16 - Timothée#2 Timothée|2 Timothée]]
@@ -23,9 +23,11 @@ Ce testament est séparé en plusieurs parties :
   - Philémon
 - Lettres générales :
 	- Hébreux
-	- [[Jacques]]
+	- [[19 - Jacques|Jacques]]
 	- [[Pierre#1 Pierre|1 Pierre]]
 	- [[Pierre#2 Pierre|2 Pierre]]
-	- 1, 2 et 3 Jean
+	- [[Livres de Jean#1 Jean|1 Jean]]
+	- [[Livres de Jean#2 Jean|2 Jean]]
+	- [[Livres de Jean#3 Jean|3 Jean]]
 	- Jude
 - Apocalypse

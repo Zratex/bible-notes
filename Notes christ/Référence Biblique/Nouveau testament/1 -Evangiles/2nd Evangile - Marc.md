@@ -1,4 +1,10 @@
 2nd [[Nouveau testament#^94270d|évangile de la Bible]], rédigé par [[Marc]].
+## Chapitre 7
+### Versets 1 à 23
+Intitulé **[[Jésus]] et la tradition religieuse juive**
+#### Versets 8 et 9
+8) Vous mettez de côté le commandement de [[Dieu]], pour observer la tradition des hommes !
+9) Puis il ajouta : Ah ! vous réussissez parfaitement à mettre de côté le commandement de [[Dieu]] pour établir votre propre tradition !
 ## Chapitre 12
 ### Versets 41 à 44
 Intitulé **La vraie générosité** par [[Bible#^358f23|BDS]]

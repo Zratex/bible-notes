@@ -21,6 +21,7 @@ Etudié dans le [[Positionnement du cœur]]
 #### Versets 9 et 10
 9) Ceux qui veulent à tout prix s’enrichir s’exposent eux-mêmes à la tentation et tombent dans le piège de nombreux désirs insensés et pernicieux qui précipitent les hommes dans la ruine et la perdition.
 10) Car « l’amour de l’argent est racine de toutes sortes de maux  ». Pour s’y être abandonnés, certains se sont égarés très loin de la foi, et se sont infligé beaucoup de tourments.
+
 # 2 Timothée
 ## Chapitre 3
 ### Versets 1 à 9
