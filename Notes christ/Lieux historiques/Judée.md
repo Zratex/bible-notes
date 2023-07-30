@@ -4,7 +4,7 @@ La **Judée** est délimitée au nord par la Samarie, au sud par le Néguev, à 
 ![[Carte Judée.png]]
 
 ## Description
-La **Judée** est le nom historique et biblique d'une région montagneuse s'étendant aujourd'hui du sud d'Israël à une partie de la Cisjordanie. Son nom vient de la Tribu de Juda dont elle constituait le territoire.
+La **Judée** est le nom historique et biblique d'une région montagneuse s'étendant aujourd'hui du sud d'Israël à une partie de la Cisjordanie. Son nom vient de la Tribu de [[Juda]] dont elle constituait le territoire.
 La Judée a été le centre de plusieurs royaumes et provinces antiques : le [royaume de Juda](https://fr.wikipedia.org/wiki/Royaume_de_Juda "Royaume de Juda") à l'âge de fer, la province perse de _[Yehoud Medinata](https://fr.wikipedia.org/wiki/Yehoud_Medinata "Yehoud Medinata")_, les dynasties des [Hasmonéens](https://fr.wikipedia.org/wiki/Hasmon%C3%A9ens "Hasmonéens") et des [Hérodiens](https://fr.wikipedia.org/wiki/H%C3%A9rodiens "Hérodiens"), puis la province romaine de _[Iudaea](https://fr.wikipedia.org/wiki/Jud%C3%A9e_(province_romaine) "Judée (province romaine)")_.
 
 ## Nom

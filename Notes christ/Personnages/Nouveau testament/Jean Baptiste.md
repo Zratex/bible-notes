@@ -1,0 +1,1 @@
+Fils de [[Zacharie]] et [[Elisabeth]]. Nommé Jean mais renommé Jean Baptiste parce qu'il baptisait

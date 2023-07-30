@@ -1,0 +1,13 @@
+Jacob eut 12 fils qui représente les 12 tribus d'Israël. Respectivement :
+- [[Ruben]]
+- [[Siméon]]
+- [[Lévi]]
+- [[Juda]]
+- [[Dan]]
+- [[Nephthali]]
+- [[Gad]]
+- [[Asher]]
+- [[Issacar]]
+- [[Zabulon]]
+- [[Joseph]]
+- [[Benjamin]]

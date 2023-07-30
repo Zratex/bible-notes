@@ -1,0 +1,1 @@
+Mère de [[Jean Baptiste]]. Femme de [[Zacharie]]. Descendante d'[[Aaron]]

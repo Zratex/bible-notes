@@ -1,0 +1,1 @@
+C'est l'ange de [[Dieu]] qui annonça la bonne nouvelle de la naissance de [[Jésus]] auprès de [[Marie]], ou encore la naissance de [[Jean Baptiste]] auprès de [[Zacharie]].
