@@ -24,10 +24,10 @@ Textes bibliques principalement tourné sur l'histoire d'Israël (par extension 
 	- Ecclésiaste
 	- Cantique des cantiques
 - Premiers livres prophétiques
-	- [[Esaïe]]
-	- Jérémie
+	- [[23 - Esaïe|Esaïe]]
+	- [[24 - Jérémie|Jérémie]]
 	- Lamentations
-	- [[Ezéchiel]]
+	- [[26 - Ezéchiel|Ezéchiel]]
 	- Daniel
 - Seconds livres prophétiques
 	- Osée
