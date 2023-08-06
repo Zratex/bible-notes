@@ -1,4 +1,4 @@
-Textes bibliques principalement tourné sur l'histoire d'Israël (par extension des juifs) avant la naissance de [[Jésus]]. Donc il précède du [[Nouveau testament]]
+Textes bibliques principalement tourné sur l'histoire d'Israël (par extension des juifs) et sa relation avec [[Dieu]], avant la naissance de [[Jésus]]. Donc il précède le [[Nouveau testament]]
 ## Composition
 - [[Genèse]]
 - Textes de loi
@@ -11,7 +11,8 @@ Textes bibliques principalement tourné sur l'histoire d'Israël (par extension 
 	- Juges
 	- Ruth
 	- 1 et 2 Samuel
-	- 1 et 2 Rois
+	- [[11&12 - Rois#1 Rois|1 Rois]]
+	- [[11&12 - Rois#2 Rois|2 Rois]]
 - Seconds livres historiques
 	- 1 et 2 Chroniques
 	- Esdras

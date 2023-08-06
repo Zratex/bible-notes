@@ -15,7 +15,7 @@ Etudié dans la note [[Positionnement du cœur]] :
 Dernière partie de ce qui est appelé le "serment sur la montage " par [[Jésus]]
 ## Chapitre 19
 ### Versets 16 à 30
-Intitulé **Les riches et le royaume de Dieu**
+Intitulé **Les riches et le royaume de [[Dieu]]** par [[Bible#^358f23|BDS]]
 #### Versets 21 et 22
 Etudié dans le [[Positionnement du cœur]], notamment à propos de la [[Positionnement du cœur#Cas de la dîme|Dîme]]
 

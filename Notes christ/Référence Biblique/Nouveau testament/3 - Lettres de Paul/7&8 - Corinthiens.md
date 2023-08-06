@@ -6,7 +6,7 @@ Intitulé **La [[Sagesse]] des hommes et la folie de [[Dieu]]** par [[Bible#^358
 
 18) En effet, la prédication de la mort de Christ sur une croix est une folie aux yeux de ceux qui se perdent. Mais pour nous qui sommes sauvés, elle est la puissance même de Dieu.
 19) N’est-il pas écrit :
-    *Je détruirai la sagesse des sages*
+    *Je détruirai la [[Sagesse|sagesse]] des sages*
     *et je réduirai à néant l’intelligence des intelligents*
 
 Référence à [[23 - Esaïe#Versets 13 et 14|Esaïe 29:13-14]]
@@ -28,6 +28,27 @@ Référence à [[23 - Esaïe#Versets 13 et 14|Esaïe 29:13-14]]
 
 Référence à [[24 - Jérémie#Versets 22 à 25|Jérémie 9:22-23]]
 # 2 Corinthiens
+## Chapitre 6
+### Versets 14 à 18
+Intitulé **La séparation d'avec le mal** par [[Bible#^358f23|BDS]]
+
+14) Ne vous mettez pas avec des incroyants sous un joug qui n’est pas celui du [[Dieu|Seigneur]]. En effet, ce qui est juste peut-il s’unir à ce qui s’oppose à sa loi ? La lumière peut-elle être solidaire des ténèbres ?
+15) [[Jésus|Christ]] peut-il s’accorder avec le [[Satan|diable]] ? Que peut avoir en commun le croyant avec l’incroyant ?
+16) Quel accord peut-il exister entre le temple de [[Dieu]] et les idoles ? Car nous sommes, nous, le temple du [[Dieu]] vivant. [[Dieu]] lui-même l’a dit :
+    *J’habiterai et je marcherai au milieu d’eux.*
+    *Je serai leur [[Dieu]], et ils seront mon peuple .*
+
+Verset 16 fait référence à [[26 - Ezéchiel#Versets 15 à 28|Ezéchiel 37:27]]
+
+17) *C’est pourquoi : Sortez du milieu d’eux,*
+    *Séparez-vous d’eux, dit le [[Dieu|Seigneur]].*
+    *N’ayez pas de contact avec ce qui est impur,*
+    *alors je vous accueillerai.*
+
+Verset 17 fait référence à [[23 - Esaïe#Versets 7 à 12|Esaïe 52:11]]
+
+18) *Je serai pour vous un Père, et vous serez pour moi des fils et des filles,*
+    *dit le [[Dieu|Seigneur]], le [[Dieu|Tout-Puissant]]*
 ## Chapitre 10
 Intitulé par la version [[Bible#^358f23|BDS]] **Paul défend son apostolat | L'autorité de l'apôtre**
 ### Versets 1 à 4
