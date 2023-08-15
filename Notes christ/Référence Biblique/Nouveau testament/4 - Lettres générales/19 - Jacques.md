@@ -34,6 +34,7 @@ Aussi étudié dans [[Nos Forteresses#- Raisonnements|Raisonnements (nos fortere
 ## Chapitre 3
 ### Versets 13 à 18
 Intitulé **La [[Sagesse]] vient d'en haut** par [[Bible#^358f23|BDS]]
+
 13) Y a-t-il parmi vous quelqu’un de sage et d’expérimenté ? Qu’il en donne la preuve par sa bonne conduite, c’est-à-dire par des actes empreints de l’humilité qui caractérise la véritable sagesse.
 14) Mais si votre [[Positionnement du cœur|cœur]] est plein d’amère jalousie, si vous êtes animés d’un esprit querelleur, il n’y a vraiment pas lieu de vous vanter ; ce serait faire entorse à la vérité.
 15) Une telle sagesse ne vient certainement pas du ciel, elle est de ce monde, de l’homme sans [[Dieu]], elle est [[Satan|démoniaque]].

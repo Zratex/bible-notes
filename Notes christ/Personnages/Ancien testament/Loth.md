@@ -1,0 +1,1 @@
+Frère d'[[Abraham]] qui dû se séparer de sa famille, comme décrit dans la note [[L'affaire#la séparation|La séparation]]

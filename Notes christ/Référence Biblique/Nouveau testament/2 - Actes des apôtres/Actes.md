@@ -1,8 +1,8 @@
 Actes des [[Apôtres]]
-## Chapitre 8
-Intitulé **Témoins en [[Judée]] et en [[Samarie]]** par [[Bible#^358f23|BDS]]
 ### Parole de Dieu
 A savoir qu'ici quand il est question d'annoncer "*la parole du Seigneur/Dieu*", le [[Nouveau testament]] n'était pas encore écrit. Ils prêchaient non pas le christianisme, mais le [[Jésus|Christ]] (la bonne nouvelle).
+## Chapitre 8
+Intitulé **Témoins en [[Judée]] et en [[Samarie]]** par [[Bible#^358f23|BDS]]
 ### Versets 1 à 3
 Intitulé **Persécution et dispersion des croyants** par [[Bible#^358f23|BDS]]
 1) [[Paul|Saul]] avait donné son approbation à l’exécution d’[[Etienne]]. A partir de ce jour-là, une violente persécution se déchaîna contre l’Eglise qui était à [[Jérusalem]] ; tous les croyants se dispersèrent à travers la [[Judée]] et la [[Samarie]], à l’exception des [[Apôtres|apôtres]].
@@ -40,3 +40,13 @@ Pour la capitale, c'est probablement la ville de [[Samarie]] en fonction des tra
 Après Simon :
 
 25) [[Simon Pierre|Pierre]] et [[Jean]] continuèrent à rendre témoignage à [[Jésus|Jésus-Christ]] en annonçant la [[Actes#Parole de Dieu|Parole du Seigneur]], puis ils retournèrent à [[Jérusalem]], tout en annonçant l’[[Nouveau testament#^94270d|Evangile]] dans un grand nombre de villages samaritains.
+
+
+
+
+## Chapitre 16
+### Versets 1 à 12
+Intitulé **L'appel du Macédonien** par [[Bible#^358f23|BDS]]
+#### Versets 6 et 7
+6) Ils traversèrent la Galatie phrygienne parce que le [[Saint-Esprit]] les avait empêchés d’annoncer la Parole dans la province d’Asie
+7) Parvenus près de la Mysie (prêt de Bosphore), ils se proposaient d’aller en [[Bithynie]] ; mais, là encore, l’[[Saint-Esprit|Esprit]] de [[Jésus]] s’opposa à leur projet.

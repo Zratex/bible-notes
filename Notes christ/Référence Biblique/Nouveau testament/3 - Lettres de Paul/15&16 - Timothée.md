@@ -33,3 +33,7 @@ Evoqué ici : [[Positionnement du cœur#Conséquence temps difficiles|Pourquoi l
 3) sans cœur, sans pitié, calomniateurs, incapables de se maîtriser, cruels, ennemis du bien ;
 4) emportés par leurs passions et enflés d’orgueil, ils seront prêts à toutes les trahisons. Ils aimeront le plaisir plutôt que [[Dieu]].
 5) Certes, ils resteront attachés aux pratiques extérieures de la piété mais, en réalité, ils ne voudront rien savoir de ce qui en fait la force. Détourne-toi de ces gens-là !
+
+## Chapitre 4
+### Versets 1 à 5
+Intitulé **Proclame la parole !** par [[Bible#^358f23|BDS]]

@@ -10,7 +10,8 @@ Textes bibliques principalement tourné sur l'histoire d'Israël (par extension 
 	- Josué
 	- Juges
 	- Ruth
-	- 1 et 2 Samuel
+	- [[9&10 - Samuel#1 Samuel|1 Samuel]]
+	- [[9&10 - Samuel#2 Samuel|2 Samuel]]
 	- [[11&12 - Rois#1 Rois|1 Rois]]
 	- [[11&12 - Rois#2 Rois|2 Rois]]
 - Seconds livres historiques
@@ -20,8 +21,8 @@ Textes bibliques principalement tourné sur l'histoire d'Israël (par extension 
 	- Esther
 - Livres dit "poétiques"
 	- [[18 - Job|Job]]
-	- Psaumes
-	- Proverbes
+	- [[19 - Psaumes|Psaumes]]
+	- [[20 - Proverbes|Proverbes]]
 	- Ecclésiaste
 	- Cantique des cantiques
 - Premiers livres prophétiques

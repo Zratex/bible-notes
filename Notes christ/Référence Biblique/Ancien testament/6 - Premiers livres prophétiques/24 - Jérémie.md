@@ -1,6 +1,7 @@
 ## Chapitre 9
 ### Versets 22 à 25
 Intitulé **Vraie et fausse [[Sagesse]]** par [[Bible#^358f23|BDS]]
+
 22) L’Eternel dit ceci :
     Que celui qui est sage ne se glorifie pas de sa [[Sagesse]] ;
     que celui qui est fort ne se glorifie pas de sa vigueur ;
