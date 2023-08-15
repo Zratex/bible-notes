@@ -25,7 +25,7 @@ Ce dossier est donc une analyse complète de cet ouvrage.
 - Biologie : le saut vertigineux de l'inerte au vivant
 - Ce qu'en disent les grands savants eux mêmes : 100 citations essentielles
 - En quoi croient les savants ?
-- En quoi croyait Einstein ?
+- En quoi croyait [[Albert Einstein|Einstein]] ?
 - En quoi croyait Gödel ?
 ### Les preuves hors sciences
 - Les vérités humainement inatteignables de la [[Bible]]

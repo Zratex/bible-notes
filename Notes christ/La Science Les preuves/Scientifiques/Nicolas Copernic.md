@@ -1,0 +1,4 @@
+Astronome et mathématicien polonais né en 1473 et mort en 1543, a révolutionné notre vision du fonctionnement du système solaire, ainsi que la place de la Terre dans l'Univers.
+## Découvertes
+Sa grande révolution est en 1543 sa proposition de théorie où le soleil est le centre du système (modèle héliocentrique) avec comme appuis des démonstrations scientifiques, plutôt que la Terre (modèle géocentrique) qui était largement admise à l'époque. Sa théorie fut confirmée plus tard par les observations de Kepler et [[Galilée]].
+De plus, il a émis l'idée que les planètes avaient une orbite circulaire autour du soleil, confirmée beaucoup plus tard par [[Isaac Newton]].
