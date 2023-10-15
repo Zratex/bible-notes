@@ -25,6 +25,17 @@ Principalement étudié dans la [[Note sur la prière]]
 23) Lorsqu’il eut terminé son temps de service, il retourna chez lui.
 24) Quelque temps après, sa femme [[Elisabeth]] devint enceinte et, pendant cinq mois, elle se tint cachée. Elle se disait :
 25) C’est l’œuvre du [[Dieu|Seigneur]] en ma faveur : il a décidé d’effacer ce qui faisait ma honte aux yeux de tous  !
+## Chapitre 4
+### Versets 14 à 30
+Intitulé **[[Jésus]], le Serviteur choisi par [[Dieu]]** par [[Bible#^358f23|BDS]]
+
+18) *L’[[Saint-Esprit|Esprit]] du [[Dieu|Seigneur]] est sur moi*
+    *car il m’a oint*
+    *pour annoncer une bonne nouvelle aux pauvres.*
+    *Il m’a envoyé ╵pour annoncer aux captifs la délivrance,*
+    *aux aveugles le recouvrement de la vue,*
+    *pour apporter la liberté aux opprimés*
+19) *et proclamer une année de faveur accordée par le [[Dieu|Seigneur]].*
 ## Chapitre 9
 ### Versets 51 à 56
 Intitulé **Jésus se dirige vers [[Jérusalem]] : L'opposition en [[Samarie]]** par [[Bible#^358f23]|BDS]]

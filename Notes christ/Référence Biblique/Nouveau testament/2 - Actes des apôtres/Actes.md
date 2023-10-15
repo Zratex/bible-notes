@@ -31,7 +31,7 @@ Pour la capitale, c'est probablement la ville de [[Samarie]] en fonction des tra
 
 18) [[Actes#^896ff7|Simon]] vit que l’[[Saint-Esprit|Esprit Saint]] était donné aux croyants quand les [[Apôtres]] leur imposaient les mains. Alors il leur proposa de l’argent
 19) et leur dit : Donnez-moi aussi ce pouvoir pour que ceux à qui j’imposerai les mains reçoivent l’[[Saint-Esprit|Esprit Saint]].
-20) Mais [[Pierre]] lui répondit : Que ton argent périsse, et toi avec lui, puisque tu t’es imaginé qu’on pouvait se procurer le [[Saint-Esprit|don de Dieu]] avec de l’argent !
+20) Mais [[20&21 - Pierre]] lui répondit : Que ton argent périsse, et toi avec lui, puisque tu t’es imaginé qu’on pouvait se procurer le [[Saint-Esprit|don de Dieu]] avec de l’argent !
 21) Tu n’as ni part ni droit dans cette affaire, car ton [[Positionnement du cœur|coeur]] n’est pas droit devant [[Dieu]].
 22) Détourne-toi donc du mal qui est en toi, et demande au [[Jésus|Seigneur]] de te pardonner, s’il est possible, d’avoir eu de telles intentions dans ton cœur.
 23) Car, à ce que je vois, tu es rempli d’amertume et de méchanceté et tu es captif du mal.

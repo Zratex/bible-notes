@@ -9,7 +9,7 @@ Le temps est en Dieu. [[Satan]] faisait parti de ceux qui louaient [[Dieu]]. Mai
 Si on accepte [[Jésus]], [[Satan]] ne peux plus rien faire :
 > C'est comme un policier sans armes. Il est limité dans ce qu'il peux faire, mais fait peur avec sa carte de policier
 
-[[Pierre]] décrit [[Satan]] comme un voleur : la [[Bible|parole]] nous maintient éveillé, il attend donc qu'on arrête de veiller pour voler.
+[[20&21 - Pierre]] décrit [[Satan]] comme un voleur : la [[Bible|parole]] nous maintient éveillé, il attend donc qu'on arrête de veiller pour voler.
 # En [[Jésus|Christ]] toute choses concourent à mon bien
 [[6 - Romains|Romains 8:28-30]]
 Aimer [[Dieu]] c'est de le [[Sagesse#Point de départ de la Sagesse|craindre]], d'étudier sa parole et (?). En revanche, il nous a donné la liberté et le libre-arbitre.
@@ -29,7 +29,7 @@ Les 4 façons où [[Satan]] attaque :
 Exemple : [[Satan]] enleva tout de [[Job]] pour le monter contre [[Dieu]], mais il réagit : `Job 1:20-22` -> il ne s'est pas révolté malgré les temps difficiles. [[Paul]] dit que dans ce genre de cas, il faut soit se taire soit louer [[Dieu]]
 > Il faut attendre laisser [[Dieu]] faire. Parce que si on s'y met, il considère donc qu'on a pas besoin de lui. 
 
-[[Livres de Jean#Versets 19 et 20|1 Jean 5:19-20]] et [[Livres de Jean#Verset 21|1 Jean 5:21]]
+[[22&23&24 - Livres de Jean#Versets 19 et 20|1 Jean 5:19-20]] et [[22&23&24 - Livres de Jean#Verset 21|1 Jean 5:21]]
 -> avoir des idoles c'est donc ne pas avoir besoin de [[Dieu]]
 
 ## 2 - incrédulité

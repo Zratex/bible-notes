@@ -6,7 +6,7 @@ Une bonne nouvelle nous laisse jamais insensible et on veut donc là partager
 > Cette bonne nouvelle transforme
 
 Si le monde nous attire encore, alors nous sommes pas prêt à être utilisé par [[Dieu]]
-> Exemple : Moïse berger
+> Exemple : [[Moïse]] berger
 
 Les Profils d'instruments de [[Dieu]] sont :
 - fou (qui ne s'importe peu des critiques qu'on lui fait)

@@ -28,6 +28,11 @@ Référence à [[23 - Esaïe#Versets 13 et 14|Esaïe 29:13-14]]
 
 Référence à [[24 - Jérémie#Versets 22 à 25|Jérémie 9:22-23]]
 # 2 Corinthiens
+## Chapitre 5
+### Versets 11 à 21
+Intitulé **Le service et la réconciliation** par [[Bible#^358f23|BDS]]
+
+21) Celui qui était innocent de tout péché, [[Dieu]] l’a condamné comme un pécheur à notre place pour que, dans l’union avec [[Jésus|Christ]], nous recevions la justice que [[Dieu]] accorde. »
 ## Chapitre 6
 ### Versets 14 à 18
 Intitulé **La séparation d'avec le mal** par [[Bible#^358f23|BDS]]

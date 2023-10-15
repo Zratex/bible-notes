@@ -1,7 +1,7 @@
 **Extrait de la page Wikipédia sur le sujet :**
 ## Géographie
 La **Judée** est délimitée au nord par la Samarie, au sud par le Néguev, à l'ouest par la plaine côtière et à l'est par la vallée du Jourdain.
-![[Carte Judée.png]]
+![[Images/Carte Judée.png]]
 
 ## Description
 La **Judée** est le nom historique et biblique d'une région montagneuse s'étendant aujourd'hui du sud d'Israël à une partie de la Cisjordanie. Son nom vient de la Tribu de [[Juda]] dont elle constituait le territoire.

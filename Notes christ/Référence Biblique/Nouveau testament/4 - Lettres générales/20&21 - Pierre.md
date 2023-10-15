@@ -14,6 +14,8 @@ Intitulé **Salutation** par [[Bible#^358f23|BDS]]
 
 ### Versets 13 à 25
 Intitulé **Les impératifs de la vie chrétienne...** par [[Bible#^46e624|S21]]
+13) C’est pourquoi, tenez votre esprit en éveil et faites preuve de modération ; mettez toute votre espérance dans la grâce qui vous sera accordée le jour où [[Jésus|Jésus-Christ]] apparaîtra.
+14) Comme des enfants obéissants, ne vous laissez plus diriger par les passions qui vous gouvernaient autrefois, au temps de votre ignorance.
 #### Versets 15 et 16
 15) Au contraire, tout comme celui qui vous a appelés est saint, soyez saints dans tout votre comportement.
 16) Car voici ce que Dieu dit dans l’Ecriture : **Soyez saints, car je suis saint**
@@ -27,4 +29,15 @@ Intitulé **Vivre dans la [[Sagesse#Point de départ de la Sagesse|crainte]] de 
 19) Non, il a fallu que [[Jésus|Christ]], tel un agneau pur et sans défaut, verse son sang précieux en sacrifice pour vous
 20) Dès avant la création du monde, [[Dieu]] l’avait choisi pour cela, et il a paru, dans ces temps qui sont les derniers, pour agir en votre faveur.
 21) Par lui, vous croyez en [[Dieu]], qui l’a ressuscité et lui a donné la gloire. Ainsi votre foi et votre espérance sont tournées vers Dieu.
+
+#### Versets 22 à 25
+22) Par votre obéissance à la vérité, vous avez purifié votre être afin d’aimer sincèrement vos frères et sœurs. Aimez-vous donc ardemment les uns les autres de tout votre cœur.
+23) Car vous êtes nés à une vie nouvelle, non d’un homme mortel, mais d’une semence immortelle : la Parole vivante et éternelle de [[Dieu]].
+24) En effet, il est écrit :
+    *Tout homme est pareil à l’herbe,*
+    *et toute sa gloire comme la fleur des champs.*
+    *L’herbe se dessèche et sa fleur tombe,*
+
+25) mais la Parole du [[Dieu|Seigneur]] subsiste éternellement.
+    Or, cette Parole, c’est l’[[Note sur l'évangile|Evangile]] qui vous a été annoncé.
 # 2 Pierre

@@ -11,6 +11,12 @@ Verset 14 cité dans [[7&8 - Corinthiens#Versets 18 à 31|1 Corinthiens 1:19]]
 Intitulé **[[Dieu]] délivre** par la version [[Bible#^358f23|BDS]]
 
 11) Partez, partez, sortez de là, ne touchez rien d’impur  ! Sortez de cette ville ! Purifiez-vous, vous qui portez les ustensiles de l’[[Dieu|Eternel]]
+12) 
+## Chapitre 53
+5) Mais c’est pour nos péchés ╵qu’il a été percé,
+   c’est pour nos fautes ╵qu’il a été brisé.
+   Le châtiment ╵qui nous donne la paix ╵est retombé sur [[Jésus|lui]]
+   et c’est par ses blessures ╵que nous sommes guéris
 ## Chapitre 59
 Chapitre intitulé **De l'injustice à la justice** par la version [[Bible#^358f23|BDS]]
 ### Versets 1 à 8

@@ -24,10 +24,10 @@ Ce testament est séparé en plusieurs parties :
 - Lettres générales :
 	- Hébreux
 	- [[19 - Jacques|Jacques]]
-	- [[Pierre#1 Pierre|1 Pierre]]
-	- [[Pierre#2 Pierre|2 Pierre]]
-	- [[Livres de Jean#1 Jean|1 Jean]]
-	- [[Livres de Jean#2 Jean|2 Jean]]
-	- [[Livres de Jean#3 Jean|3 Jean]]
+	- [[20&21 - Pierre#1 Pierre|1 Pierre]]
+	- [[20&21 - Pierre#2 Pierre|2 Pierre]]
+	- [[22&23&24 - Livres de Jean#1 Jean|1 Jean]]
+	- [[22&23&24 - Livres de Jean#2 Jean|2 Jean]]
+	- [[22&23&24 - Livres de Jean#3 Jean|3 Jean]]
 	- Jude
 - Apocalypse

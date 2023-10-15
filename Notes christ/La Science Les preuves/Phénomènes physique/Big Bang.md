@@ -1,4 +1,4 @@
-Théorie scientifique sur la création du monde.
+Théorie scientifique sur la création de l'univers.
 
 Pionniers :
 - [[Georges Lemaître]]

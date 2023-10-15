@@ -23,8 +23,8 @@ Il est ici sujet des <u>pensées</u> qui ne sont pas alignés a celle de Dieu.
 [[Philippiens#Versets 6 et 7|Philippiens 4:6-7]] et [[Philippiens#Versets 8 et 9|Philippiens 4:8-9]]
 -> Que la vérité soit l'objet principal de nos pensées
 
-[[Pierre#Versets 15 et 16|1 Pierre 1:15-16]] et [[Pierre#^4b5c8f|1 Pierre 1:17]] : quand tu [[Sagesse#Point de départ de la Sagesse|craints]] Dieu, tu ne fais pas de tord a quelqu'un
-Suite : [[Pierre#Versets 17 à 21|1 Pierre 1:18-19]]
+[[20&21 - Pierre#Versets 15 et 16|1 Pierre 1:15-16]] et [[20&21 - Pierre#^4b5c8f|1 Pierre 1:17]] : quand tu [[Sagesse#Point de départ de la Sagesse|craints]] Dieu, tu ne fais pas de tord a quelqu'un
+Suite : [[20&21 - Pierre#Versets 17 à 21|1 Pierre 1:18-19]]
 > Les cultures et traditions nous empêchent d'accéder à la connaissance de Dieu
 
 # Conclusion

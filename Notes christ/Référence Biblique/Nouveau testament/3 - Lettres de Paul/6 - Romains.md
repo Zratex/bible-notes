@@ -1,4 +1,10 @@
 Lettre de [[Paul]] envers les romains
+## Chapitre 1
+### Versets 16 à 17
+Intitulé **Le résumé de l'[[Note sur l'évangile|Evangile]]** par [[Bible#^358f23|BDS]] :
+
+16) Car je n’ai pas honte de l’[[Note sur l'évangile|Evangile]] : c’est la puissance de [[Dieu]] par laquelle il sauve tous ceux qui croient, les Juifs en premier lieu et aussi les non-Juifs.
+17) En effet, cet [[Note sur l'évangile|Evangile]] nous révèle en quoi consiste la justice que [[Dieu]] accorde : elle est reçue par la foi et rien que par la foi, comme il est dit dans l’Ecriture : *Le juste vivra grâce à la foi*
 ## Chapitre 8
 ### Versets 18 à 30
 Intitulé **L’espérance au milieu des détresses présentes** par [[Bible#^358f23|BDS]]

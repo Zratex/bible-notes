@@ -4,7 +4,7 @@ Textes bibliques principalement tourné sur l'histoire d'Israël (par extension 
 - Textes de loi
 	- Exode
 	- Lévitique
-	- Nombres
+	- [[4 - Nombres|Nombres]]
 	- Deutéronome
 - Premiers livres historiques
 	- Josué
