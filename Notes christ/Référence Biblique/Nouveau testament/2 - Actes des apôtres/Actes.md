@@ -50,3 +50,7 @@ Intitulé **L'appel du Macédonien** par [[Bible#^358f23|BDS]]
 #### Versets 6 et 7
 6) Ils traversèrent la Galatie phrygienne parce que le [[Saint-Esprit]] les avait empêchés d’annoncer la Parole dans la province d’Asie
 7) Parvenus près de la Mysie (prêt de Bosphore), ils se proposaient d’aller en [[Bithynie]] ; mais, là encore, l’[[Saint-Esprit|Esprit]] de [[Jésus]] s’opposa à leur projet.
+#### Versets 8 à 10
+8) Ils traversèrent donc la Mysie et descendirent au port de Troas.
+9) Là, [[Paul]] eut une vision au cours de la nuit : un Macédonien se tenait devant lui et le suppliait : Viens en Macédoine et secours-nous !
+10) A la suite de cette vision de [[Paul]], nous avons aussitôt cherché à nous rendre en Macédoine, car nous avions la certitude que [[Dieu]] lui-même nous appelait à y annoncer l’[[Note sur l'évangile|Evangile]].

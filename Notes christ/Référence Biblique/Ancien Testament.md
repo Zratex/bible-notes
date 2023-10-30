@@ -2,10 +2,10 @@ Textes bibliques principalement tourné sur l'histoire d'Israël (par extension 
 ## Composition
 - [[Genèse]]
 - Textes de loi
-	- Exode
+	- [[2 - Exode|Exode]]
 	- Lévitique
 	- [[4 - Nombres|Nombres]]
-	- Deutéronome
+	- [[5 - Deutéronome|Deutéronome]]
 - Premiers livres historiques
 	- Josué
 	- Juges
@@ -17,7 +17,7 @@ Textes bibliques principalement tourné sur l'histoire d'Israël (par extension 
 - Seconds livres historiques
 	- 1 et 2 Chroniques
 	- Esdras
-	- Néhémie
+	- [[15 - Néhémie|Néhémie]]
 	- Esther
 - Livres dit "poétiques"
 	- [[18 - Job|Job]]
@@ -28,7 +28,7 @@ Textes bibliques principalement tourné sur l'histoire d'Israël (par extension 
 - Premiers livres prophétiques
 	- [[23 - Esaïe|Esaïe]]
 	- [[24 - Jérémie|Jérémie]]
-	- Lamentations
+	- [[25 - Lamentations|Lamentations]]
 	- [[26 - Ezéchiel|Ezéchiel]]
 	- Daniel
 - Seconds livres prophétiques

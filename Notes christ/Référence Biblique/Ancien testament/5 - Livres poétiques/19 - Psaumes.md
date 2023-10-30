@@ -1,3 +1,8 @@
+## Chapitre 32
+Intitulé **Joie du pardon** par [[Bible#^358f23|BDS]]
+
+8) Tu as dit : « Je t’instruirai, ╵je t’indiquerai ╵le chemin ╵que tu devras emprunter,
+   je serai ton conseiller, ╵mes yeux veilleront sur toi.
 ## Chapitre 25
 Intitulé **Montre-moi la voie que tu veux que je suive !** par [[Bible#^358f23|BDS]]
 1) *De [[David]]*

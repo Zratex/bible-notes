@@ -13,6 +13,16 @@ Etudié dans la note [[Positionnement du cœur]] :
 21) Car là où est ton trésor, là sera aussi ton cœur.
 ## Chapitre 7
 Dernière partie de ce qui est appelé le "serment sur la montage " par [[Jésus]]
+## Chapitre 8
+### Versets 1 à 20
+Intitulé **[[Jésus]] et la tradition religieuse juive**
+#### Versets 8 et 9
+8) Ce peuple m’honore des lèvres,
+   mais, au fond de son cœur, il est bien loin de moi !
+
+9) Le culte qu’il me rend n’a aucune valeur,
+   car les enseignements qu’il donne
+   ne sont que des règles inventées par les hommes
 ## Chapitre 19
 ### Versets 16 à 30
 Intitulé **Les riches et le royaume de [[Dieu]]** par [[Bible#^358f23|BDS]]

@@ -1,3 +1,4 @@
+Ecrit par [[Jérémie]]
 ## Chapitre 9
 ### Versets 22 à 25
 Intitulé **Vraie et fausse [[Sagesse]]** par [[Bible#^358f23|BDS]]
