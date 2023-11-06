@@ -1,4 +1,6 @@
 He's him !
+
+[[Dieu]] est "tabernaclé" en Jésus
 # Appellations
 Il est nommé différemment au fur et à mesure de la [[Bible]] :
 - Jésus de Nazareth

@@ -14,6 +14,8 @@ Intitulé **De la mort à la vie** par [[Bible#^358f23|BDS]]
 10) Ce que nous sommes, nous le devons à Dieu ; car par notre union avec Jésus-Christ, Dieu nous a créés pour une vie riche d’œuvres bonnes qu’il a préparées à l’avance afin que nous les accomplissions.
 ## Chapitre 5
 ### Versets 17 à 33
-Intitulé **La vie par l'Esprit** par [[Bible#^358f23|BDS]]
+Intitulé **La vie par l'[[Saint-Esprit|Esprit]]** par [[Bible#^358f23|BDS]]
 #### Verset 20
 20) à tout moment et pour toute chose, vous remercierez [[Dieu|Dieu le Père]] au nom de notre [[Jésus|Seigneur Jésus-Christ]],
+#### Verset 27
+27) Il a ainsi voulu se présenter cette Eglise à lui-même, rayonnante de beauté, sans tache, ni ride, ni aucun défaut, mais digne de se tenir devant [[Dieu]] et irréprochable.

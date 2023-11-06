@@ -43,3 +43,9 @@ Intitulé **Jésus se dirige vers [[Jérusalem]] : L'opposition en [[Samarie]]**
 54) En voyant cela, ses disciples Jacques et [[Jean]] s’écrièrent : [[Jésus|Seigneur]], veux-tu que nous commandions à la foudre de tomber du ciel sur ces gens-là, pour les réduire en cendres ?
 55) Mais [[Jésus]], se tournant vers eux, les reprit sévèrement : "Vous ne savez pas quel esprit vous inspire de telles pensées !"
 56) "[[Jésus|Le Fils de l'homme]] n’est pas venu pour faire mourir les hommes, mais pour les sauver." Ils se rendirent alors à un autre village
+
+## Chapitre 19
+### Versets 11 à 27
+Intitulé **La parabole de l'argent à faire fructifier** par [[Bible#^358f23|BDS]]
+
+13) Il convoqua dix de ses serviteurs et leur remit, à chacun, une pièce d’or. Puis il leur recommanda : « Faites fructifier cet argent jusqu’à mon retour ! »

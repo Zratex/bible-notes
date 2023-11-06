@@ -13,3 +13,9 @@ Intitulé **La vraie générosité** par [[Bible#^358f23|BDS]]
 42) qui déposa deux petites pièces, une somme minime.
 43) Alors [[Jésus]] appela ses [[Apôtres|disciples]] et leur dit : Vraiment, je vous l’assure, cette pauvre veuve a donné bien plus que tous ceux qui ont mis de l’argent dans le tronc.
 44) Car tous les autres ont seulement donné de leur superflu, mais elle, dans sa pauvreté, elle a donné tout ce qu’elle possédait, tout ce qu’elle avait pour vivre.
+
+## Chapitre 13
+Intitulé **De la destruction de [[Jérusalem]] à la venue du [[Jésus|Fils]] de l’homme** par [[Bible#^358f23|BDS]]
+Même intitulé que [[1er Evangile - Matthieu#Chapitre 24|Matthieu 24]]
+
+26) Alors on verra le [[Jésus|Fils]] de l’homme venir sur les nuées avec beaucoup de puissance et de gloire.
