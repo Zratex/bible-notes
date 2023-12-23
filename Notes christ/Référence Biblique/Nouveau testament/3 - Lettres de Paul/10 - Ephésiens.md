@@ -13,6 +13,16 @@ Intitulé **De la mort à la vie** par [[Bible#^358f23|BDS]]
 9) ce n’est pas le fruit d’œuvres que vous auriez accomplies. Personne n’a donc de raison de se vanter.
 10) Ce que nous sommes, nous le devons à Dieu ; car par notre union avec Jésus-Christ, Dieu nous a créés pour une vie riche d’œuvres bonnes qu’il a préparées à l’avance afin que nous les accomplissions.
 ## Chapitre 5
+### Versets 6 à 16
+Intitulé **La vie dans la lumière** par [[Bible#^358f23|BDS]]
+
+14) Or ce qui paraît à la lumière est lumière. De là viennent ces paroles :
+    Réveille-toi,
+    ô toi qui dors,
+    relève-toi
+    d’entre les morts
+    et [[Jésus|Christ]] fera lever
+    sa lumière sur toi
 ### Versets 17 à 33
 Intitulé **La vie par l'[[Saint-Esprit|Esprit]]** par [[Bible#^358f23|BDS]]
 #### Verset 20

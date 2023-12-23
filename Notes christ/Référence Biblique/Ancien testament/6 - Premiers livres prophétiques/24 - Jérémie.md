@@ -14,3 +14,8 @@ Intitulé **Vraie et fausse [[Sagesse]]** par [[Bible#^358f23|BDS]]
     car ce sont là les choses qui me font plaisir, l’[[Dieu|Eternel]] le déclare.
 
 Repris dans [[7&8 - Corinthiens#Versets 18 à 31|1 Corinthiens 1:31]]
+## Chapitre 48
+Intitulé **Contre Moab** par [[Bible#^358f23|BDS]]
+
+10) Maudit celui qui fait ╵l’œuvre de l’[[Dieu|Eternel]] ╵sans y mettre son cœur !
+    Maudit soit qui refuse ╵le sang à son épée !

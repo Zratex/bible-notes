@@ -17,7 +17,7 @@ Comme le peuple n'était pas prêt dans leur mentalité, ils passèrent 40 ans d
 Réexpliqué dans ce passage : [[2 - Exode#Versets 17 à 22|Exode 13:17]]
 
 ## Nous ne sommes pas faibles
-`Psaumes 68:j'ai pas le verset exacte` Il ordonne d'être puissant, c'est un ordre !
+`Psaumes 68:28` Il ordonne d'être puissant, c'est un ordre !
 Si on ne l'exécute pas, nous n'avancerons pas dans notre vie.
 [[2 - Exode#Versets 10 à 31|Exode 14:13-14]]
 > Si l'on pense être faible, il faut passer du temps avec [[Dieu]]
