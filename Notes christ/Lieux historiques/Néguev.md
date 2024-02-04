@@ -1,1 +1,1 @@
-Région désertique localisé au Sud d'Israël, au Nord Est du désert du Sinaï en [[Egypte]]. Néguev signifiant "Sud" en hébreux
+Région désertique localisé au Sud d'[[Israël]], au Nord Est du désert du Sinaï en [[Egypte]]. Néguev signifiant "Sud" en hébreux

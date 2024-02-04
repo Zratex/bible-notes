@@ -1,4 +1,5 @@
-Textes bibliques principalement tourné sur l'histoire d'Israël (par extension des juifs) et sa relation avec [[Dieu]], avant la naissance de [[Jésus]]. Donc il précède le [[Nouveau testament]]
+Textes bibliques principalement tourné sur l'histoire d'[[Israël]] (par extension des juifs) et sa relation avec [[Dieu]], avant la naissance de [[Jésus]].
+-> Donc il précède le [[Nouveau testament]]
 ## Composition
 - [[Genèse]]
 - Textes de loi

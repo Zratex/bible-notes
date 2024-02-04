@@ -6,7 +6,7 @@ Cependant, ils ne sont pas pour autant regroupés par thématique. Et il faut du
 ## Chapitre 1
 ### Versets 1 à 7
 Intitulé **Introduction** par [[Bible#^358f23|BDS]]
-1) Proverbes de [[Salomon]], fils de [[David]], roi d’Israël.
+1) Proverbes de [[Salomon]], fils de [[David]], roi d’[[Israël]].
 2) Ils ont pour but d’enseigner aux hommes la [[Sagesse]] et de les éduquer, pour qu’ils comprennent les paroles prononcées avec intelligence,
 3) et qu’ils reçoivent une éducation réfléchie en vue d’être justes, de vivre selon le droit et dans la droiture.
 4) Ces proverbes donneront aux gens sans expérience le bon sens et aux jeunes de la connaissance et du jugement.

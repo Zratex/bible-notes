@@ -1,1 +1,1 @@
-Capitale historique d'Israël
+Capitale historique d'[[Israël]]

@@ -5,6 +5,12 @@ Intitulé **[[Jésus]] et la tradition religieuse juive**
 #### Versets 8 et 9
 8) Vous mettez de côté le commandement de [[Dieu]], pour observer la tradition des hommes !
 9) Puis il ajouta : Ah ! vous réussissez parfaitement à mettre de côté le commandement de [[Dieu]] pour établir votre propre tradition !
+
+## Chapitre 10
+### Versets 17 à 31
+Intitulé **Les riches et le royaume** par [[Bible#^358f23|BDS]]
+
+17) Comme il partait, un homme accourut, se jeta à genoux devant lui et lui demanda : Bon Maître, que dois-je faire pour obtenir la vie éternelle ?
 ## Chapitre 12
 ### Versets 41 à 44
 Intitulé **La vraie générosité** par [[Bible#^358f23|BDS]]

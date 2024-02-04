@@ -9,8 +9,8 @@ On est unique, et c'est pas parce que notre précédent lui est arrivé quelque 
 
 `Mathieu 1` : seule généalogie de la Bible où il y a des femmes. Cependant ce qui est à noter :
 - <u>Thamar :</u>fait de l'inceste avec Juda
-- <u>Rahab :</u> la prostituée ayant caché les espions israélien, a fait alliance avec l'éternel malgré qu'elle n'avait pas l'alliance d'origine du peuple d'Israël, donc ses péchés ont été pardonnés
-- <u>Ruth :</u> Moabites ne pouvait pas faire partie d'Israël parce qu'inceste et louent d'autres dieux. Ruth est restée sur le chemin de dieu contrairement à sa sœur (Ruth 1:15-16, moment de l'alliance)
+- <u>Rahab :</u> la prostituée ayant caché les espions israélien, a fait alliance avec l'éternel malgré qu'elle n'avait pas l'alliance d'origine du peuple d'[[Israël]], donc ses péchés ont été pardonnés
+- <u>Ruth :</u> Moabites ne pouvait pas faire partie d'[[Israël]] parce qu'inceste et louent d'autres dieux. Ruth est restée sur le chemin de dieu contrairement à sa sœur (Ruth 1:15-16, moment de l'alliance)
 
 > Quand on fait alliance avec Dieu, il ne fait pas attention à notre passé (le pardon)
 

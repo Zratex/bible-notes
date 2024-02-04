@@ -1,5 +1,5 @@
 ## Chapitre 8
-Intitulé **L'éducation d'Israël au désert**
+Intitulé **L'éducation d'[[Israël]] au désert**
 
 1) Vous vous appliquerez à obéir à tous les commandements que je vous donne aujourd’hui, afin que vous viviez, que vous deveniez nombreux et que vous puissiez entrer dans le pays que l’[[Dieu|Eternel]] a promis par serment à vos ancêtres et en prendre possession.
 2) N’oublie jamais tout le chemin que l’[[Dieu|Eternel]] ton [[Dieu]] t’a fait parcourir pendant ces quarante ans dans le désert afin de te faire connaître la pauvreté pour t’éprouver. Il a agi ainsi pour découvrir tes véritables dispositions intérieures et savoir si tu allais, ou non, obéir à ses commandements.

@@ -2,7 +2,7 @@
 ### Versets 17 à 22
 Intitulé **Les conditions du départ** par [[Bible#^358f23|BDS]]
 
-17) Quand le pharaon eut laissé partir le peuple d’Israël, [[Dieu]] ne les conduisit pas par la route du pays des [[Philistins]], bien qu’elle fût la plus directe, car il s’était dit : « S’ils devaient affronter des combats, ils pourraient regretter leur départ et retourner en [[Egypte]]. »
+17) Quand le pharaon eut laissé partir le peuple d’[[Israël]], [[Dieu]] ne les conduisit pas par la route du pays des [[Philistins]], bien qu’elle fût la plus directe, car il s’était dit : « S’ils devaient affronter des combats, ils pourraient regretter leur départ et retourner en [[Egypte]]. »
 
 ## Chapitre 14
 ### Versets 10 à 31

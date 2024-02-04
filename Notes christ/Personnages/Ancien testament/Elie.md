@@ -1,0 +1,1 @@
+De la tribu de [[Gad]], il est surtout développé dans cette note : [[Un homme de même nature que nous]]

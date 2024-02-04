@@ -11,6 +11,6 @@ Jésus savais que la pensé de Pierre concernait tout le monde, et élargie sa c
 ->Il veut que l'on renonce à nos propres intérêts pour suivre Jésus <=> persévérer
 
 Dieu ne peut accorder un mode de vie qu'il ne veut pas.
-->Israël se fut malmené pas parce qu'ils étaient plus faible, mais parce qu'ils n'ont pas voulu suivre le mode de vie de Dieu.
+->[[Israël]] se fut malmené pas parce qu'ils étaient plus faible, mais parce qu'ils n'ont pas voulu suivre le mode de vie de Dieu.
 
 Un chrétien pour Dieu est 

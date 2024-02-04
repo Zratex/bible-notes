@@ -50,7 +50,7 @@ Intitulé **Montre-moi la voie que tu veux que je suive !** par [[Bible#^358f23|
     je cherche en toi ╵un sûr refuge.
 21) Que l’innocence et la droiture ╵me sauvegardent
     car je compte sur toi.
-22) O [[Dieu]], sauve Israël
+22) O [[Dieu]], sauve [[Israël]]
     de toutes ses détresses !
 ## Chapitre 37
 Intitulé **Le témoignage de l'expérience** par [[Bible#^358f23|BDS]]

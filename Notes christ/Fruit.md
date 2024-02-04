@@ -19,7 +19,7 @@ Suite au poisson :
 [[32 - Jonas#Versets 1 à 4|Jonas 3:1-4]] puis [[32 - Jonas#Verset 10|Jonas 3:10]]
 -> [[Dieu]] ne détruisit point parce qu'ils se sont repentis après l'avertissement de [[Dieu]].
 
-Cela déplu Jonas : [[32 - Jonas#Versets 1 à 3|Jonas 4:1-3]]-> il est en colère parce qu'il pense que les "élus" de Dieu (Israël) devrait tout remporter ; mais [[Dieu]] n'est pas comme ça : il n'est pas présent pour une cause précise ^e559dc
+Cela déplu Jonas : [[32 - Jonas#Versets 1 à 3|Jonas 4:1-3]]-> il est en colère parce qu'il pense que les "élus" de Dieu ([[Israël]]) devrait tout remporter ; mais [[Dieu]] n'est pas comme ça : il n'est pas présent pour une cause précise ^e559dc
 
 [[32 - Jonas#Verset 8 à 11|Jonas 4:8]] dès que [[Dieu]] enlève une possession, il arrive qu'on soit en colère. Réponse de [[Dieu]] :
 > [[32 - Jonas#Verset 8 à 11|Jonas 4:10-11]]

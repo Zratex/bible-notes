@@ -1,5 +1,18 @@
 Le livre de Pierre est séparé en 2 lettres différentes. Rédigé par [[Simon Pierre]].
 # 1 Pierre
+## Chapitre 1
+### Versets 7 à 11
+Intitulé **La vie communautaire : Au service les uns des autres** par [[Bible#^358f23|BDS]]
+
+7) La fin de toutes choses est proche. Menez donc une vie équilibrée en faisant preuve de modération, afin d’être disponibles pour la prière.
+8) Avant tout, aimez-vous ardemment les uns les autres, car l’amour garde le silence sur un grand nombre de péchés.
+9) Exercez l’hospitalité les uns envers les autres, sans vous plaindre.
+10) Chacun de vous a reçu de [[Dieu]] un don de la grâce particulier : qu’il l’exerce au service des autres comme un bon gérant de la grâce infiniment variée de [[Dieu]].
+11) Que celui qui parle transmette les paroles de [[Dieu]]. Que celui qui sert accomplisse sa tâche avec la force que [[Dieu]] donne. Agissez en toutes ces choses de manière à ce que la gloire en revienne à [[Dieu]] par [[Jésus|Jésus-Christ]], à qui appartiennent la gloire et la puissance pour l’éternité. Amen !
+### Versets 12 à 17
+Intitulé **La vie communautaire : Les souffrance inévitables** par [[Bible#^358f23|BDS]]
+
+12) Mes chers amis, ne soyez pas surpris d’avoir été plongés dans la fournaise de l’épreuve, comme s’il vous arrivait quelque chose d’anormal.
 ## Chapitre 2
 ### Versets 1 et 2
 Intitulé **Salutation** par [[Bible#^358f23|BDS]]

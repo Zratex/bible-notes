@@ -36,7 +36,7 @@ S'endormir implique de vivre tranquille, et vivre tranquille laisse de la place 
 ## Manquer l'appel
 `Juges 5:15-16` se rappeler d'où [[Dieu]] nous a cherché. Exemple d'où viens [[Ruben]] : `Génèse 49:4` `Deuthéronome 33:6`
 
-`Juges 5:17` la tribu de [[Dan]] qui ne pars pas au combat pour Israël, pour le business
+`Juges 5:17` la tribu de [[Dan]] qui ne pars pas au combat pour [[Israël]], pour le business
 > Il représente le chrétien qui répond à l'appel lors de prédications, seulement en apparence
 
 `Juges 5:18` à part ces 2 tribus, les autres ont cherchés des excuses.

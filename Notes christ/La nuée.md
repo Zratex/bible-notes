@@ -12,7 +12,7 @@
 -> Le peuple de [[Dieu]] ne se posait pas la question, ce qui ne les faisaient pas avancer.
 
 [[5 - Deutéronome#Chapitre 8|Deutéronome 8:1-4]]
-Cela prenait quelques jours à pied de passer d'[[Egypte]] à l'actuel Israël. Sur le chemin se trouvait les ennemis ([[Philistins]]), mais le peuple ne voulait pas les affronter.
+Cela prenait quelques jours à pied de passer d'[[Egypte]] à l'actuel [[Israël]]. Sur le chemin se trouvait les ennemis ([[Philistins]]), mais le peuple ne voulait pas les affronter.
 Comme le peuple n'était pas prêt dans leur mentalité, ils passèrent 40 ans dans le désert au lieu de quelques jours.
 Réexpliqué dans ce passage : [[2 - Exode#Versets 17 à 22|Exode 13:17]]
 
