@@ -1,1 +1,1 @@
-Mère de [[Jésus]]
+Mère de [[Jésus]], femme de [[Joseph de Nazareth|Joseph]]

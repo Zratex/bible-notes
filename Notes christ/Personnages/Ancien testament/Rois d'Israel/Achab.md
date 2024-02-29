@@ -1,0 +1,1 @@
+7eme roi d'[[Israël]], il est connu pour avoir apporté le **culte de Baal** principalement au travers de sa femme [[Jézabel]]

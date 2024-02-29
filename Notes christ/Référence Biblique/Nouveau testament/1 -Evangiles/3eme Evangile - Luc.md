@@ -36,6 +36,14 @@ Intitulé **[[Jésus]], le Serviteur choisi par [[Dieu]]** par [[Bible#^358f23|B
     *aux aveugles le recouvrement de la vue,*
     *pour apporter la liberté aux opprimés*
 19) *et proclamer une année de faveur accordée par le [[Dieu|Seigneur]].*
+20) Il roula le livre, le rendit au servant et s’assit. Dans la synagogue, tous les yeux étaient braqués sur lui.
+21) – Aujourd’hui même, commença-t-il, pour vous qui l’entendez, cette prophétie de l’Ecriture est devenue réalité.
+22) Aucun de ses auditeurs ne restait indifférent : les paroles de grâce qu’il prononçait les étonnaient beaucoup. Aussi disaient-ils : N’est-il pas le fils de [[Joseph de Nazareth|Joseph]] ?
+23) Alors il leur dit : Vous ne manquerez pas de m’appliquer ce dicton : « Médecin, guéris-toi toi-même » et vous me direz : « On nous a parlé de ce que tu as accompli à Capernaüm. Fais-en donc autant ici, dans ta propre ville ! »
+24) Et il ajouta : Vraiment, je vous l’assure : aucun prophète n’est bien accueilli dans sa patrie.
+25) Voici la vérité, je vous le déclare : il y avait beaucoup de veuves en [[Israël]] à l’époque d’[[Elie]], quand, pendant trois ans et demi, il n’y a pas eu de pluie et qu’une grande famine a sévi dans tout le pays.
+26) Or, [[Elie]] n’a été envoyé vers aucune d’entre elles, *mais vers une veuve qui vivait à [[Sarepta]], dans le pays de [[Sidon]]*.
+    > Référence : [[11&12 - Rois#Versets 8 à 16|1 Rois 17:9]]
 ## Chapitre 9
 ### Versets 51 à 56
 Intitulé **Jésus se dirige vers [[Jérusalem]] : L'opposition en [[Samarie]]** par [[Bible#^358f23]|BDS]]

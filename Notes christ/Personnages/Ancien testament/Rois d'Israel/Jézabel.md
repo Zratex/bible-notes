@@ -1,0 +1,1 @@
+Femme de [[Achab]], donc reine d'[[Israël]] durant son règne. Elle a apporté le **culte de Baal** depuis la [[Phénécie]]

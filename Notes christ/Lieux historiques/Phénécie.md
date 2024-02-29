@@ -1,0 +1,1 @@
+La Phénicie correspond à l'actuel **Liban**, donc au Nord d'[[Israël]].

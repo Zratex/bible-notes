@@ -41,3 +41,32 @@ Intitulé **La [[Sagesse]] vient d'en haut** par [[Bible#^358f23|BDS]]
 16) Car là où règnent la jalousie et l’esprit de rivalité, là aussi habitent le désordre et toutes sortes de pratiques indignes.
 17) Au contraire, la [[Sagesse]] qui vient d’en haut est en premier lieu pure ; de plus, elle aime la paix, elle est modérée et conciliante, pleine de compassion ; elle produit beaucoup de bons [[Fruit|fruits]], elle est sans parti pris et sans hypocrisie.
 18) Ceux qui travaillent à la paix sèment dans la paix une semence qui produira un [[Fruit]] conforme à ce qui est juste.
+
+## Chapitre 5
+### Versets 7 à 11
+Intitulé **Le courage dans l'épreuve** par [[Bible#^358f23|BDS]]
+
+7) Frères et sœurs, patientez donc jusqu’à ce que le [[Jésus|Seigneur]] vienne. Pensez au cultivateur : il attend les précieuses récoltes de sa terre. Il prend patience à leur égard, jusqu’à ce que tombent les pluies de l’automne et du printemps.
+8) Vous aussi, prenez patience, soyez pleins de courage, car la venue du [[Jésus|Seigneur]] est proche.
+9) Ne vous répandez pas en plaintes les uns contre les autres, frères et sœurs, si vous ne voulez pas être condamnés. Voici que le Juge se tient déjà devant la porte.
+10) Frères et sœurs, prenez comme modèles de patience persévérante dans la souffrance les prophètes qui ont parlé de la part du Seigneur.
+11) Oui, nous disons bienheureux ceux qui ont tenu bon. Vous avez entendu comment [[Job]] a supporté la souffrance. Vous savez ce que le [[Dieu|Seigneur]] a finalement fait en sa faveur, parce que le [[Dieu|Seigneur]] est plein de bonté et de compassion.
+### Verset 12
+Intitulé **Une parole vrai** par [[Bible#^358f23|BDS]]
+
+12) Avant tout, frères et sœurs, ne faites pas de serment, ni par le ciel, ni par la terre, ni par n’importe quoi d’autre. Que votre oui soit un vrai oui et votre non un vrai non, afin que vous ne tombiez pas sous le coup de la condamnation.
+### Versets 13 à 18
+Intitulé **La prière solidaire** par [[Bible#^358f23|BDS]]
+
+13) L’un de vous passe-t-il par la souffrance ? Qu’il prie. Un autre est-il dans la joie ? Qu’il chante des cantiques.
+14) L’un de vous est-il malade ? Qu’il appelle les responsables de l’Eglise, qui prieront pour lui, après lui avoir fait une onction d’huile au nom du Seigneur.
+15) La prière faite avec foi obtiendra la guérison du malade et le [[Dieu|Seigneur]] le relèvera. S’il a commis quelque péché, il lui sera pardonné.
+16) Confessez vos péchés les uns aux autres et priez les uns pour les autres, afin que vous soyez guéris. Quand un juste prie, sa prière a une grande efficacité.
+17) [[Elie]] était un homme tout à fait semblable à nous. Il pria avec insistance pour qu’il ne pleuve pas et, pendant trois ans et demi, il ne tomba pas de pluie sur le sol.
+18) Puis il pria de nouveau et le ciel redonna la pluie, et la terre produisit ses récoltes.
+
+### Versets 19 et 20
+Intitulé **le retour de l'égaré** par [[Bible#^358f23|BDS]]
+
+19) Mes frères et sœurs, si quelqu’un parmi vous s’égare loin de la vérité, et qu’un autre l’y ramène,
+20) sachez que celui qui ramène un pécheur de la voie où il s’égarait le sauvera de la mort et permettra le pardon d’un grand nombre de péchés.
