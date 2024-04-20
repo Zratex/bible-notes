@@ -1,0 +1,1 @@
+Quelqu'un qui a la charge d'observer des signes afin d'en tirer des présages. C'est un poste assez commun dans les religions [[Polythéiste|polythéistes]]. 

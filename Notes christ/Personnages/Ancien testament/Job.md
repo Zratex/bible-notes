@@ -1,0 +1,1 @@
+Décrit comme l'homme le plus intègre qu'ait connue la Terre 

@@ -1,0 +1,1 @@
+Second fils d'[[Abraham]] et fils de [[Rebecca]]. Il eut comme fils [[Jacob]]

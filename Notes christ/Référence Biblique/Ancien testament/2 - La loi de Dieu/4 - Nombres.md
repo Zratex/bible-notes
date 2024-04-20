@@ -25,3 +25,38 @@ Intitulé **Le Serpent de Bronze** par [[Bible#^358f23|BDS]]
 9) [[Moïse]] façonna un serpent de bronze et le fixa au haut d’une perche. Dès lors, si quelqu’un était mordu par un serpent, et qu’il levait les yeux vers le serpent de bronze, il avait la vie sauve.
 
 Analyse du passage ici : [[La puissance de la croix#Meurtrissures|Puissance de la croix]]
+## Chapitre 23
+### Versets 13 à 26
+Intitulé **Balaam bénit [[Israël]] une deuxième fois** par [[Bible#^358f23|BDS]]
+
+13) [[Balaq]] reprit : Viens donc avec moi à un autre endroit d’où tu pourras voir ce peuple, tu n’en apercevras qu’une partie et tu ne pourras pas le voir tout entier. Et maudis-le pour moi de cet endroit.
+14) Et [[Balaq]] le conduisit au champ des Guetteurs au sommet du [[Mont Nebo|Pisga]]. Là aussi, il construisit sept autels et offrit un taureau et un bélier sur chacun d’eux.
+15) [[Balaam]] dit à [[Balaq]] : Tiens-toi debout près de ton holocauste, tandis que j’irai là-bas à sa rencontre.
+16) [[Dieu|L’Eternel]] se manifesta à [[Balaam]] et lui mit des paroles dans la bouche, puis il ajouta : Retourne auprès de [[Balaq]] et tu lui parleras comme je viens de te le dire.
+17) [[Balaam]] revint vers [[Balaq]] et le trouva toujours debout près de son holocauste, les princes de [[Moab]] à ses côtés.
+    – Qu’a dit l’[[Dieu|Eternel]] ? lui demanda [[Balaq]].
+18) Alors [[Balaam]] prononça son oracle :
+    Allons, [[Balaq]], écoute !
+    Fils de Tsippor, ╵prête-moi attention,
+19) [[Dieu]] n’est pas homme pour mentir,
+    ni humain pour se repentir.
+    A-t-il jamais parlé ╵sans qu’il tienne parole ?
+    Et n’accomplit-il pas ╵ce qu’il a déclaré ?
+20) Oui, j’ai reçu la charge ╵de prononcer ╵une bénédiction.
+    Il a béni : ╵je n’y changerai rien.
+21) Il n’a pas constaté ╵de péché chez [[Jacob]],
+    et il ne trouve pas ╵de mal en [[Israël]].
+    Oui, l’[[Dieu|Eternel]] son [[Dieu]] ╵est avec lui.
+    Dans ses rangs retentit ╵l’acclamation royale.
+22) [[Dieu]] les a fait sortir d’[[Egypte]] :
+    sa puissance est semblable ╵à la force du buffle,
+23) et la divination ╵est absente en [[Jacob]] :
+    on ne consulte pas ╵d’augure en [[Israël]],
+    il est dit à [[Jacob]] ╵au moment opportun,
+    oui, il est dit à [[Israël]] ╵ce que [[Dieu]] accomplit.
+24) Voici, comme un lion, ╵un peuple qui se lève,
+    il bondit comme un lion,
+    il ne se couche pas ╵sans avoir dévoré sa proie,
+    sans avoir bu le sang ╵de ses victimes.
+25) [[Balaq]] dit à [[Balaam]] : Si tu ne peux pas le maudire, au moins ne le bénis pas !
+26) Mais [[Balaam]] répondit à [[Balaq]] : Ne t’ai-je pas prévenu que je ferai tout ce que l’[[Dieu|Eternel]] m’ordonnera ?

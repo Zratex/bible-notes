@@ -1,0 +1,1 @@
+Femme d'[[Abraham]], elle eut comme fils [[Isaac]]

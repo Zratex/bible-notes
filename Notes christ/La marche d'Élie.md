@@ -42,5 +42,58 @@ Il faut remettre les projets a [[Dieu]] afin qu'il fasse le tri de ce qui est bo
 
 [[11&12 - Rois#Versets 17 à 24|1 Rois 17:17-24]] elle reconnaissait que c'était le [[Dieu]] d'[[Elie]], mais par son action elle reconnait que la [[Bible|Parole de Dieu]] est la parole de vérité.
 > [[Elie]] a persévéré dans la prière même si c'était promis par [[Dieu]]
+## Partie 3
+On est de la même nature que [[Elie]] mais on n'est pas comme lui, a moins que l'on suive tout le temps [[Jésus]]
 
--> Suite les prochaines semaines
+> Quand on met du temps à part pour [[Dieu]], ce n'est jamais du temps perdu
+
+Il est allé à [[Sarepta]] pour le miracle expliquée dans la [[La marche d'Élie#Partie 2|Partie 2]]
+>[[Dieu]] est grand mais il se déplacera toujours pour prendre soin individuellement a chacun
+
+`1 Rois 18:1-2` il va au Mont Carmel (orthographe à revérifier)
+-> la famine et la sécheresse n'était pas dû à [[Jézabel]] et son mari mais surtout pour préparer le cœur d'[[Israël]] à la parole de [[Dieu]]
+
+`1 Rois 18:16-40` il dicte tout depuis le départ, et comme c'est la parole de [[Dieu]] tout s'est déroulé comme il l'a dit, et [[Satan]] ne peut rien contre ça.
+C'est parce que [[Elie]] suis la volonté de [[Dieu]] qu'il voit ses miracles.
+
+`1 Rois 18:21` il demande au peuple ce que l'on attend. Nous sommes comme des crayons de couleur dans l'église pour faire son dessin, mais si on n'est pas là il manque des couleurs dans ce dessin.
+> Nous sommes rafraîchit par le [[Saint-Esprit]], mais quand est ce que l'on rafraîchit les autres ?Celui qui n'aurait pas honte de Jésus sur Terre, Jésus n'aura pas honte de lui au ciel.
+
+`Deutheronome 30:19` nous avons la vie si l'on réalise ce que [[Dieu]] nous dit de faire -> ce qui implique une vie de disciple, autrement ça n'a pas d'intérêt de rester chrétien.
+On est pas censé avoir peur car [[Jésus]] nous a donné l'autorité sur [[Satan]]
+
+Si on ne passe plus le temps avec [[Dieu]], on se retrouve lentement à retourner dans le monde, ce qui mène à des situations tel qu'[[Israël]] qui vénère Baal.
+
+Le sacrifice qui est parlé de passage 1 Rois fait référence au sacrifice de [[Jésus]]
+## Partie 4
+[[Dieu]] est victorieux sur toutes choses, car en plus d'avoir consumer le sacrifice d'[[Elie]], il a consumé l'autel des autres.
+
+`1 Roi 18:40` il obéit directement à la loi donné par [[Moïse]] : c'est une image de massacre est pour illustrer qu'il a éradiqué le péché d'[[Israël]]
+-> ils appellerons le bien mal et le mal bien (citation venant de l'Apocalypse)
+
+[[Dieu]] une fois qu'on est passé du bon côté veux qu'on travaille sur notre sanctification. Car c'est en faisant ça que l'on fait briller le salut.
+
+`Colossiens 2:14-15`
+> Est ce que je combat et éradique réellement ce péché ?
+
+### Travailler à être victorieux
+`1 Rois 18:41-46` après la sanctification la bénédiction est revenue.
+-> Les choses se font mais pas tout seul
+
+[[Achab]] exécute les ordres d'[[Elie]] sans même s'intéresser à ces annonces alors que pour autant c'est lui qui a mis en place toutes ces choses. Alors qu'il devrait suivre [[Elie]] dans la prière.
+-> Il ne se rendait pas compte que la bénédiction était à côté
+
+> [[Elie]] est la démonstration de `Hebreux 11:1`
+
+Dès qu'il se passait quelque chose, [[Elie]] ne prenait pas de gloire mais allait directement prier auprès de [[Dieu]].
+> Il y a des conditions avec les promesses. Il faut obéir pour les obtenir
+
+Ce qui est important c'est d'être ==en communication avec [[Dieu]] ==.
+
+[[Elie]] est arrivé avant [[Achab]]. Même si on peut penser que ce n'est pas possible, il faut savoir que [[Dieu]] ne ment pas dans sa [[Bible|parole]]. Soit :
+- c'est une image
+- ça c'est passé d'une manière qu'on n'a pas imaginé
+- ça s'est simplement passé comme c'est écrit
+- -> mais dans tout les cas ça ne peut pas être faux
+
+`Ephesiens 6:13-14` 

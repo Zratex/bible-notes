@@ -1,0 +1,2 @@
+**Balak** fils de Tsippor (ou *Balaq*, son nom complet est *Balaq ben Tzippor* ) était un roi [[Moab|moabite]] ennemi d'[[Israël]].
+Il fit appel à [[Balaam]] pour maudire [[Israël]] ([[4 - Nombres#Chapitre 23|Nombres 23]])

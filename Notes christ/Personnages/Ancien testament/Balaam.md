@@ -1,0 +1,1 @@
+Décrit comme un devin, il est appelé par [[Balaq]] dans [[4 - Nombres#Chapitre 23|Nombres 23]]
