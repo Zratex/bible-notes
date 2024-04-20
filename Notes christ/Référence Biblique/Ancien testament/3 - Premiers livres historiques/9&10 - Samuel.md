@@ -25,12 +25,12 @@ Intitulé **L’obéissance vaut mieux que les sacrifices** par [[Bible#^358f23|
 29) Sois-en certain : Celui qui est la gloire d’[[Israël]] ne ment pas et ne se rétractera pas, car il n’est pas comme un être humain pour se rétracter.
 30) [[Saül]] répéta : J’ai péché ! Toutefois, en ce moment, je t’en supplie, continue à m’honorer devant les responsables de mon peuple et devant [[Israël]]. Reviens avec moi et je me prosternerai devant l’[[Dieu|Eternel]] ton [[Dieu]] !
 31) A la fin, [[Samuel]] l’accompagna et [[Saül]] se prosterna devant l’[[Dieu|Eternel]].
-32) [[Samuel]] ordonna : Amenez-moi Agag, roi d’[[Amalec]] !
+32) [[Samuel]] ordonna : Amenez-moi [[Agag]], roi d’[[Amalec]] !
     Celui-ci arriva d’un air content, car il se disait : « Certainement l’amertume de la mort s’est éloignée. »
-33) Mais Samuel lui déclara : Ton épée a privé bien des femmes de leurs enfants, à présent c’est ta mère qui sera privée de son fils !
-    Et Samuel exécuta Agag devant l’Eternel à Guilgal.
-34) Puis il retourna à Rama, et Saül rentra chez lui à Guibéa de Saül.
-35) Samuel n’alla plus voir Saül jusqu’au jour de sa mort ; mais il était dans l’affliction à son sujet parce que l’Eternel avait décidé d’annuler ce qu’il avait fait en l’établissant roi sur Israël.
+33) Mais [[Samuel]] lui déclara : Ton épée a privé bien des femmes de leurs enfants, à présent c’est ta mère qui sera privée de son fils !
+    Et [[Samuel]] exécuta [[Agag]] devant l’[[Dieu|Eternel]] à [[Guilgal]].
+34) Puis il retourna à Rama, et [[Saül]] rentra chez lui à [[Guibéa|Guibéa de Saül]].
+35) [[Samuel]] n’alla plus voir [[Saül]] jusqu’au jour de sa mort ; mais il était dans l’affliction à son sujet parce que l’[[Dieu|Eternel]] avait décidé d’annuler ce qu’il avait fait en l’établissant roi sur [[Israël]].
 ## Chapitre 16
 ### Versets 1 à 13
 Intitulé **L'[[Dieu|Eternel]] fait oindre un nouveau roi et lui donne son [[Saint-Esprit|Esprit]]** par [[Bible#^358f23|BDS]]

@@ -1,0 +1,1 @@
+Frère de [[Simon Pierre|Pierre]], il a d'abord été disciple de [[Jean Baptiste]] avant de suivre [[Jésus]]. C'est donc un [[Apôtres|apôtre]].

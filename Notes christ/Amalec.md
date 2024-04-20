@@ -1,4 +1,4 @@
-Amalec (ou **Amalek**) est un peuple nomade.
+Amalec (ou **Amalek**) est un peuple nomade. A l'époque de [[Saül]], il fut mené par [[Agag]]
 ## Localisation
 Comme c'est un peuple nomade, il a eut différentes localisations :
 1. Epoque de [[Moïse]]

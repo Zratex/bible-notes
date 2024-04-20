@@ -1,0 +1,1 @@
+Roi d'[[Amalec]], il fut exécuté par [[Samuel]] dans [[9&10 - Samuel#Chapitre 15|1 Samuel 15]]

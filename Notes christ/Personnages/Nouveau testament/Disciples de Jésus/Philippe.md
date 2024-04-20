@@ -1,1 +1,1 @@
-L'un des disciples de [[Jésus]]
+L'un des disciples de [[Jésus]], il était donc [[Apôtres|apôtre]]. Tout comme [[André]], il a d'abord suivi [[Jean Baptiste]] avant de suivre [[Jésus]]

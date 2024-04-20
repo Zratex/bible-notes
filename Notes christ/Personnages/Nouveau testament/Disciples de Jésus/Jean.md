@@ -1,1 +1,2 @@
-Frère de [[Jacques]], il fut l'un des disciples de [[Jésus]]
+Fils de [[Zébédée]], frère de [[Jacques]], il fut l'un des disciples de [[Jésus]]. C'est donc un [[Apôtres|apôtre]]
+> Lui et son frère sont nommés par [[Jésus]] **"Boanergès"** (`Marc 3:17`), ce qui signifie "fils du tonnerre"
