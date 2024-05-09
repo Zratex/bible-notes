@@ -97,3 +97,31 @@ Ce qui est important c'est d'être ==en communication avec [[Dieu]] ==.
 - -> mais dans tout les cas ça ne peut pas être faux
 
 `Ephesiens 6:13-14` 
+## Partie 5
+`Jacques 5:17` -> pour rappel, il est de la même nature que nous
+
+`1 Rois 19:1-18`  si l'on marche avec [[Dieu]] il faut s'attendre à des épreuves.
+-> la première réaction d'[[Achab]] après avoir vu tout les miracles de l'[[Dieu|Eternel]] vînt pleurer auprès de [[Jézabel]] : il est capricieux
+"Que les dieux" -> elle a choisie et acceptée d'être contre [[Dieu]]
+
+> La parole de [[Jézabel]] a détruit le morale d'[[Elie]] -> même nature que nous
+
+Sa chaire a pris la décision de s'arrêter dans l'œuvre de [[Dieu]] (sans forcément détester [[Dieu]]).
+> Ce que [[Dieu]] appelle à faire, ce n'est pas aux autres de le faire mais à nous
+
+-> il ==ne faut pas regarder aux résultats==, mais au ciel
+
+Fuir l'ennemi est une position de vainqueur, mais fuir par peur de l'ennemi est Impossible sans l'intervention de [[Dieu]].
+> Ces situations mènent à la **dépression**
+
+La solution est de [[Positionnement du cœur|positionner le cœur]] dans l'adoration auprès de [[Dieu]].
+`1 Corinthiens 10:13`
+-> la solution apporté par [[Dieu]] : `1 Rois 19:5`
+Mais [[Elie]] ne veut malgré tout pas se relever.
+> Quand on sent que ce genre de choses arrivent, il faut commencer à prier pour ça. Autrement [[Dieu]] retire l'onction
+
+[[Dieu]] ensuite nous demande des choses alors que tout va mal. -> dans ce genre de cas, ==il nous met à l'épreuve== pour voir le [[Positionnement du cœur]]
+Ici [[Dieu]] veux que [[Elie]] aille à la montagne de Dieu (montagne du Sanaï `Exode 33:22`)
+> Dans ce genre de situation, il faut monter à la présence de [[Dieu]] pour qu'il nous renouvelle. C'est dans ce genre de situations qu'on a une discussion sérieuse avec lui. Même [[Jésus]] le faisait
+
+[[Dieu]] a utilisé un moyen "violent" pour qu'[[Elie]] soit bien calé sur le bon chemin. Il demande à ce qu'il se relève pour continuer à travailler.

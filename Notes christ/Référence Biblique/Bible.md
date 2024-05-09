@@ -1,4 +1,5 @@
-Parole de [[Dieu]], donc texte sacré des chrétiens, séparé en 2 parties :
+Parole de [[Dieu]], elle est donc vérité (plus de détails sur la note [[Immuabilité de la parole]]).
+Elle est séparée en 2 parties :
 - [[Ancien Testament]]
 - [[Nouveau testament]]
 

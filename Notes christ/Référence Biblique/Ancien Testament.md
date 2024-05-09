@@ -1,13 +1,15 @@
 Textes bibliques principalement tourné sur l'histoire d'[[Israël]] (par extension des juifs) et sa relation avec [[Dieu]], avant la naissance de [[Jésus]].
 -> Donc il précède le [[Nouveau testament]]
+
+A comme appellation "la loi et les prophéties" dans le [[Nouveau testament]]
 ## Composition
 - [[Genèse]]
-- Textes de loi
+- Textes de [[La Loi de Dieu|la Loi]] :
 	- [[2 - Exode|Exode]]
-	- Lévitique
+	- [[3 - Lévitique|Lévitique]]
 	- [[4 - Nombres|Nombres]]
 	- [[5 - Deutéronome|Deutéronome]]
-- Premiers livres historiques
+- Premiers livres historiques :
 	- Josué
 	- Juges
 	- Ruth
@@ -15,24 +17,24 @@ Textes bibliques principalement tourné sur l'histoire d'[[Israël]] (par extens
 	- [[9&10 - Samuel#2 Samuel|2 Samuel]]
 	- [[11&12 - Rois#1 Rois|1 Rois]]
 	- [[11&12 - Rois#2 Rois|2 Rois]]
-- Seconds livres historiques
+- Seconds livres historiques :
 	- 1 et 2 Chroniques
 	- Esdras
 	- [[15 - Néhémie|Néhémie]]
 	- Esther
-- Livres dit "poétiques"
+- Livres dit "poétiques" :
 	- [[18 - Job|Job]]
 	- [[19 - Psaumes|Psaumes]]
 	- [[20 - Proverbes|Proverbes]]
 	- Ecclésiaste
 	- Cantique des cantiques
-- Premiers livres prophétiques
+- Premiers livres prophétiques :
 	- [[23 - Esaïe|Esaïe]]
 	- [[24 - Jérémie|Jérémie]]
 	- [[25 - Lamentations|Lamentations]]
 	- [[26 - Ezéchiel|Ezéchiel]]
 	- Daniel
-- Seconds livres prophétiques
+- Seconds livres prophétiques :
 	- Osée
 	- Joël
 	- Amos

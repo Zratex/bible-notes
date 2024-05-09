@@ -1,6 +1,7 @@
 He's him !
 
-[[Dieu]] est "tabernaclé" en Jésus
+Il représente la [[Immuabilité de la parole#Relation entre Jésus et la Bible parole|parole]] de [[Dieu]].
+[[Dieu]] est "tabernaclé" en Jésus.
 # Appellations
 Il est nommé différemment au fur et à mesure de la [[Bible]] :
 - Jésus de Nazareth
