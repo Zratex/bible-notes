@@ -9,7 +9,7 @@ La tradition des humains annule la volonté de [[Dieu]].
 > Tout bon arbre porte du bon fruit, et tout mauvais arbre porte du mauvais fruit
 
 L'important n'est pas être chrétien dans le terme religieux, mais de suivre [[Jésus]]. Sinon, ça n'a aucun intérêt, n'importe quel branche du christianisme incluse
--> C'était le cas pour les premiers chrétiens : le [[Nouveau testament]] n'existait pas encore lors du début de l'église (cf [[Actes#Parole de Dieu|Parole de Dieu dans Actes]])
+-> C'était le cas pour les premiers chrétiens : le [[Nouveau testament]] n'existait pas encore lors du début de l'[[Eglise]] (cf [[Actes#Parole de Dieu|Parole de Dieu dans Actes]])
 
 ## De Quel esprit suis je animé?
 [[32 - Jonas#Chapitre 1|Jonas 1:1-3]] : quand on Fuit la volonté de [[Dieu]], on Fuit aussi sa face.

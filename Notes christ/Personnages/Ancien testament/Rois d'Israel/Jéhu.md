@@ -1,0 +1,1 @@
+Fils de Nimshi, décrit dans [[11&12 - Rois#Versets 9 à 18|1 Rois 19:16]], il est le roi d'[[Israël]] qui a été mis en place un peu avant la mort d'[[Elie]]

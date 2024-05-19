@@ -1,0 +1,2 @@
+C'est un lieu à l'est du [[Jourdain]] où [[Jean Baptiste]] baptisait. C'est notamment ici qu'il a rencontré [[Jésus]] ( [[4eme Evangile - Jean#Versets 19 à 28|Jean 1:8]] )
+![[Béthanie-au-delà-du-Jourdain.PNG]]

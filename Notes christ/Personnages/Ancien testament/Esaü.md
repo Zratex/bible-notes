@@ -1,0 +1,1 @@
+Fils de [[Isaac]] et [[Rebecca]], frère de [[Jacob]]

@@ -1,3 +1,4 @@
+Livre rédigé par [[Esaïe]]
 ## Chapitre 29
 ### Versets 13 et 14
 Intitulé **De surprise en surprise** par la version [[Bible#^358f23|BDS]]

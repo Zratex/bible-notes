@@ -1,0 +1,1 @@
+Fils de Shaphath, d’Abel-Mehola, oint dans [[11&12 - Rois#Versets 9 à 18|1 Rois 19:16]] par [[Elie]], il est dans [[11&12 - Rois#2 Rois|2 Rois]] le prophète succédant [[Elie]]

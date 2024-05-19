@@ -1,0 +1,1 @@
+De la tribu de [[Gad]], prophète qui est surtout développé dans cette note : [[La marche d'Élie]]

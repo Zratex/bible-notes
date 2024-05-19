@@ -1,4 +1,4 @@
-2 lettres écrites par [[Paul]] envers l'église de Corinthe.
+2 lettres écrites par [[Paul]] envers l'[[Eglise]] de [[Corinthe]].
 # 1 Corinthiens
 ## Chapitre 1
 ### Versets 18 à 31
@@ -27,6 +27,24 @@ Référence à [[23 - Esaïe#Versets 13 et 14|Esaïe 29:13-14]]
     *qu’il place sa fierté dans le [[Dieu|Seigneur]]*
 
 Référence à [[24 - Jérémie#Versets 22 à 25|Jérémie 9:22-23]]
+
+## Chapitre 10
+### Versets 1 à 13
+Intitulé **L'exemple des révoltes d'[[Israël]]** par [[Bible#^358f23|BDS]]
+
+1) Car il ne faut pas que vous ignoriez ceci, frères et sœurs : après leur sortie d’[[Egypte]], nos [[Israël|ancêtres]] ont tous marché sous la conduite de la [[Saint-Esprit|nuée]], ils ont tous traversé la mer,
+2) ils ont donc tous, en quelque sorte, été baptisés « pour [[Moïse]]  » dans la [[Saint-Esprit|nuée]] et dans la mer.
+3) Ils ont tous mangé une même nourriture spirituelle.
+4) Ils ont tous bu la même boisson spirituelle, car ils buvaient de l’eau jaillie d’un rocher spirituel qui les accompagnait ; et ce rocher n’était autre que [[Jésus|Christ]] lui-même.
+5) Malgré tout cela, la plupart d’entre eux ne furent pas agréés par [[Dieu]], puisqu’ils périrent dans le désert.
+6) Tous ces faits nous servent d’exemples pour nous avertir de ne pas tolérer en nous de mauvais désirs comme ceux auxquels ils ont succombé.
+7) Ne soyez pas idolâtres comme certains d’entre eux l’ont été, selon ce que rapporte l’[[Bible|Ecriture]] : Le [[Israël|peuple]] s’assit pour manger et boire, puis il se leva pour se divertir.
+8) Ne nous laissons pas entraîner à l’immoralité sexuelle comme firent certains d’entre eux et, en un seul jour, il mourut vingt-trois mille personnes.
+9) N’essayons pas de forcer la main à [[Jésus|Christ]], comme le firent certains d’entre eux qui, pour cela, périrent sous la morsure des serpents.
+10) Ne vous plaignez pas de votre sort, comme certains d’entre eux, qui tombèrent sous les coups de l’ange exterminateur.
+11) Tous ces événements leur sont arrivés pour nous servir d’exemples. Ils ont été mis par écrit pour que nous en tirions instruction, nous qui sommes parvenus aux temps de la [[Apocalypse|fin]].
+12) C’est pourquoi, si quelqu’un se croit debout, qu’il prenne garde de ne pas tomber.
+13) Les tentations qui vous ont assaillis sont communes à tous les hommes. D’ailleurs, [[Dieu]] est fidèle et il ne permettra pas que vous soyez tentés au-delà de vos forces. Au moment de la tentation, il préparera le moyen d’en sortir pour que vous puissiez y résister.
 # 2 Corinthiens
 ## Chapitre 5
 ### Versets 11 à 21

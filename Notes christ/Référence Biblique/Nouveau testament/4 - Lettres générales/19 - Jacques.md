@@ -59,7 +59,7 @@ Intitulé **Une parole vrai** par [[Bible#^358f23|BDS]]
 Intitulé **La prière solidaire** par [[Bible#^358f23|BDS]]
 
 13) L’un de vous passe-t-il par la souffrance ? Qu’il prie. Un autre est-il dans la joie ? Qu’il chante des cantiques.
-14) L’un de vous est-il malade ? Qu’il appelle les responsables de l’Eglise, qui prieront pour lui, après lui avoir fait une onction d’huile au nom du Seigneur.
+14) L’un de vous est-il malade ? Qu’il appelle les responsables de l’[[Eglise]], qui prieront pour lui, après lui avoir fait une onction d’huile au nom du [[Jésus|Seigneur]].
 15) La prière faite avec foi obtiendra la guérison du malade et le [[Dieu|Seigneur]] le relèvera. S’il a commis quelque péché, il lui sera pardonné.
 16) Confessez vos péchés les uns aux autres et priez les uns pour les autres, afin que vous soyez guéris. Quand un juste prie, sa prière a une grande efficacité.
 17) [[Elie]] était un homme tout à fait semblable à nous. Il pria avec insistance pour qu’il ne pleuve pas et, pendant trois ans et demi, il ne tomba pas de pluie sur le sol.

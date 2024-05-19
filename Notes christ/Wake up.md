@@ -7,7 +7,7 @@ Message de Gilles Sax à POC Reims le 19/11/2023
 La version du [[Nouveau testament]] serait la `parabole du talent`.
 
 [[10 - Ephésiens#Versets 6 à 16|Ephésiens 5:14]] explique que :
-> Un chrétien (ou une église) dormant est comme un pécheur mort du point de vue de [[Dieu]]
+> Un chrétien (ou une [[Eglise]]) dormant est comme un pécheur mort du point de vue de [[Dieu]]
 
 `Psaumes 68:28` : c'est un ordre
 ## Jeûne

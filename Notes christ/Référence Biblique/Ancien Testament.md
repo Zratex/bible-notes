@@ -38,7 +38,7 @@ A comme appellation "la loi et les prophéties" dans le [[Nouveau testament]]
 	- Osée
 	- Joël
 	- Amos
-	- Abdias
+	- [[31 - Abdias|Abdias]]
 	- [[32 - Jonas|Jonas]]
 	- Michée
 	- Nahum

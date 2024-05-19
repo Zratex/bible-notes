@@ -1,1 +1,1 @@
-7eme roi d'[[Israël]], il est connu pour avoir apporté le **culte de Baal** principalement au travers de sa femme [[Jézabel]]
+7eme roi d'[[Israël]], il est connu pour être capricieux (plus de détails : [[La marche d'Élie#Réactions des autorités|Réactions des autorités]]) mais surtout pour avoir apporté le **culte de [[Baal]]** dans le royaume, principalement au travers de sa femme [[Jézabel]]

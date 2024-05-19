@@ -1,0 +1,1 @@
+Dernier livre de la [[Bible]], il décrit les temps actuels, la fin des temps, et prophétise le retour de [[Jésus]].

@@ -14,7 +14,7 @@ Beer-sheba (Puit du serment) : construit par [[Abraham]] (Genèse 22) puis [[Jac
 
 `Genese 14:10-12` puis `Genese 14:16-18` : dans cette région [[Dieu]] agissait : le puit permet le discernement de son action
 
-`Genese 26:18-25` puit de la dispute, puis de l'adversité, puis de la largeur du cœur : ce n'est pas parce qu'on est passé (dans le où elle n'est pas "polluée")dans une église qui s'est mal passé que la suivante le sera tout autant. Dans cet état esprit c'est [[Dieu]] qui nous met à l'épreuve.
+`Genese 26:18-25` puit de la dispute, puis de l'adversité, puis de la largeur du cœur : ce n'est pas parce qu'on est passé (dans le où elle n'est pas "polluée")dans une [[Eglise]] qui s'est mal passé que la suivante le sera tout autant. Dans cet état esprit c'est [[Dieu]] qui nous met à l'épreuve.
 ## Puits par générations
 Chaque génération doit creuser un puit différent pour faire face aux défis générationnel : ==il ne faut donc pas prendre les choses fait par nos précédents comme acquis==.
 

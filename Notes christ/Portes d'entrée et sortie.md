@@ -14,7 +14,7 @@ Pourquoi il y a eut autant de temps entre la première et la seconde porte : `De
 [[Dieu]] n'a pas voulu que le peuple passe par les [[Philistins]], sinon ils auraient fait demi tour vers l'[[Egypte]], soit la sortie depuis la même porte d'entrée.
 
 `Matthieu 15:24-28` mais `Jean 10:16` indique que la [[Bible|parole de Dieu]] n'est pas destinée à juste les juifs.
-> Il faut entrer dans une Bergerie (église) mais prendre garde a cause des brigands
+> Il faut entrer dans une Bergerie ([[Eglise]]) mais prendre garde a cause des brigands
 ## Autres portes
 `Apocalypse 3:20` il existe la porte du [[Positionnement du cœur|cœur]]
 `Proverbes 16` porte des flemmards

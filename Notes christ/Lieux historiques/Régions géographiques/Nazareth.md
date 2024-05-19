@@ -1,0 +1,2 @@
+Ville entre la [[Samarie]] et la [[Lieux historiques/Régions géographiques/Galilée|Galilée]], donc au nord d'[[Israël]]. C'est la ville de [[Joseph de Nazareth]], et donc là où [[Jésus]] a grandit
+![[Nazareth.PNG]]

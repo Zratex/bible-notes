@@ -1,0 +1,1 @@
+Décrit dans [[11&12 - Rois#Versets 9 à 18|1 Rois 19:15]], il vécu à [[Damas]], et il est le roi de [[Syrie]] mis en place par [[Elie]]

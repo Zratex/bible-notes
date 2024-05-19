@@ -9,3 +9,4 @@ Les apôtres sont disciples de [[Jésus]] sont ceux qui étaient au service de [
 - [[Philippe]]
 - [[André]]
 - [[Simon]]
+- [[Nathanaël]]

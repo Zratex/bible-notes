@@ -18,7 +18,7 @@ Ceux qui se sont accrochés à leurs bien ce sont fait rasé lors du retour des 
 [[Ancien Testament]] et [[Nouveau testament]] se réunissent en 1 point :
 `Jean 19:17` l'un des rares passage où tout les [[Note sur l'évangile|Evangiles]] en parle, et c'est la finalité de l'[[Ancien Testament]] : la mort de [[Jésus]]
 
-`Colossiens 2:14-15` l'église se doit de montrer la victoire de [[Jésus]]
+`Colossiens 2:14-15` l'[[Eglise]] se doit de montrer la victoire de [[Jésus]]
 `Romains 6:3-5` malgré tout, ils ont poursuivi la prêche de l'évangile, là où ils étaient peu ils sont devenu une multitude, et forment désormais un peuple. Il est prévu que nous passons de temps de plus en plus difficile (image de l'ensevelissement), mais nous serons malgré tout sauvé
 `1 Corinthiens 15:37-50` ce qui importe c'est surtout la santé morale/spirituelle. [[Jésus]] donne la santé
 > Illustration de ça : les pays bien développé ont une très mauvaise santé morale car ils ne suivent pas la [[Bible]]

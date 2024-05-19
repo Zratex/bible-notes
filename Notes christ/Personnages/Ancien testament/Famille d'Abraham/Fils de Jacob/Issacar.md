@@ -1,0 +1,1 @@
+Fils de [[Jacob]], sa descendance fut la tribu qui était installée en [[Jezreel]]

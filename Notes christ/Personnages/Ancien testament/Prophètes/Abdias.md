@@ -1,0 +1,3 @@
+Intendant du palais d'[[Achab]] et [[Jézabel]] ([[11&12 - Rois#Versets 1 à 19|1 Rois 18:3]]), il a caché les prophètes lors de leurs massacres ([[11&12 - Rois#Versets 1 à 19|1 Rois 18:4]] et [[11&12 - Rois#Versets 1 à 19|1 Rois 18:13]]). C'est à ce moment là qu'il s'est mis à suivre [[Dieu]].
+
+Dû au fait qu'il a vécu des milieux le culte de [[Baal]] (à la cours de [[Jézabel]]) avant de suivre [[Dieu]], il a été choisi pour prêcher à [[Edom]]. C'est alors qu'il a écrit le livre d'[[31 - Abdias|Abdias]]

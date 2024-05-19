@@ -1,7 +1,7 @@
 Partie de note provenant de [[1 - Aube révolution]]
 # Confrontation sciences et foi
 Depuis la fin du XVIeme siècle les découvertes scientifiques semblent être contre le fait de croire en [[Dieu]]. Les découvertes ayant mis en déroute la religion:
-- Terre tournant autour du Soleil (et non l'inverse) - Par [[Nicolas Copernic|Copernic]] en 1543 et [[Galilée]] en 1610
+- Terre tournant autour du Soleil (et non l'inverse) - Par [[Nicolas Copernic|Copernic]] en 1543 et [[Galilée (scientifique)]] en 1610
 - Description de l'univers par des [[Mécanique classique|mécaniques mathématiques compréhensibles]] - Idée commencé par [[Isaac Newton]] en 1687
 - La Terre ne faisant pas quelques milliers d'années, mais plusieurs millions et même milliards d'années - Par [[Georges-Louis Leclerc (Buffon)|Buffon]] en 1787, [[Charles Lyell|Lyell]] en 1830 et [[William Thomson (Kelvin)]] en 1862
 - Postulats déterminismes où les anges ne déplacent pas les planètes - par [[Laplace]] en 1805

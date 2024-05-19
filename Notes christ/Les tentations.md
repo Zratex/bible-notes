@@ -34,7 +34,7 @@ Exemple : [[Satan]] enleva tout de [[Job]] pour le monter contre [[Dieu]], mais 
 
 ## 2 - incrédulité
 [[Satan]] veux que l'on perde notre confiance en [[Dieu]]
-[[2nd Evangile - Marc#Versets 8 et 9|Marc 7:8-9]] et [[12 - Colossiens|Colossiens 2:8-9]]
+[[2nd Evangile - Marc#Versets 8 et 9|Marc 7:8-9]] et [[12 - Colossiens#Versets 6 à 15|Colossiens 2:8-9]]
 [[Satan]] il fait cela au travers de choses comme des guerres, maladies etc.
 
 ## 3 - les faux chrétiens

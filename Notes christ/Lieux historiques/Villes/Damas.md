@@ -1,0 +1,1 @@
+Capitale de la [[Syrie]], c'est l'une des villes les plus anciennes du monde.

@@ -1,0 +1,1 @@
+Ville côtière en [[Israël]] à côté du [[Mont Carmel]]

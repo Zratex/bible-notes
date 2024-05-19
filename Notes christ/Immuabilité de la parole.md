@@ -1,5 +1,6 @@
 Apporté le 05/05/2024 par Jean-Michel à PO Reims
 
+Cette note fait écho à ce passage : [[La marche d'Élie#La Bible dit la vérité|Exemple d'un fait qu'on pense impossible]]
 # La parole immuable de [[Dieu]]
 Est ce qu'il y a une évolution culturelle de la [[Bible|parole de Dieu]] ?
 

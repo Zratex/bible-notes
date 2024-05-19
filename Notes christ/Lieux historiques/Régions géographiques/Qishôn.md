@@ -1,0 +1,1 @@
+Qishôn (ou **Kishon**) est un cours d'eau en [[Israël]] qui prend origine dans le [[Mont Guilboa]] en [[Galilée]], et qui s'écoule jusqu'à [[Haïfa]] en passant par le [[Mont Carmel]]

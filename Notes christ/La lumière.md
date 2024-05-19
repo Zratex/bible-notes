@@ -18,7 +18,7 @@ Il ne faut pas arrêter de saler : un jour [[Dieu]] agira : [[Jésus|Christ]] pr
 Le sel est fait pour être bon : est ce qu'on est bon envers les autres ? A quel point on dose le sel (avec équilibre) ?
 Le sel doit être répandu si il a bon goût, afin que les autres puissent y goûter.
 `Marc 9:50`
-> L'**Église** permet de garder ce sel. Autrement on perds rapidement la saveur
+> L'[[Eglise]] permet de garder ce sel. Autrement on perds rapidement la saveur
 
 ## Ma lumière 
 `Romains 12:2` et `Mathieu 5:14-16` 

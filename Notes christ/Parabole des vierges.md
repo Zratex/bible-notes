@@ -1,6 +1,6 @@
-Parabole qui serait destinée à l'église.
-[[1er Evangile - Matthieu#Versets 1 à 13|Mathieu 25:1-13]] les vierges représentent l'église, et le mari [[Jésus]].
-il n'existe pas d'église parfaite temps que [[Jésus]] n'est pas revenu.
+Parabole qui serait destinée à l'[[Eglise]].
+[[1er Evangile - Matthieu#Versets 1 à 13|Mathieu 25:1-13]] les vierges représentent l'[[Eglise]], et le mari [[Jésus]].
+il n'existe pas d'[[Eglise]] parfaite temps que [[Jésus]] n'est pas revenu.
 
 Ce chapitre arrive juste après `Matthieu 24` où il parlait de **la fin des temps**.
 > Seule parabole où le **futur** est employé. Parce qu'il est question du futur

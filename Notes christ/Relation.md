@@ -1,3 +1,5 @@
+> temp : `Josué 23`
+
 Note sur les relations en général, en commençant par les relations amoureuses en premier temps, puis les relations amicales (ou autre) en second plan.
 ## Amoureuses
 Ce que dit la [[Bible]] a propos des **relations amoureuses** :

@@ -30,4 +30,4 @@ Ce testament est séparé en plusieurs parties :
 	- [[22&23&24 - Livres de Jean#2 Jean|2 Jean]]
 	- [[22&23&24 - Livres de Jean#3 Jean|3 Jean]]
 	- Jude
-- Apocalypse
+- [[Apocalypse]]

@@ -14,7 +14,7 @@ Quand on demande quelque chose à [[Dieu]], si il est d'accord :
 
 Pour que le nom de [[Jésus]] soit efficace, il faut reconnaître notre père : Il pourvoit a ses enfants, non a des machines de prière.
 
-La maison du Père nous apporte toutes bonnes choses. Cependant la maison du Père n'est pas que l'église, mais n'importe où tout les jours.
+La maison du Père nous apporte toutes bonnes choses. Cependant la maison du Père n'est pas que l'[[Eglise]], mais n'importe où tout les jours.
 ## Caractère du père
 `Psaumes 86:5` nous avons besoin du pardon et le pardon est en [[Dieu]]
 > On doit l'accepter sinon nous n'avons pas la repentance, donc on accepte pas qu'il est un père

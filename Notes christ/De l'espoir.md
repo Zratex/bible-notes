@@ -10,7 +10,7 @@ Les personnes qui étaient présentes, pas toutes ont été guéri
 Si [[Dieu]] nous dit qu'il va faire quelque chose, il ne faut pas se demander comment.
 
 Les Hommes qui ont aidés le paralytique auprès de [[Jésus]] ne pouvaient pas le faire chacun individuellement.
-> Ils représentent le travail des frères et sœurs de l'église, ou simplement les églises, et le paralytique ceux qui n'ont pas rencontrés [[Jésus]]
+> Ils représentent le travail des frères et sœurs de l'[[Eglise]], ou simplement les [[Eglise|églises]], et le paralytique ceux qui n'ont pas rencontrés [[Jésus]]
 
 Seul [[Dieu]] devrait être une justification pour que l'on se déplace. Sinon, nous passons à côté du plan de [[Dieu]].
 

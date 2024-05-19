@@ -1,4 +1,4 @@
-`1 Pierre 2:4-10` apporté par Manu Neves : nous sommes les pierres qui bâtissons l'église.
+`1 Pierre 2:4-10` apporté par Manu Neves : nous sommes les pierres qui bâtissons l'[[Eglise]].
 ## Rejeté pour être choisi
 `1 Pierre 2:4-6` être rejeté pour être choisi, c'est à dire que le choix de suivre [[Jésus]] fait que nous serons forcément rejeté par des personnes : `Jean 15:18-19` 
 Nous avons été sauvés pour pour être appelé à construire (peu importe le type de service)
@@ -17,7 +17,7 @@ Il faut donc l'étudier.
 `1 Corinthiens 10:1-4` une pierre angulaire est nécessaire pour faire une maison droite, et une maison droite est solide. Il faut donc se rapprocher de celle ci pour avoir des murs droits
 > Nous devons faire la même chose avec [[Jésus]], en se rapprochant le plus possible de [[Dieu]]
 
-`1 Pierre 2:9-10` a noté qu'il est parlé de peuple. L'église n'est pas faite pour que l'on vive sa foi de son côté car on construit aidé de nos frères et sœurs.
+`1 Pierre 2:9-10` a noté qu'il est parlé de peuple. L'[[Eglise]] n'est pas faite pour que l'on vive sa foi de son côté car on construit aidé de nos frères et sœurs.
 
 `Hebreux 2:4` on doit être une pierre vivante pour vivre des choses exceptionnelles
 `Psaumes 127:1` peu importe notre excellence on a besoin de [[Dieu]] en tout temps

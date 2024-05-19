@@ -1,0 +1,1 @@
+Ancienne ville d'[[Israël]] à 10km au nord de [[Jérusalem]]

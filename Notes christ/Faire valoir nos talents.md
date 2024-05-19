@@ -16,7 +16,7 @@ La nourriture de [[Jésus]] était de **faire** la volonté de [[Dieu]]
 
 -> la prière est d'ailleurs le premier des services 
 
-`Romains 12:6-10` l'église a tout les dons dont elle a besoin : c'est un cadeau de [[Dieu]]
+`Romains 12:6-10` l'[[Eglise]] a tout les dons dont elle a besoin : c'est un cadeau de [[Dieu]]
 `1 Corinthiens 12:1-13` on doit aspirer à chercher et développer les dons spirituels.
 > Étudier la [[Bible]] coûte, mais rester ignorant coûte encore plus cher
 -> le peuple de [[Dieu]] est détruit à cause de cette ignorance
@@ -39,4 +39,4 @@ Il a été dit à [[Timothée]] que nos progrès doivent être vu
 Même si le talent ne semble pas être directement manifesté, nous avons malgré tout de la valeur auprès de [[Dieu]]
 
 `Jean 6:8-12`  écouter les mauvaises critiques ne sert pas le royaume de [[Dieu]]
-`Zacharie 4:10-14` [[Dieu]] fait venir dans le besoin de son église
+`Zacharie 4:10-14` [[Dieu]] fait venir dans le besoin de son [[Eglise]]

@@ -19,6 +19,57 @@ Intitulé **Introduction : la [[Immuabilité de la parole|parole]] de [[Dieu]] e
 16) Nous avons tous été comblés de [[Jésus|ses]] richesses. Il a déversé sur nous une grâce après l’autre. 
 17) En effet, si la [[La Loi de Dieu|Loi]] nous a été donnée par [[Moïse]], la grâce et la vérité sont venues par [[Jésus|Jésus-Christ]].
 18) Personne n’a jamais vu [[Dieu]] : [[Dieu]], le [[Jésus|Fils]] unique qui vit dans l’intimité du [[Dieu|Père]], nous l’a révélé.
+
+### Versets 19 à 28
+Intitulé **Premières révélations et premiers affrontements** par [[Bible#^358f23|BDS]]
+
+19) Voici le témoignage de [[Jean Baptiste|Jean]], lorsque les Juifs lui envoyèrent de [[Jérusalem]] une délégation de prêtres et de lévites pour lui demander : « Qui es-tu ? »
+20) Il dit clairement la vérité, sans se dérober, et leur déclara ouvertement :
+21) [[Jean Baptiste|Je]] ne suis pas le [[Jésus|Messie]].
+    – Mais alors, continuèrent-ils, qui es-tu donc ? Es-tu [[Elie]]  ?
+    – Je ne le suis pas.
+    – Es-tu le Prophète ?
+    – Non.
+22) – Mais enfin, insistèrent-ils, qui es-tu ? Il faut bien que nous rapportions une réponse à ceux qui nous ont envoyés. Que dis-tu de toi-même ?
+23) – Moi ? répondit-il, [[Jean Baptiste|je]] suis cette voix dont parle le prophète [[Esaïe]], la voix de quelqu’un qui crie dans le désert : Préparez le chemin pour le [[Jésus|Seigneur]]!
+24) Les envoyés étaient du parti des pharisiens.
+25) Ils continuèrent de l’interroger : Si tu n’es pas le [[Jésus|Messie]], ni [[Elie]], ni le Prophète, pourquoi donc baptises-tu ?
+26) – Moi, leur répondit [[Jean Baptiste]], je vous baptise dans l’eau, mais au milieu de vous se trouve quelqu’un que vous ne connaissez pas.
+27) [[Jésus|Il]] vient après [[Jean Baptiste|moi]], mais je ne suis pas digne de dénouer la lanière de ses sandales.
+28) Cela se passait à [[Béthanie]], à l’est du [[Jourdain]], là où [[Jean Baptiste|Jean]] baptisait.
+
+### Versets 29 à 24
+Intitulé **[[Jésus]], l'agneau de [[Dieu]]** par [[Bible#^358f23|BDS]]
+
+29) Le lendemain, [[Jean Baptiste|Jean]] aperçut [[Jésus]] qui se dirigeait vers lui ; alors il s’écria : Voici l’Agneau de [[Dieu]], celui qui enlève le péché du monde.
+30) C’est de [[Jésus|lui]] que [[Jean Baptiste|je]] vous ai parlé lorsque je disais : « Un homme vient après moi, il m’a précédé, car il existait déjà avant moi. »
+31) [[Jean Baptiste|Moi]] non plus, je ne savais pas que c’était [[Jésus|lui]], mais si je suis venu baptiser dans l’eau, c’est pour le faire connaître au peuple d’[[Israël]].
+32) [[Jean Baptiste|Jean-Baptiste]] rendit ce témoignage : J’ai vu l’[[Saint-Esprit|Esprit]] descendre du ciel comme une colombe et se poser sur [[Jésus|lui]].
+33) [[Jean Baptiste|Je]] ne savais pas que c’était [[Jésus|lui]], mais [[Dieu]], qui m’a envoyé baptiser dans l’eau, m’avait dit : Tu verras l’[[Saint-Esprit|Esprit]] descendre et se poser sur un homme ; c’est lui qui baptisera dans le [[Saint-Esprit]].
+34) Or, cela, [[Jean Baptiste|je]] l’ai vu de mes yeux, et je l’atteste solennellement : [[Jésus|cet]] homme est le Fils de [[Dieu]].
+### Versets 35 à 51
+Intitulé **Les premiers Disciples** par [[Bible#^358f23|BDS]]
+
+35) Le lendemain, [[Jean Baptiste|Jean]] était de nouveau là, avec deux de ses disciples.
+36) Il vit [[Jésus]] qui passait, et il dit : Voici l’Agneau de [[Dieu]] !
+37) Les deux disciples entendirent les paroles de [[Jean Baptiste|Jean]] et se mirent à suivre [[Jésus]].
+38) [[Jésus|Celui-ci]] se retourna, vit qu’ils le suivaient et leur demanda : Que désirez-vous ?
+    – Rabbi – c’est-à-dire Maître – , lui dirent-ils, où habites-tu ?
+39)  – Venez, leur répondit-[[Jésus|il]], et vous le verrez. Ils l’accompagnèrent donc et virent où il habitait. Il était environ quatre heures de l’après-midi. Ils passèrent le reste de la journée avec lui.
+40) [[André]], le frère de [[Simon Pierre]], était l’un de ces deux hommes qui, sur la déclaration de [[Jean Baptiste|Jean]], s’étaient mis à suivre [[Jésus]].
+41) [[André|Il]] alla tout d’abord voir son frère [[Simon Pierre|Simon]] et lui dit : Nous avons trouvé le [[Jésus|Messie]] (ce qui se traduit par [[Jésus|Christ]]).
+42) Et [[André|il]] le conduisit auprès de [[Jésus]]. [[Jésus]] le regarda attentivement et lui dit : Tu es [[Simon Pierre|Simon]], fils de Jonas. Eh bien, on t’appellera Céphas – ce qui veut dire Pierre.
+43) Le lendemain, [[Jésus]] décida de retourner en [[Lieux historiques/Régions géographiques/Galilée|Galilée]]. Il rencontra [[Philippe]] et lui dit : Suis-moi !
+44) [[Philippe]] était originaire de [[Bethsaïda]], la ville d’[[André]] et de [[Simon Pierre|Pierre]].
+45) [[Philippe]], à son tour, alla voir [[Nathanaël]] et lui dit : Nous avons trouvé celui dont [[Moïse]] a parlé dans la [[La Loi de Dieu|Loi]] et que les prophètes ont annoncé : c’est [[Jésus]], le fils de [[Joseph de Nazareth|Joseph]], de la ville de [[Nazareth]].
+46) – De [[Nazareth]] ? répondit [[Nathanaël]]. Que peut-il venir de bon de [[Nazareth]] ?
+    – Viens et vois toi-même ! répondit [[Philippe]].
+47) [[Jésus]] vit [[Nathanaël]] s’avancer vers lui. Alors il dit : Voilà un véritable [[Israël|Israélite]], un homme d’une parfaite droiture.
+48) – D’où me connais-[[Jésus|tu]] ? lui demanda [[Nathanaël]].
+    – Avant même que [[Philippe]] t’appelle, lui répondit [[Jésus]], lorsque tu étais sous le figuier, je t’ai vu.
+49) – Maître, s’écria [[Nathanaël]], tu es le [[Jésus|Fils]] de [[Dieu]], tu es le Roi d’[[Israël]] !
+50) – [[Nathanaël|Tu]] crois, lui répondit [[Jésus]], parce que je t’ai dit que je t’ai vu sous le figuier ? Tu verras de bien plus grandes choses encore.
+51) Et [[Jésus|il]] ajouta : Oui, je vous l’assure, vous verrez le ciel ouvert et les anges de [[Dieu]] monter et descendre entre ciel et terre par l’intermédiaire du [[Jésus|Fils]] de l’homme.
 ## Chapitre 10
 ### Versets 22 à 42
 Intitulé **Fils de [[Dieu]] ou blasphémateur ?** par [[Bible#^358f23|BDS]]

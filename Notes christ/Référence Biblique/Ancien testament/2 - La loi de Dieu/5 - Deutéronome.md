@@ -23,3 +23,14 @@ Intitulé **Se garder de l'idolâtrie** par [[Bible#^358f23|BDS]]
 19) Vous les enseignerez à vos enfants et vous leur en parlerez, chez vous dans votre maison et quand vous marcherez sur la route, quand vous vous coucherez et quand vous vous lèverez.
 20) Vous les inscrirez sur les poteaux de votre maison et sur les montants de vos portes.
 21) Alors vos jours et ceux de vos enfants dans le pays que l’[[Dieu|Eternel]] a promis par serment de donner à vos ancêtres dureront aussi longtemps que le ciel restera au-dessus de la terre.
+
+## Chapitre 30
+### Versets 15 à 20
+Intitulé **La vie et la mort** par [[Bible#^358f23|BDS]]
+
+15) Voyez, [[Moïse|je]] place aujourd’hui devant vous, d’un côté, la vie et le bonheur, de l’autre, la mort et le malheur.
+16) Ce que [[Israël|je]] vous commande aujourd’hui, c’est d’aimer l’[[Dieu|Eternel]] votre [[Dieu]], de suivre le chemin qu’il vous trace et d’obéir à ses commandements, ses ordonnances et ses [[La Loi de Dieu|lois]]. En faisant cela, vous aurez la vie, vous deviendrez nombreux et vous serez bénis par l’[[Dieu|Eternel]] votre [[Dieu]] dans le pays où vous vous rendez pour en prendre possession.
+17) Mais si votre cœur se détourne de [[Dieu|lui]], si vous refusez de lui obéir et si vous vous laissez entraîner à adorer d’autres dieux et à leur rendre un culte,
+18) [[Moïse|je]] vous préviens dès aujourd’hui que vous périrez à coup sûr. Vous ne vivrez pas longtemps dans le pays au-delà du [[Jourdain]] où vous vous rendez pour en prendre possession.
+19) [[Moïse|Je]] prends aujourd’hui le ciel et la terre à témoins : je vous offre le choix entre la vie et la mort, entre la bénédiction et la malédiction. Choisissez donc la vie, afin que vous viviez, vous et vos descendants.
+20) Choisissez d’aimer l’[[Dieu|Eternel]] votre [[Dieu]], de lui obéir et de lui rester attachés, car c’est lui qui vous fait vivre et qui pourra vous accorder de passer de nombreux jours dans le pays que l’[[Dieu|Eternel]] a promis par serment de donner à vos ancêtres [[Abraham]], [[Isaac]] et [[Jacob]].
