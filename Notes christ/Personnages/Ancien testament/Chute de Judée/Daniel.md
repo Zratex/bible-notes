@@ -1,0 +1,2 @@
+Originaire du [[Royaume de Judée]], il fut déporté de [[Jérusalem]] à la cour de [[Nabuchodonosor]] suite à l'invasion de [[Babylone]].
+Il est renommé **Beltshatsar** dans [[27 - Daniel#Chapitre 1|Daniel 1:7]]

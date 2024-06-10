@@ -1,16 +1,48 @@
 1er [[Nouveau testament#^94270d|évangile de la Bible]], rédigé par [[Matthieu]].
+> Les passages qui seront en gras correspondent aux passages où [[Jésus]] parle
 ## Chapitre 5
 Première partie de ce qui est appelé le "serment sur la montage " par [[Jésus]]
 ## Chapitre 6
 Seconde partie de ce qui est appelé le "serment sur la montage " par [[Jésus]]
+### Versets 1 à 18
+Intitulé **Contre l'hypocrisie religieuse** par [[Bible#^358f23|BDS]]
+
+1) **Gardez-vous d’accomplir devant les hommes, pour vous faire remarquer par eux, ce que vous faites pour obéir à [[Dieu]], sinon vous n’aurez pas de récompense de votre [[Dieu|Père céleste]].**
+2) **Ainsi, lorsque tu donnes quelque chose aux pauvres, ne le claironne pas partout. Ce sont les hypocrites qui agissent ainsi dans les synagogues et dans les rues pour que les gens chantent leurs louanges. Vraiment, je vous l’assure : leur récompense, ils l’ont d’ores et déjà reçue.**
+3) **Mais toi, quand tu donnes quelque chose aux pauvres, que ta main gauche ne sache pas ce que fait ta main droite.**
+4) **Que ton aumône se fasse ainsi en secret ; et ton [[Dieu|Père]], qui voit dans le secret, te le rendra.**
+5) **Quand vous priez, n’imitez pas ces hypocrites qui aiment à faire leurs prières debout dans les synagogues et à l’angle des rues : ils tiennent à être remarqués par tout le monde. Vraiment, je vous l’assure : leur récompense, ils l’ont d’ores et déjà reçue.**
+6) **Mais toi, quand tu veux prier, va dans ta pièce la plus retirée, verrouille ta porte et adresse ta prière à ton [[Dieu|Père]] qui est là dans le lieu secret. Et ton [[Dieu|Père]], qui voit dans le secret, te le rendra.**
+7) **Dans vos prières, ne rabâchez pas des tas de paroles, à la manière des païens ; ils s’imaginent qu’à force de paroles [[Dieu]] les entendra.**
+8) **Ne les imitez pas, car votre [[Dieu|Père]] sait ce qu’il vous faut, avant que vous le lui demandiez.**
+9) **Priez donc ainsi :
+   Notre [[Dieu|Père]],
+   qui es aux cieux,
+   que ton nom soit sanctifié,**
+10) **que ton règne vienne,
+    que ta volonté soit faite,
+    sur la terre comme au ciel.**
+11) **Donne-nous aujourd’hui
+    le pain dont nous avons besoin,**
+12) **pardonne-nous nos torts envers toi
+    comme nous aussi, nous pardonnons
+    les torts des autres envers nous.**
+13) **Ne nous expose pas à la tentation,
+    et surtout, délivre-nous du [[Satan|diable]].
+    [Car à toi appartiennent
+    le règne et la puissance
+    et la gloire à jamais.]**
+14) **En effet, si vous pardonnez aux autres leurs fautes, votre [[Dieu|Père]] céleste vous pardonnera aussi.**
+15) **Mais si vous ne pardonnez pas aux autres, votre [[Dieu|Père]] ne vous pardonnera pas non plus vos fautes.**
+16) **Lorsque vous [[Jeûne|jeûnez]], n’ayez pas, comme les hypocrites, une mine triste. Pour bien montrer aux gens qu’ils [[Jeûne|jeûnent]], ils prennent des visages défaits. Vraiment, je vous l’assure : leur récompense, ils l’ont d’ores et déjà reçue !**
+17) **Mais toi, quand tu [[Jeûne|jeûnes]], parfume tes cheveux et lave ton visage**
+18) **pour que personne ne se rende compte que tu es en train de [[Jeûne|jeûner]], sauf ton [[Dieu|Père]] qui est là dans le lieu secret. Alors ton [[Dieu|Père]], qui voit dans le secret, te le rendra.**
 ### Versets 19 à 34
 Intitulé **Les biens matériels** par [[Bible#^358f23|BDS]]
-#### Versets 19 à 21
-Etudié dans la note [[Positionnement du cœur]] :
 
-19) Ne vous amassez pas des richesses sur la terre où elles sont à la merci de la rouille, des mites qui rongent, ou des cambrioleurs qui percent les murs pour voler.
-20) Amassez-vous plutôt des trésors dans le ciel, où il n’y a ni rouille, ni mites qui rongent, ni cambrioleurs qui percent les murs pour voler.
-21) Car là où est ton trésor, là sera aussi ton cœur.
+19) **Ne vous amassez pas des richesses sur la terre où elles sont à la merci de la rouille, des mites qui rongent, ou des cambrioleurs qui percent les murs pour voler.**
+20) **Amassez-vous plutôt des trésors dans le ciel, où il n’y a ni rouille, ni mites qui rongent, ni cambrioleurs qui percent les murs pour voler.**
+21) **Car là où est ton trésor, là sera aussi ton cœur.**
 ## Chapitre 7
 Dernière partie de ce qui est appelé le "serment sur la montage " par [[Jésus]]
 ## Chapitre 8

@@ -1,0 +1,1 @@
+**Cyrus II** est l'empereur le plus connu du [[Perse#Achéménides|royaume perse achéménide]]

@@ -1,4 +1,2 @@
-Description de Wikipédia :
-```
-La Bithynie est une région historique de l'Asie mineure située sur la côte nord, entre le détroit du Bosphore, la Propontide, le Pont-Euxin, la Paphlagonie, et bornée au sud par la Galatie et la Phrygie.
-```
+Cette carte représente la [[Galatie]] dans l'empire romain. La **Bithynie** est la région juste au dessus de la [[Galatie]]. Elle est donc en [[Asie mineure]]
+![[Galatie.png]]

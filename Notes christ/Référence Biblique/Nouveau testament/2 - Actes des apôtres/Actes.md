@@ -48,7 +48,7 @@ Après Simon :
 ### Versets 1 à 12
 Intitulé **L'appel du Macédonien** par [[Bible#^358f23|BDS]]
 #### Versets 6 et 7
-6) Ils traversèrent la Galatie phrygienne parce que le [[Saint-Esprit]] les avait empêchés d’annoncer la Parole dans la province d’Asie
+6) Ils traversèrent la Galatie phrygienne parce que le [[Saint-Esprit]] les avait empêchés d’annoncer la Parole dans la province d’[[Asie mineure|Asie]]
 7) Parvenus près de la Mysie (prêt de Bosphore), ils se proposaient d’aller en [[Bithynie]] ; mais, là encore, l’[[Saint-Esprit|Esprit]] de [[Jésus]] s’opposa à leur projet.
 #### Versets 8 à 10
 8) Ils traversèrent donc la Mysie et descendirent au port de Troas.

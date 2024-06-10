@@ -1,0 +1,1 @@
+Frère d'[[Aaron]], il est l'homme de [[Dieu]] qui a permis de faire sortir [[Israël]] d'[[Egypte]]

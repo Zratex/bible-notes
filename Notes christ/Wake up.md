@@ -12,9 +12,9 @@ La version du [[Nouveau testament]] serait la `parabole du talent`.
 `Psaumes 68:28` : c'est un ordre
 ## Jeûne
 `Joël 3:9` le jeûne appelle le miraculeux : il laisse mourir le corps (pas forcément de manière physique) pour laisser place au spirituel.
-`Galates 5:16-21`
+[[9 - Galates#Versets 13 à 26|Galates 5:16-21]]
 
-`Amos 6:1`ceux qui exerce l'œuvre de [[Dieu]] pas comme ils devraient le faire se retrouvent à "s'endormir".
+[[30 - Amos#Versets 1 à 7|Amos 6:1]] ceux qui exerce l'œuvre de [[Dieu]] pas comme ils devraient le faire se retrouvent à "s'endormir".
 S'endormir implique de vivre tranquille, et vivre tranquille laisse de la place au **péché** et donc à [[Satan]].
 
 `Juges 16:20` [[Samson]] cru qu'il allait s'en sortir comme d'habitude, mais il n'avait pas remarqué que l'esprit de [[Dieu]] était parti car [[Samson]] s'était endormi après ses victoires.

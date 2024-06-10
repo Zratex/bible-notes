@@ -45,6 +45,18 @@ Intitulé **L'exemple des révoltes d'[[Israël]]** par [[Bible#^358f23|BDS]]
 11) Tous ces événements leur sont arrivés pour nous servir d’exemples. Ils ont été mis par écrit pour que nous en tirions instruction, nous qui sommes parvenus aux temps de la [[Apocalypse|fin]].
 12) C’est pourquoi, si quelqu’un se croit debout, qu’il prenne garde de ne pas tomber.
 13) Les tentations qui vous ont assaillis sont communes à tous les hommes. D’ailleurs, [[Dieu]] est fidèle et il ne permettra pas que vous soyez tentés au-delà de vos forces. Au moment de la tentation, il préparera le moyen d’en sortir pour que vous puissiez y résister.
+### Versets 14 à 22
+Intitulé **S’abstenir de pratiques idolâtres** par [[Bible#^358f23|BDS]]
+
+14) Pour toutes ces raisons, chers amis, je vous en conjure : fuyez le culte des idoles.
+15) Je vous parle là comme à des gens raisonnables : jugez vous-mêmes de ce que je dis.
+16) La « coupe de reconnaissance », pour laquelle nous remercions [[Dieu]], ne signifie-t-elle pas que nous sommes au bénéfice du sacrifice de [[Jésus|Christ]] qui a versé son sang pour nous ? Et le pain que nous rompons, ne signifie-t-il pas que nous sommes au bénéfice du corps de [[Jésus|Christ]] offert pour nous ?
+17) Comme il n’y a qu’un seul pain, nous tous, malgré notre grand nombre, nous ne formons qu’un seul corps, puisque nous partageons entre tous ce pain unique.
+18) Pensez à ce qui se passe dans le peuple d’[[Israël]], j’entends [[Israël]] au sens national : ceux qui mangent les victimes offertes en sacrifice ne sont-ils pas au bénéfice du sacrifice offert sur l’autel ?
+19) Cela signifierait-il qu’une viande, parce qu’elle est sacrifiée à une idole, prend une valeur particulière ? Ou que l’idole ait quelque réalité ? Certainement pas !
+20) Mais je dis que les sacrifices des païens sont offerts à des démons et à ce qui n’est pas [[Dieu]]. Or, je ne veux pas que vous ayez quoi que ce soit de commun avec les démons.
+21) Vous ne pouvez boire à la coupe du [[Jésus|Seigneur]] et en même temps à celle des démons. Vous ne pouvez pas manger à la table du [[Jésus|Seigneur]] et à celle des démons.
+22) Ou bien, voulons-nous provoquer le [[Jésus|Seigneur]] dont l’amour est exclusif ? Nous croyons-nous plus forts que lui ?
 # 2 Corinthiens
 ## Chapitre 5
 ### Versets 11 à 21

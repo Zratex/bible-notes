@@ -1,0 +1,2 @@
+Le Sabbat (ou Shabbat ou Chabbat) est un jour de repos, attribué au septième jour de la semaine de la création de l'univers par [[Dieu]] dans [[Genèse#Chapitre 1|Genèse 2:1-3]] où il se reposa.
+Ce jour est un jour en l'honneur de [[Dieu]]

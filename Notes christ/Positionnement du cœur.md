@@ -1,6 +1,6 @@
 Thème de la prédication d'Ulrich fait le Mercredi 19 Juillet 2023 intitulé "Où se trouve le trésor de mon cœur ?"
 
-[[1er Evangile - Matthieu#Versets 19 à 21|Matthieu 6:19-21]] partie du serment sur la montagne ayant duré un chapitre précédent et durant encore un chapitre.
+[[1er Evangile - Matthieu#Versets 19 à 34|Matthieu 6:19-21]] partie du serment sur la montagne ayant duré un chapitre précédent et durant encore un chapitre.
 
 > Une chose est précieuse si on arrête pas d'y penser
 

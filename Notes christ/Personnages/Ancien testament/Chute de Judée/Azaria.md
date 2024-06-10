@@ -1,0 +1,1 @@
+Renommé **Abed-Nego** dans [[27 - Daniel#Chapitre 1|Daniel 1:7]]

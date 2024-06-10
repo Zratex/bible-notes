@@ -18,6 +18,83 @@ Intitulé **[[Dieu]] délivre** par la version [[Bible#^358f23|BDS]]
    c’est pour nos fautes ╵qu’il a été brisé.
    Le châtiment ╵qui nous donne la paix ╵est retombé sur [[Jésus|lui]]
    et c’est par ses blessures ╵que nous sommes guéris
+## Chapitre 58
+Intitulé **La gloire de Sion rachetée** par [[Bible#^358f23|BDS]], sous titré **Le vrai [[Jeûne]]**
+
+1) Crie de toutes tes forces
+   et ne te retiens pas.
+   Fais retentir ta voix ╵comme le son du cor  !
+   A mon peuple dénonce sa révolte,
+   et aux descendants de [[Jacob]] leurs fautes.
+2) Ils me recherchent chaque jour,
+   ils disent qu’ils se plaisent ╵à connaître mes voies,
+   comme ferait un peuple ╵qui accomplit ce qui est juste
+   et n’a pas délaissé ╵le droit que son [[Dieu]] a prescrit.
+   Ils exigent de moi ╵de justes jugements
+   et veulent être près de [[Dieu]].
+3) « Que nous sert de [[Jeûne|jeûner]],
+   si tu ne le vois pas ?
+   Pourquoi nous humilier,
+   si tu n’y prends pas garde ? »
+   Au jour où vous [[Jeûne|jeûnez]],
+   vous traitez vos affaires
+   et vous exploitez tous vos ouvriers,
+4) vous passez votre [[Jeûne|jeûne]] ╵en procès et querelles
+   et en donnant des coups de poing ╵avec méchanceté.
+   Ce n’est pas par des [[Jeûne|jeûnes]], ╵comme ceux d’aujourd’hui,
+   que vous ferez entendre ╵vos prières là-haut !
+5) Est-ce cela le [[Jeûne|jeûne]] ╵auquel je prends plaisir ?
+   Est-ce cela un jour ╵où l’homme s’humilie ?
+   S’agit-il de courber ╵la tête comme un jonc
+   et de vous étaler ╵sur le sac et la cendre ?
+   Pouvez-vous appeler ╵cela un jour de [[Jeûne|jeûne]]
+   que l’[[Dieu|Eternel]] agrée ?
+6) Le [[Jeûne|jeûne]] qui me plaît
+   est celui qui consiste ╵à détacher les liens ╵de la méchanceté,
+   à délier les courroies ╵de toute servitude,
+   à mettre en liberté ╵tous ceux que l’on opprime
+   et à briser ╵toute espèce de joug.
+7) C’est partager ton pain ╵avec ceux qui ont faim,
+   et offrir l’hospitalité ╵aux pauvres sans abri,
+   c’est donner des habits ╵à celui qu’on voit nu,
+   ne pas te détourner ╵de ton prochain.
+8) Alors, comme l’aurore, ╵jaillira ta lumière,
+   ton rétablissement ╵s’opérera bien vite.
+   Oui, alors la justice ╵marchera devant toi,
+   et la gloire de l’[[Dieu|Eternel]] ╵sera l’arrière-garde.
+9) Quand tu appelleras,
+   l’[[Dieu|Eternel]] répondra ;
+   quand tu crieras à l’aide,
+   [[Dieu|il]] dira : « [[Dieu|Je]] suis là ! »
+   Si, du milieu de toi, ╵tu supprimes le joug de l’oppression,
+   les gestes menaçants
+   et les propos méchants,
+10) si tu donnes ton pain
+    à celui qui a faim
+    et si tu pourvois aux besoins ╵de l’opprimé,
+    la lumière luira pour toi ╵au milieu des ténèbres,
+    et ton obscurité ╵se changera pour toi ╵en clarté de midi,
+11) L’[[Dieu|Eternel]] te conduira constamment.
+    Il pourvoira à tes besoins ╵dans les déserts arides,
+    il te fortifiera physiquement
+    et tu ressembleras ╵à un jardin bien arrosé,
+    à une source vive ╵aux eaux intarissables.
+12) Les tiens rebâtiront ╵les ruines d’autrefois
+    et tu relèveras ╵les fondements posés ╵dans les siècles passés.
+    Tu seras appelé : ╵« Réparateur des brèches »,
+    « le restaurateur des chemins » ╵qui rend le pays habitable.
+13) Si, le jour du sabbat, ╵tu te retiens de travailler,
+    si tu t’abstiens ╵de traiter tes affaires ╵en ce jour qui [[Dieu|m]]’est consacré,
+    si pour toi le jour du sabbat ╵est un temps de délices,
+    si ce saint jour de l’[[Dieu|Eternel]], ╵tu le tiens en estime
+    et si tu le respectes
+    en t’abstenant de faire ╵ce qui te plaît,
+    de traiter tes affaires
+    et de tenir de longs discours,
+14) alors tu trouveras ╵ta joie en l’[[Dieu|Eternel]],
+    et sur les hauteurs du pays ╵[[Dieu|je]] te ferai passer
+    et [[Dieu|je]] te donnerai ╵la pleine jouissance ╵du patrimoine ╵de [[Jacob]], ton ancêtre.
+    L’[[Dieu|Eternel]] a parlé.
 ## Chapitre 59
 Chapitre intitulé **De l'injustice à la justice** par la version [[Bible#^358f23|BDS]]
 ### Versets 1 à 8

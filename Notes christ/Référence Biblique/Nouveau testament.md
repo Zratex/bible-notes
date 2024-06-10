@@ -12,7 +12,7 @@ Ce testament est séparé en plusieurs parties :
   - [[6 - Romains|Romains]]
   - [[7&8 - Corinthiens#1 Corinthiens|1 Corinthiens]]
   - [[7&8 - Corinthiens#2 Corinthiens|2 Corinthiens]]
-  - Galates
+  - [[9 - Galates|Galates]]
   - [[10 - Ephésiens|Ephésiens]]
   - [[Philippiens]]
   - [[12 - Colossiens|Colossiens]]

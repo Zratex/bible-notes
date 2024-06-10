@@ -1,4 +1,5 @@
 3eme [[Nouveau testament#^94270d|évangile de la Bible]], rédigé par [[Luc]].
+> Les passages qui seront en gras correspondent aux passages où [[Jésus]] parle
 ## Chapitre 1
 ### Versets 5 à 25
 Intitulé **L'annonce de la naissance de Jean-Baptiste** par [[Bible#^358f23]|BDS]]
@@ -44,6 +45,19 @@ Intitulé **[[Jésus]], le Serviteur choisi par [[Dieu]]** par [[Bible#^358f23|B
 25) Voici la vérité, je vous le déclare : il y avait beaucoup de veuves en [[Israël]] à l’époque d’[[Elie]], quand, pendant trois ans et demi, il n’y a pas eu de pluie et qu’une grande famine a sévi dans tout le pays.
 26) Or, [[Elie]] n’a été envoyé vers aucune d’entre elles, *mais vers une veuve qui vivait à [[Sarepta]], dans le pays de [[Sidon]]*.
     > Référence : [[11&12 - Rois#Versets 8 à 16|1 Rois 17:9]]
+    
+
+## Chapitre 5
+### Versets 33 à 39
+Intitulé **Le neuf et l’ancien** par [[Bible#^358f23|BDS]]
+
+33) Certains [[Jésus|lui]] demandèrent : Les disciples de [[Jean Baptiste|Jean]], comme ceux des pharisiens, [[Jeûne|jeûnent]] fréquemment et font des prières, alors que les tiens mangent et boivent.
+34) [[Jésus]] leur répondit : **Comment les invités d’une noce peuvent-ils [[Jeûne|jeûner]] pendant que le marié est avec eux ?**
+35) **Le temps viendra où celui-ci leur sera enlevé. Alors, en ces jours-là, ils [[Jeûne|jeûneront]].**
+36) Et [[Jésus|il]] utilisa la parabole suivante : **Personne ne coupe un morceau d’un habit neuf pour rapiécer un vieux vêtement. Sinon on abîme l’habit neuf, et la pièce d’étoffe qu’on y aura découpée ne va pas avec le vieil habit.**
+37) **De même, personne ne met dans de vieilles outres du vin nouveau, sinon le vin nouveau les fait éclater, il se répand, et les outres sont perdues.**
+38) **Non, il faut mettre le vin nouveau dans des outres neuves.**
+39) **Bien sûr, quand on a bu du vin vieux, on n’en désire pas du nouveau ; en effet, on se dit : le vieux est meilleur.**
 ## Chapitre 9
 ### Versets 51 à 56
 Intitulé **Jésus se dirige vers [[Jérusalem]] : L'opposition en [[Samarie]]** par [[Bible#^358f23]|BDS]]

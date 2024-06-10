@@ -1,0 +1,1 @@
+Nièce de [[Mardochée]], elle a vécu en environ -450 dans la période de la [[Perse#Achéménides|perse achéménide]]

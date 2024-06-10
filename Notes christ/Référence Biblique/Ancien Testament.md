@@ -21,7 +21,7 @@ A comme appellation "la loi et les prophéties" dans le [[Nouveau testament]]
 	- 1 et 2 Chroniques
 	- Esdras
 	- [[15 - Néhémie|Néhémie]]
-	- Esther
+	- [[16 - Esther|Esther]]
 - Livres dit "poétiques" :
 	- [[18 - Job|Job]]
 	- [[19 - Psaumes|Psaumes]]
@@ -33,11 +33,11 @@ A comme appellation "la loi et les prophéties" dans le [[Nouveau testament]]
 	- [[24 - Jérémie|Jérémie]]
 	- [[25 - Lamentations|Lamentations]]
 	- [[26 - Ezéchiel|Ezéchiel]]
-	- Daniel
+	- [[27 - Daniel|Daniel]]
 - Seconds livres prophétiques :
 	- Osée
 	- Joël
-	- Amos
+	- [[30 - Amos|Amos]]
 	- [[31 - Abdias|Abdias]]
 	- [[32 - Jonas|Jonas]]
 	- Michée

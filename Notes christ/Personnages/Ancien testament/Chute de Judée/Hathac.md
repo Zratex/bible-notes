@@ -1,0 +1,1 @@
+Décrit dans [[16 - Esther#Chapitre 4|Esther 4:5]] comme *"l’un des eunuques que l’empereur avait mis à son service"*
