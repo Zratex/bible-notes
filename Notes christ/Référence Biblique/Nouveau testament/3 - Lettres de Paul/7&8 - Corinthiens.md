@@ -27,7 +27,46 @@ Référence à [[23 - Esaïe#Versets 13 et 14|Esaïe 29:13-14]]
     *qu’il place sa fierté dans le [[Dieu|Seigneur]]*
 
 Référence à [[24 - Jérémie#Versets 22 à 25|Jérémie 9:22-23]]
+## Chapitre 3
+Intitulé **Le rôle des prédicateurs de l'[[Note sur l'évangile|Evangile]]** par [[Bible#^358f23|BDS]]
 
+1) En réalité, frères et sœurs, [[Paul|je]] n’ai pas pu m’adresser à vous comme à des hommes et des femmes conduits par l’[[Saint-Esprit|Esprit]]. J’ai dû vous parler comme si vous étiez des hommes ou des femmes livrés à eux-mêmes, comme à de petits enfants en [[Jésus|Christ]].
+2) C’est pourquoi [[Paul|je]] vous ai donné du lait et non de la nourriture solide ; car vous n’auriez pas pu l’assimiler alors. Et même aujourd’hui, vous êtes encore incapables de la supporter,
+3) parce que vous êtes comme des hommes et des femmes livrés à eux-mêmes. En effet, lorsque vous vous jalousez les uns les autres et que vous vous disputez, n’êtes-vous pas semblables à des hommes livrés à eux-mêmes, ne vous comportez-vous pas d’une manière tout humaine ?
+4) Lorsque vous dites : « Pour moi, c’est [[Paul]] ! » ou : « Pour moi, c’est Apollos ! », n’êtes-vous pas comme les autres hommes ?
+5) Après tout, que sont donc Apollos et [[Paul]] ? Des serviteurs, grâce auxquels vous avez été amenés à la foi, chacun d’eux accomplissant la tâche particulière que [[Dieu]] lui a confiée.
+6) Moi [[Paul|j]]’ai planté, Apollos a arrosé, mais c’est [[Dieu]] qui a fait croître.
+7) Peu importe, en fait, qui plante et qui arrose. Ce qui compte, c’est [[Dieu]] qui fait croître.
+8) Celui qui plante et celui qui arrose sont égaux et chacun recevra son propre salaire en fonction du travail accompli.
+9) Car nous travaillons ensemble au service de [[Dieu]], et vous, vous êtes le champ qu’[[Dieu|il]] cultive. Ou encore : vous êtes l’édifice qu’[[Dieu|il]] construit.
+10) Conformément à la mission que [[Dieu]], dans sa grâce, [[Paul|m]]’a confiée, [[Paul|j]]’ai posé chez vous le fondement comme un sage architecte. A présent, quelqu’un d’autre bâtit sur ce fondement. Seulement, que chacun prenne garde à la manière dont il bâtit.
+11) Pour ce qui est du fondement, nul ne peut en poser un autre que celui qui est déjà en place, c’est-à-dire [[Jésus|Jésus-Christ]].
+12) Or on peut bâtir sur ce fondement avec de l’or, de l’argent, des pierres précieuses ou du bois, du chaume ou du torchis de paille.
+13) Mais le jour du jugement montrera clairement la qualité de l’œuvre de chacun et la rendra évidente. En effet, ce jour sera comme un feu qui éprouvera l’œuvre de chacun pour en révéler la nature.
+14) Si la construction édifiée sur le fondement résiste à l’épreuve, son auteur recevra son salaire ;
+15) mais si elle est consumée, il en subira les conséquences. Lui, personnellement, sera sauvé, mais tout juste, comme un homme qui réussit à échapper au feu.
+16) Ne savez-vous pas que vous êtes le temple de [[Dieu]] et que l’[[Saint-Esprit|Esprit]] de [[Dieu]] habite en vous ?
+17) Si quelqu’un détruit son temple, [[Dieu]] le détruira. Car son temple est saint, et vous êtes ce temple.
+18) Que personne ne se fasse d’illusions sur ce point. Si quelqu’un parmi vous se croit sage selon les critères de ce monde, qu’il devienne fou afin de devenir véritablement [[Sagesse|sage]].
+19) Car ce qui passe pour sagesse dans ce monde est folie aux yeux de [[Dieu]]. Il est écrit en effet : *Il attrape les sages à leur propre piège,*
+20) et encore : *Le [[Dieu|Seigneur]] connaît les pensées des sages : elles ne sont que du vent.*
+21) Que personne ne mette donc sa fierté dans des hommes, car tout est à vous,
+22) soit [[Paul]], soit Apollos, soit [[Simon Pierre|Pierre]], soit le monde, soit la vie, soit la mort, soit le présent, soit l’avenir. Tout est à vous,
+23) mais vous, vous êtes à [[Jésus|Christ]], et [[Jésus|Christ]] est à [[Dieu]].
+
+## Chapitre 6
+### Versets 12 à 20
+Intitulé **Sur l'inconduite** par [[Bible#^358f23|BDS]]
+
+12) Tout [[Paul|m]]’est permis. Certes, mais tout n’est pas bon pour [[Paul|moi]]. Tout [[Paul|m]]’est permis, c’est vrai, mais [[Paul|je]] ne veux pas [[Paul|me]] placer sous un esclavage quelconque.
+13) « Les aliments sont faits pour le ventre et le ventre pour les aliments. » Certes, cependant un jour, [[Dieu]] détruira l’un comme l’autre. Mais attention : notre corps, lui, n’a pas été fait pour l’inconduite, il est pour le [[Jésus|Seigneur]] et le [[Jésus|Seigneur]] est pour le corps.
+14) En effet, comme [[Dieu]] a ressuscité le [[Jésus|Seigneur]], il nous ressuscitera, nous aussi, par sa puissance.
+15) Ignorez-vous que vos corps sont des membres de [[Jésus|Christ]] ? Vais-[[Paul|je]] donc arracher les membres de [[Jésus|Christ]] pour en faire ceux d’une prostituée  ? Sûrement pas !
+16) Ou bien, ignorez-vous qu’un homme qui s’unit à une prostituée devient un seul corps avec elle ? Car il est écrit : Les deux ne feront plus qu’un.
+17) Mais celui qui s’unit au [[Jésus|Seigneur]] devient, lui, un seul esprit avec lui.
+18) C’est pourquoi, fuyez l’inconduite sexuelle. Tous les autres péchés qu’un homme peut commettre n’impliquent pas son corps, mais celui qui se livre à l’inconduite pèche contre son propre corps.
+19) Ou bien encore, ignorez-vous que votre corps est le temple même du [[Saint-Esprit]] qui vous a été donné par [[Dieu]] et qui, maintenant, demeure en vous ? Vous ne vous appartenez donc pas à vous-mêmes.
+20) Car vous avez été rachetés à grand prix. Honorez donc [[Dieu]] dans votre corps.
 ## Chapitre 10
 ### Versets 1 à 13
 Intitulé **L'exemple des révoltes d'[[Israël]]** par [[Bible#^358f23|BDS]]
@@ -62,6 +101,16 @@ Intitulé **S’abstenir de pratiques idolâtres** par [[Bible#^358f23|BDS]]
 ### Versets 11 à 21
 Intitulé **Le service et la réconciliation** par [[Bible#^358f23|BDS]]
 
+11) C’est pourquoi, sachant ce qu’est la crainte du [[Dieu|Seigneur]], nous cherchons à convaincre les hommes, et [[Dieu]] sait parfaitement ce que nous sommes. [[Paul|J]]’espère d’ailleurs que, dans votre conscience, vous le savez, vous aussi.
+12) Nous ne nous recommandons pas à nouveau auprès de vous. Nous voulons seulement vous donner de bonnes raisons d’être fiers de nous. Ainsi vous saurez répondre à ceux qui trouvent des raisons de se vanter dans les apparences et non dans leur cœur.
+13) Quant à nous, s’il nous est arrivé de dépasser la mesure, c’est pour [[Dieu]]. Si nous montrons de la modération, c’est pour vous.
+14) En effet, l’amour de [[Jésus|Christ]] nous étreint, car nous avons acquis la certitude qu’un seul homme est mort pour tous : donc tous sont morts en [[Jésus|lui]].
+15) Et [[Jésus|il]] est mort pour tous afin que ceux qui vivent ne vivent plus pour eux-mêmes, mais pour [[Jésus|celui]] qui est mort à leur place et ressuscité pour eux.
+16) Ainsi, désormais, nous ne considérons plus personne d’une manière purement humaine. Certes, autrefois, nous avons considéré [[Jésus|Christ]] de cette manière, mais ce n’est plus ainsi que nous le considérons maintenant.
+17) Ainsi, si quelqu’un est uni à [[Jésus|Christ]], il appartient à une nouvelle création  : les choses anciennes sont passées : voici, les choses nouvelles sont venues.
+18) Tout cela est l’œuvre de [[Dieu]], qui nous a réconciliés avec lui par [[Jésus|Christ]] et qui nous a confié le ministère de la réconciliation.
+19) En effet, [[Dieu]] était en [[Jésus|Christ]], réconciliant les hommes avec lui-même, sans tenir compte de leurs fautes, et il a fait de nous les dépositaires du message de la réconciliation.
+20) Nous faisons donc fonction d’ambassadeurs au nom de [[Jésus|Christ]], comme si [[Dieu]] adressait par nous cette invitation aux hommes : « Au nom de [[Jésus|Christ]], nous vous en supplions : soyez réconciliés avec [[Dieu]].
 21) Celui qui était innocent de tout péché, [[Dieu]] l’a condamné comme un pécheur à notre place pour que, dans l’union avec [[Jésus|Christ]], nous recevions la justice que [[Dieu]] accorde. »
 ## Chapitre 6
 ### Versets 14 à 18

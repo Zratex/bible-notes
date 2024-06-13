@@ -20,7 +20,7 @@ Nous avons peur et trouvons des excuses.
 > Les hauteurs aussi empêchent la connaissance de Dieu
 ## - Pensées
 Il est ici sujet des <u>pensées</u> qui ne sont pas alignés a celle de Dieu.
-[[Philippiens#Versets 6 et 7|Philippiens 4:6-7]] et [[Philippiens#Versets 8 et 9|Philippiens 4:8-9]]
+[[11 - Philippiens#Versets 6 et 7|Philippiens 4:6-7]] et [[11 - Philippiens#Versets 8 et 9|Philippiens 4:8-9]]
 -> Que la vérité soit l'objet principal de nos pensées
 
 [[20&21 - Pierre#Versets 15 et 16|1 Pierre 1:15-16]] et [[20&21 - Pierre#^4b5c8f|1 Pierre 1:17]] : quand tu [[Sagesse#Point de départ de la Sagesse|craints]] Dieu, tu ne fais pas de tord a quelqu'un

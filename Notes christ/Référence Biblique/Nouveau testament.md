@@ -14,12 +14,12 @@ Ce testament est séparé en plusieurs parties :
   - [[7&8 - Corinthiens#2 Corinthiens|2 Corinthiens]]
   - [[9 - Galates|Galates]]
   - [[10 - Ephésiens|Ephésiens]]
-  - [[Philippiens]]
+  - [[11 - Philippiens|Philippiens]]
   - [[12 - Colossiens|Colossiens]]
   - 1 et 2 Thessaloniciens
   - [[15&16 - Timothée#1 Timothée|1 Timothée]]
   - [[15&16 - Timothée#2 Timothée|2 Timothée]]
-  - Tite
+  - [[17 - Tite|Tite]]
   - Philémon
 - Lettres générales :
 	- Hébreux

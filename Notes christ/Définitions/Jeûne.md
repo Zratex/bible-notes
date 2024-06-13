@@ -1,8 +1,12 @@
 Notes sur le jeûne réalisé par moi même.
+
+Important à noter à propos du jeûne :
+[[7&8 - Corinthiens#Versets 12 à 20|1 Corinthiens 6:12]] il ne faut donc pas punir le corps car c'est simplement le corps. Donc il faut veiller à ce qu'un jeûne ==ne nous mettes pas en danger==
 ## Pourquoi faire un jeûne
 (basé sur [[Wake up#Jeûne]])
 [[9 - Galates#Versets 13 à 26|Galates 5:16-23]] le corps a des désirs charnels qui sont contre ceux de l'[[Saint-Esprit|Esprit]] et donc de la [[La Loi de Dieu|Loi]]. De ce fait, [[Paul]] dit qu'il faut être mené par l'[[Saint-Esprit|Esprit]] plutôt que le corps, ce qui est le principe d'un jeûne.
 > Mettre de côté le corps pour laisser place au spirituel
+
 ### Le jeûne contre l'endormissement
 Il faut veiller à ne pas s'endormir ([[30 - Amos#Versets 1 à 7|Amos 6:1]]), càd vivre tranquillement et trop s'habituer à celle ci, car cela laisse de la place au péché et donc à [[Satan]].
 1) Exemple d'un homme qui s'est laissé s'endormir

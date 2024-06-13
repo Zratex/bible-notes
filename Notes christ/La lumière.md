@@ -1,6 +1,6 @@
 `Matthieu 5:1-2` [[Dieu]] attend de nous qu'on vienne à lui comme un enfant envers ses parents. [[Jésus]] explique comment vivre notre vie de discipline dans [[1er Evangile - Matthieu|Matthieu chapitres 5 à 7]]
-
-`Matthieu 5:13-16` c'est notre identité : nous sommes la lumière de ce monde. La question est ce que l'on fait de ce sel.
+### [[Identité en Christ|Identité]]
+`Matthieu 5:13-16` c'est notre [[Identité en Christ|identité]] : nous sommes la lumière de ce monde. La question est qu'est ce que l'on fait de ce sel.
 
 ## L'utilisation pratique du sel
 - Fondre la neige

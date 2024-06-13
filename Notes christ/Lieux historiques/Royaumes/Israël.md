@@ -1,4 +1,7 @@
 Note sur l'aspect géographique et le royaume d'Israël.
+
+Concrètement le résumé du peuple d'Israël : [[6 - Romains#Versets 1 à 13|Romains 10:1-4]] et [[6 - Romains#Versets 14 à 21|Romains 10:21]]
+
 Royaume des juifs fondé depuis la famille de [[Jacob]], désigné dans la [[Bible]] comme étant le peuple de [[Dieu]].
 > Ce qu'une grande partie de son histoire (de sa création jusqu'aux ministères qui ont suivis [[Jésus]]) est présente dans la [[Bible]].
 
