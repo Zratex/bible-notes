@@ -8,7 +8,7 @@ Intitulé **L'Esprit et l'homme livré à lui même** par [[Bible#^358f23|BDS]]
 15) Mais si vous vous blessez les uns les autres et si vous vous entre-déchirez, prenez garde ! vous vous détruirez mutuellement.
 16) Je vous dis donc ceci : menez votre vie dans la dépendance du [[Saint-Esprit]], et vous n’obéirez pas aux désirs qui animent l’homme livré à lui-même.
 17) Car ses désirs sont diamétralement opposés à ceux de l’[[Saint-Esprit|Esprit]] ; et l’Esprit a des désirs qui s’opposent à ceux de l’homme livré à lui-même. Les deux sont opposés l’un à l’autre, c’est pourquoi vous ne pouvez pas être votre propre maître.
-18) Mais si vous êtes conduits par l’Esprit, vous n’êtes plus sous le régime de la [[La Loi de Dieu|Loi]].
+18) Mais si vous êtes conduits par l’[[Saint-Esprit|Esprit]], vous n’êtes plus sous le régime de la [[La Loi de Dieu|Loi]].
 19) Tout le monde voit bien ce qui procède de l’homme livré à lui-même : l’immoralité, les pratiques dégradantes et la débauche,
 20) l’adoration des idoles et la magie, les haines, les querelles, la jalousie, les accès de colère, les rivalités, les dissensions, les divisions,
 21) l’envie, l’ivrognerie, les orgies et autres choses de ce genre. Je ne puis que répéter ce que j’ai déjà déclaré à ce sujet : ceux qui commettent de telles actions n’auront aucune part à l’héritage du royaume de [[Dieu]].
