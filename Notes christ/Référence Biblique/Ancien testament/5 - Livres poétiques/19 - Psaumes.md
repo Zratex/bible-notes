@@ -63,3 +63,40 @@ Intitulé **Le témoignage de l'expérience** par [[Bible#^358f23|BDS]]
    et, dans le pays, ╵tu demeureras ╵et tu jouiras ╵de bons pâturages ╵en sécurité.
 4) En [[Dieu]], mets ta joie
    et il comblera ╵les vœux de ton cœur.
+
+## Chapitre 84
+Intitulé **Je soupire après ton temple** par [[Bible#^358f23|BDS]]
+
+1) *Au chef de chœur. Un psaume des Qoréites, à chanter avec accompagnement de la harpe de [[Gath]].*
+2) Oh ! Comme tes demeures sont désirables !
+   [[Dieu|Eternel]], [[Seigneur et non seulement sauveur|Seigneur]] des armées célestes !
+3) Je languis et je soupire, [[Dieu|Eternel]], après tes parvis,
+   mon être entier crie sa joie vers le [[Dieu]] vivant.
+4) Le moineau découvre un gîte,
+   l’hirondelle trouve un nid où déposer ses petits,
+   près de tes autels, [[Dieu|Eternel]], [[Seigneur et non seulement sauveur|Seigneur]] des armées célestes,
+   mon Roi et mon [[Dieu]] !
+5) Bienheureux ceux qui habitent [[Dieu|ta]] maison,
+   car ils pourront te louer toujours.
+   *Pause*
+6) Bienheureux les hommes dont [[Dieu|tu]] es la force :
+   dans leur cœur, ils trouvent des chemins tracés.
+7) Car lorsqu’ils traversent la vallée des Larmes,
+   ils en font une oasis,
+   et la pluie d’automne vient la recouvrir de bénédictions.
+8) D’étape en étape, leur vigueur s’accroît
+   et ils se présentent à [[Dieu]] en [[Sion]].
+9) [[Dieu|Eternel]], ô [[Dieu]] des armées célestes, entends ma prière !
+   Veuille m’écouter, ô [[Dieu]] de [[Jacob]] !
+   *Pause*
+10) Toi, ô [[Dieu]], qui es notre bouclier, veuille regarder
+    l’homme qui a reçu de ta part l’onction d’huile, et lui faire bon accueil.
+11) Car un jour dans tes parvis vaut bien mieux que mille ailleurs.
+    Plutôt rester sur le seuil de la maison de mon [[Dieu]],
+    que de demeurer sous les tentes des méchants.
+12) Car l’[[Dieu|Eternel Dieu]] est pour nous comme un soleil, il est comme un bouclier.
+    L’[[Dieu|Eternel]] accorde bienveillance et gloire,
+    il ne refuse aucun bien
+    à ceux qui cheminent dans l’intégrité.
+13) [[Dieu|Eternel]], Seigneur des armées célestes,
+    bienheureux est l’homme ╵qui met sa confiance en toi.

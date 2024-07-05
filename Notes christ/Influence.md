@@ -26,7 +26,7 @@ Exemple du divorce : quelques principes bibliques peuvent permettre le divorce, 
 
 [[Jésus]] n'a pas reprimende Juda mais l'a aimé. Or, Juda n'a jamais mis en prière ces influences.
 
-[[caaen]] s'est fait influencer par la jalousie et la colère, et ce n'est pas soudainement à cause du sacrifice.
+[[Caïn]] s'est fait influencer par la jalousie et la colère, et ce n'est pas soudainement à cause du sacrifice.
 
 [[Saül]] s'est fait influencé par l'arrogance.
 

@@ -1,0 +1,1 @@
+**Sion** peut représenter plusieurs lieux géographiques en [[Israël]] (par exemple, ça peut être la colline de [[Jérusalem]], ou la maison de [[David]]) en fonction des passages de la [[Bible]], mais concrètement, ==c'est un l'endroit où se trouve la présence de [[Dieu]].==

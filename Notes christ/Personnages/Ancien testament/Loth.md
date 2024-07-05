@@ -1,1 +1,1 @@
-Frère d'[[Abraham]] qui dû se séparer de sa famille, comme décrit dans la note [[L'affaire#la séparation|La séparation]]
+Fils de [[Haran]] donc neveu d'[[Abraham]] ([[Genèse#Versets 1 à 9|Genèse 12:5]]) qui dû se séparer de sa famille, comme décrit dans la note [[L'affaire#la séparation|La séparation]]

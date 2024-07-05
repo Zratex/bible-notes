@@ -51,6 +51,19 @@ Intitulé **La rupture de l'[[Alliance (ou contrat)|alliance]]** par [[Bible#^35
 7) Alors la [[Eve|femme]] vit que le fruit de l’arbre était bon à manger, agréable aux yeux, et qu’il était précieux pour ouvrir l’intelligence. Elle prit donc de son fruit et en mangea. Elle en donna aussi à son [[Adam|mari]] qui était avec elle, et il en mangea.
 8) Alors les yeux de tous deux s’ouvrirent et ils se rendirent compte qu’ils étaient nus. Ils se firent donc des pagnes en cousant ensemble des feuilles de figuier.
 ## Chapitre 12
+### Versets 1 à 9
+Intitulé **L'appel d'[[Abraham|Abram]]** par [[Bible#^358f23|BDS]]
+
+1) L’[[Dieu|Eternel]] dit à [[Abraham|Abram]] : Va, quitte ton pays, ta famille et la maison de ton père pour te rendre dans le pays que je t’indiquerai.
+2) [[Dieu|Je]] ferai de [[Abraham|toi]] l’ancêtre d’un grand peuple ; je te bénirai, je ferai de toi un personnage renommé et tu deviendras une source de bénédiction pour d’autres.
+3) [[Dieu|Je]] bénirai ceux qui te béniront et je maudirai ceux qui t’outrageront. Toutes les familles de la terre seront bénies à travers toi.
+4) [[Abraham|Abram]] partit comme l’[[Dieu|Eternel]] le lui avait demandé, et [[Loth]] s’en alla avec lui. [[Abraham|Abram]] avait soixante-quinze ans quand il quitta [[Haran|Harân]].
+5) Il emmena [[Sarah|Saraï]], sa femme, son neveu [[Loth]], tous les biens et les serviteurs qu’ils avaient acquis à [[Haran|Harân]], et ils se mirent en route pour aller au pays de [[Canaan]]. Quand ils furent arrivés,
+6) [[Abraham|Abram]] traversa le pays jusqu’à un lieu appelé Sichem, jusqu’au chêne de Moré. A cette époque-là, les [[Canaan|Cananéens]] habitaient le pays.
+7) L’[[Dieu|Eternel]] apparut à [[Abraham|Abram]] et lui dit : Je donnerai ce [[Canaan|pays]] à ta descendance.
+   [[Abraham|Abram]] érigea là un autel à l’[[Dieu|Eternel]] qui lui était apparu.
+8) Puis [[Abraham|il]] leva le camp pour se rendre dans la région montagneuse à l’est de [[Béthel]]  ; il établit son campement entre [[Béthel]], à l’ouest, et Aï, à l’est. Il y érigea un autre autel à l’[[Dieu|Eternel]] et lui adressa des prières.
+9) Ensuite [[Abraham|Abram]] repartit vers le sud ; d’étape en étape, il gagna le [[Néguev|Néguev]].
 ### Versets 10 à 20
 Intitulé **[[Abraham|Abram]] en [[Egypte]]** par [[Bible#^358f23|BDS]]
 #### Versets 18 à 20

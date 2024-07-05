@@ -1,0 +1,1 @@
+Frère d'[[Abraham]], père de [[Loth]]
