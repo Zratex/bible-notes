@@ -30,3 +30,10 @@ Intitulé **Tout pleinement en [[Jésus|Christ]]** par [[Bible#^358f23|BDS]]
     quand il les a traînés
     dans son cortège triomphal
     après sa victoire à la croix.
+
+## Chapitre 3
+
+1) Mais vous êtes aussi ressuscités avec [[Jésus|Christ]] : recherchez donc les réalités d’en haut, là où se trouve [[Jésus|Christ]], qui siège à la droite de [[Dieu]].
+2) De toute votre pensée, tendez vers les réalités d’en haut, et non vers celles qui appartiennent à la terre.
+3) Car vous êtes morts, et votre vie est cachée avec [[Jésus|Christ]] en [[Dieu]].
+4) Lorsque [[Jésus|Christ]] apparaîtra, lui qui est votre vie, alors vous paraîtrez, vous aussi, avec lui, dans la gloire.

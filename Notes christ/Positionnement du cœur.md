@@ -39,6 +39,6 @@ La bonne question question n'est pas **"Comment dois je faire ?"** mais plutôt 
 
 - Exemple d'Ulrich : en passant du CHU de Limoges au ministère d'Angers il gagnait moins d'argent. Malgré tout il a décidé de donner plus
 
-[[18 - Hébreux#Versets 15 à 18|Hébreux 10:15-18]]
+[[18 - Hébreux#Versets 1 à 18|Hébreux 10:15-18]]
 
 On fait un cadeau à la mesure de notre amour, tout comme ce que l'on fait avec nos proches. On se limite pas à un budget, donc la même idée s'applique aux Dîmes.
