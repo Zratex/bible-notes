@@ -110,7 +110,19 @@
               "type": "markdown",
               "state": {
                 "file": "Vie victorieuse en Christ.md",
-                "mode": "preview",
+                "mode": "source",
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "0c2835358d219d94",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "L'attitude du vainqueur.md",
+                "mode": "source",
                 "source": false
               }
             }
@@ -230,6 +242,8 @@
   },
   "active": "66b64099e0227a92",
   "lastOpenFiles": [
+    "L'attitude du vainqueur.md",
+    "Vie victorieuse en Christ.md",
     "Lieux historiques/Villes/Kalné.md",
     "Personnages/Jésus.md",
     "Référence Biblique/Ancien testament/3 - Premiers livres historiques/11&12 - Rois.md",
@@ -240,7 +254,6 @@
     "Référence Biblique/Nouveau testament/3 - Lettres de Paul/7&8 - Corinthiens.md",
     "Où est le trésor.md",
     "Influence.md",
-    "Vie victorieuse en Christ.md",
     "Référence Biblique/Nouveau testament/4 - Lettres générales/18 - Hébreux.md",
     "Référence Biblique/Nouveau testament/3 - Lettres de Paul/12 - Colossiens.md",
     "Chemins tout tracés.md",
@@ -255,7 +268,6 @@
     "Référence Biblique/Ancien Testament.md",
     "Fruit.md",
     "Référence Biblique/Ancien testament/7 - Seconds livres prophétiques/32 - Jonas.md",
-    "Lieux historiques/Villes/Ninive.md",
     "Lieux historiques/Images/Carte Judée.png",
     "Versets"
   ]

@@ -4,15 +4,19 @@
     "type": "split",
     "children": [
       {
-        "id": "7aecaaad94320c99",
+        "id": "af9a80320fafdcb8",
         "type": "tabs",
         "children": [
           {
-            "id": "d065c21097872c66",
+            "id": "110ed676a4a5acf3",
             "type": "leaf",
             "state": {
-              "type": "graph",
-              "state": {}
+              "type": "markdown",
+              "state": {
+                "file": "Vie victorieuse en Christ.md",
+                "mode": "source",
+                "source": false
+              }
             }
           }
         ]
@@ -44,7 +48,7 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "tessalo",
+                "query": "",
                 "matchingCase": false,
                 "explainSearch": false,
                 "collapseAll": false,
@@ -81,6 +85,7 @@
             "state": {
               "type": "backlink",
               "state": {
+                "file": "Vie victorieuse en Christ.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -97,6 +102,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
+                "file": "Vie victorieuse en Christ.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -118,7 +124,9 @@
             "type": "leaf",
             "state": {
               "type": "outline",
-              "state": {}
+              "state": {
+                "file": "Vie victorieuse en Christ.md"
+              }
             }
           },
           {
@@ -150,35 +158,37 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "d065c21097872c66",
+  "active": "110ed676a4a5acf3",
   "lastOpenFiles": [
+    "Attitude du vainqueur.md",
+    "Vie victorieuse en Christ.md",
+    "Vie victorieuse en Christ.sync-conflict-20240729-163416-4D4KN2W.md",
+    "~syncthing~Vie victorieuse en Christ.sync-conflict-20240729-163416-4D4KN2W.md.tmp",
+    "~syncthing~L'attitude du vainqueur.md.tmp",
     "Tentation (note).md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/9 - Galates.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/6 - Romains.md",
-    "Note sur l'évangile.md",
-    "Référence Biblique/Ancien testament/1 - Le commencement/Genèse.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/7&8 - Corinthiens.md",
+    "Sagesse (note).md",
+    "Lieux historiques/Villes/Rome.md",
     "Lieux historiques/Régions géographiques/Macédoine.md",
-    "Définitions/Tentation.md",
     "Lieux historiques/Régions géographiques/Achaïe.md",
     "Lieux historiques/Royaumes/Romains.md",
-    "Lieux historiques/Villes/Rome.md",
-    "Référence Biblique/Nouveau testament/4 - Lettres générales/19 - Jacques.md",
-    "Personnages/Ancien testament/Adam.md",
-    "Sagesse (note).md",
-    "Personnages/Ancien testament/Rois d'Israel/Salomon.md",
+    "Définitions/Tentation.md",
     "Définitions/Sagesse.md",
-    "Référence Biblique/Nouveau testament/4 - Lettres générales/18 - Hébreux.md",
-    "Lieux historiques/Régions géographiques/Galilée.md",
-    "Définitions/Seigneur.md",
-    "Vie victorieuse en Christ.md",
     "Changement.md",
     "Référence Biblique/Nouveau testament/4 - Lettres générales/22&23&24 - Livres de Jean.md",
+    "Référence Biblique/Nouveau testament/4 - Lettres générales/18 - Hébreux.md",
     "Positionnement du cœur.md",
     "Référence Biblique/Nouveau testament/3 - Lettres de Paul/12 - Colossiens.md",
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/7&8 - Corinthiens.md",
     "Personnages/Ancien testament/Caïn.md",
     "Alliance (ou contrat).md",
+    "A quiconque désire suivre Jésus.md",
+    "Chemins tout tracés.md",
+    "L'affaire.md",
     "~syncthing~Vie victorieuse en Christ.md.tmp",
+    "Personnages/Ancien testament/Sarah.md",
+    "Personnages/Ancien testament/Haran.md",
+    "Définitions/Sion.md",
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/9 - Galates.md",
     "Personnages/Ancien testament/Chute de Judée/Perses",
     "Personnages/Ancien testament/Chute de Judée/Babyloniens",
     "Personnages/Ancien testament/Chute de Judée",
@@ -195,8 +205,6 @@
     "Lieux historiques/Images/Babylone.PNG",
     "Lieux historiques/Images/Asie mineure.jpg",
     "Lieux historiques/Images/Asie mineure.jpg.crdownload",
-    "Lieux historiques/Images/Galatie.png",
-    "Lieux historiques/Images/Galatie.png.0.pdnSave",
-    "~syncthing~La marche d'Élie.md.tmp"
+    "Lieux historiques/Images/Galatie.png"
   ]
 }
