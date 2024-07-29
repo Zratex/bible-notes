@@ -27,6 +27,7 @@ Suivez ces étapes :
 - Installez [Obsidian](https://obsidian.md/) sur votre machine
   - [Optionnel] : Paramètrez Obsdian selon vos préférences. Normalement cela ne devrait pas affecter les notes qui ont été prises
 - Ouvrez avec Obsidian le dossier `Notes christ` que vous avez précédemment téléchargé
+  - Lors de l'ouverture, vous devez accepter ce que vous demandera Obsidian. Cela installera le plugin pour mettre à jour votre dépôt local, et avoir un tri de couleur comme le miens pour le graph.
 - Enjoy!
 ## Modifier les notes
 
@@ -37,20 +38,8 @@ Ce n'est évidemment pas la seule solution, donc si vous vous y connaissez faite
 ## Mettre à jour le dépôt
 > Lisez le segment à propos des modifications avant de lire ceci
 
-Pour mettre à jour de dépôt, assurez vous que vous n'avez réalisé aucunes modifications.
+Lors du téléchargement de ce dépôt, dès que vous appuirez sur la touche `F5` de votre clavier sur Obsidian, votre dépôt local se mettra automatiquement à jour.
 
-Ensuite, il existe 2 méthodes pour mettre à jour votre dépôt :
-#### Via Git bash
-Ensuite, avec le même outil où vous avez initialement réalisé la commande `git clone` pour récupérer mes notes sur votre machines, executez la commande `git pull` (Si vous utilisez un logiciel dédié, cherchez sur internet comment **pull** avec votre logiciel)
-#### Via Obsidian
-- Installez le plugin `Obsidian Git` dans les plugins communautaires (accessible depuis les paramètres du logiciel)
-- Activez le plugin
-- Allez dans la catégorie "Hotkeys" dans les paramètres d'Obsidian
-- Dans la barre de recherche, cherchez `pull`
-- Attribuez une touche à cette commande en appuyant sur le bouton **+** : pour moi par exemple c'est `F5`
-- Pressez votre touche, et sélectionnez `origin` puis ensuite `origin/main` pour mettre à jour votre dossier
-
-Désormais, à chaque vous que vous voudriez mettre à jour votre dépôt, il vous suffira d'appuyer sur votre bouton de prédilection.
 > Si vous rencontrez des erreurs, c'est parce que vous avez apporté des modifications à votre dépôt
 
 # Voilà !
