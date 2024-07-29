@@ -35,9 +35,9 @@ Intitulé **Les impératifs de la vie chrétienne...** par [[Bible#^46e624|S21]]
 > Référence à `Lévitique 19:2`
 
 #### Versets 17 à 21
-Intitulé **Vivre dans la [[Sagesse#Point de départ de la Sagesse|crainte]] de [[Dieu]]** par [[Bible#^358f23|BDS]]
+Intitulé **Vivre dans la [[Sagesse (note)#Point de départ de la Sagesse|crainte]] de [[Dieu]]** par [[Bible#^358f23|BDS]]
 
-17) Dans vos prières, vous appelez [[Dieu|Père]] celui qui juge impartialement tout homme selon ses actes. Par conséquent, pendant tout le temps de votre séjour en ce monde, que la [[Sagesse#Point de départ de la Sagesse|crainte]] de [[Dieu]] inspire votre conduite. ^4b5c8f
+17) Dans vos prières, vous appelez [[Dieu|Père]] celui qui juge impartialement tout homme selon ses actes. Par conséquent, pendant tout le temps de votre séjour en ce monde, que la [[Sagesse (note)#Point de départ de la Sagesse|crainte]] de [[Dieu]] inspire votre conduite. ^4b5c8f
 18) Vous avez été libérés de cette manière futile de vivre que vous ont transmise vos ancêtres et vous savez à quel prix. Ce n’est pas par des biens périssables comme l’argent et l’or.
 19) Non, il a fallu que [[Jésus|Christ]], tel un agneau pur et sans défaut, verse son sang précieux en sacrifice pour vous
 20) Dès avant la création du monde, [[Dieu]] l’avait choisi pour cela, et il a paru, dans ces temps qui sont les derniers, pour agir en votre faveur.

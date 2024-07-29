@@ -24,4 +24,4 @@ Dieu connais toute de chose. Mais il oublie les péchés **seulement** ceux qu'o
 #### Paroles que nous disons
 Avec tout cela, il nous est impossible d'être maudit. Donc, il n'y a que nous qui pouvons nous maudir.
 Par extension :
-Ce que l'on maudit nous maudira. Il faut donc avoir de la [[Sagesse#Sagesse|sagesse]] pour dire des paroles de bénédictions et de malédictions.
+Ce que l'on maudit nous maudira. Il faut donc avoir de la [[Sagesse (note)#Sagesse|sagesse]] pour dire des paroles de bénédictions et de malédictions.

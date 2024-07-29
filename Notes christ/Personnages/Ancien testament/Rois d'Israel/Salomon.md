@@ -1,1 +1,1 @@
-Dit l'homme le plus [[Sagesse#^dd161f|sage]], fils de [[David]]
+Dit l'homme le plus [[Sagesse|sage]], fils de [[David]]

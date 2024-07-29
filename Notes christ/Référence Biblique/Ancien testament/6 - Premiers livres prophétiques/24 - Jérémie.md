@@ -1,10 +1,10 @@
 Ecrit par [[Jérémie]]
 ## Chapitre 9
 ### Versets 22 à 25
-Intitulé **Vraie et fausse [[Sagesse]]** par [[Bible#^358f23|BDS]]
+Intitulé **Vraie et fausse [[Sagesse (note)]]** par [[Bible#^358f23|BDS]]
 
 22) L’Eternel dit ceci :
-    Que celui qui est sage ne se glorifie pas de sa [[Sagesse]] ;
+    Que celui qui est sage ne se glorifie pas de sa [[Sagesse (note)]] ;
     que celui qui est fort ne se glorifie pas de sa vigueur ;
     que celui qui est riche ne se glorifie pas de sa richesse.
 23) Celui qui veut se glorifier, qu’il se glorifie de ceci :

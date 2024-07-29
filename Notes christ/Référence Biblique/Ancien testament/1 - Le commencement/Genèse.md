@@ -47,9 +47,53 @@ Intitulé **La création de l'univers** par [[Bible#^358f23|BDS]]
 3) [[Dieu|Il]] bénit le septième jour, [[Dieu|il]] en fit un jour saint, car, en ce jour-là, [[Dieu|il]] se reposa de toute l’œuvre de création qu’[[Dieu|il]] avait accomplie.
 ## Chapitre 3
 Intitulé **La rupture de l'[[Alliance (ou contrat)|alliance]]** par [[Bible#^358f23|BDS]]
-### Versets 6 et 7
-7) Alors la [[Eve|femme]] vit que le fruit de l’arbre était bon à manger, agréable aux yeux, et qu’il était précieux pour ouvrir l’intelligence. Elle prit donc de son fruit et en mangea. Elle en donna aussi à son [[Adam|mari]] qui était avec elle, et il en mangea.
-8) Alors les yeux de tous deux s’ouvrirent et ils se rendirent compte qu’ils étaient nus. Ils se firent donc des pagnes en cousant ensemble des feuilles de figuier.
+
+1) Le [[Satan|Serpent]] était le plus astucieux de tous les animaux des champs que l’[[Dieu|Eternel Dieu]] avait faits. [[Satan|Il]] demanda à la [[Eve|femme]] : Vraiment, [[Dieu]] vous a dit : « Vous n’avez pas le droit de manger du fruit de tous les arbres du jardin ! » ?
+2) La [[Eve|femme]] répondit au [[Satan|Serpent]] : Nous mangeons des fruits des arbres du jardin,
+3) mais celui qui est au milieu du jardin [[Dieu]] a dit de ne pas manger de son fruit et de ne pas y toucher sinon nous mourrons.
+4) Alors le [[Satan|Serpent]] dit à la [[Eve|femme]] : Mais pas du tout ! Vous ne mourrez pas !
+5) Seulement [[Dieu]] sait bien que le jour où vous en mangerez, vos yeux s’ouvriront et vous serez comme [[Dieu]], décidant vous-mêmes ce qui est bien ou mal.
+6) Alors la [[Eve|femme]] vit que le fruit de l’arbre était bon à manger, agréable aux yeux, et qu’il était précieux pour ouvrir l’intelligence. Elle prit donc de son fruit et en mangea. Elle en donna aussi à son [[Adam|mari]] qui était avec elle, et il en mangea.
+7) Alors les yeux de tous deux s’ouvrirent et ils se rendirent compte qu’ils étaient nus. Ils se firent donc des pagnes en cousant ensemble des feuilles de figuier.
+8) Au moment de la brise du soir, ils entendirent la voix de l’[[Dieu|Eternel Dieu]] parcourant le jardin. Alors l’homme et sa femme se cachèrent de l’[[Dieu|Eternel Dieu]] parmi les arbres du jardin.
+9) Mais l’[[Dieu|Eternel Dieu]] appela l’[[Adam|homme]] et lui demanda : Où es-tu ?
+10) Celui-ci répondit : [[Adam|J]]’ai entendu ta voix dans le jardin et j’ai eu peur, car je suis nu ; alors je me suis caché.
+11) [[Dieu]] dit : Qui t’a appris que tu es nu ? Aurais-tu mangé du fruit de l’arbre dont je t’avais défendu de manger ?
+12) [[Adam]] répondit : La [[Eve|femme]] que tu as placée auprès de moi, c’est elle qui m’en a donné, et j’en ai mangé.
+13) L’[[Dieu|Eternel Dieu]] dit à la [[Eve|femme]] : Pourquoi as-tu fait cela ?
+    – C’est le [[Satan|Serpent]] qui m’a trompée, répondit la [[Eve|femme]], et j’en ai mangé.
+14) Alors l’[[Dieu|Eternel Dieu]] dit au [[Satan|Serpent]] :
+    Puisque toi, tu as fait cela,
+    tu es maudit ╵parmi tout le bétail
+    et tous les animaux sauvages :
+    tu te traîneras sur le ventre,
+    tu mangeras de la poussière
+    tout au long de ta vie.
+15) Je susciterai de l’hostilité ╵entre [[Satan|toi]] et la [[Eve|femme]],
+    entre ta descendance ╵et sa descendance.
+    Celle-ci t’écrasera la tête,
+    et tu lui mordras le talon.
+16) [[Dieu]] dit à la [[Eve|femme]] :
+    Je rendrai tes grossesses très pénibles
+    et c’est dans la souffrance ╵que tu mettras au monde tes enfants.
+    Tes attentes seront tournées vers ton [[Adam|mari]],
+    mais lui, il te dominera.
+17) Il dit à [[Adam]] : Puisque tu as écouté ta [[Eve|femme]] et que tu as mangé du fruit de l’arbre dont je t’avais défendu de manger,
+    le sol est maudit à cause de toi.
+    C’est avec peine ╵que tu en tireras ta nourriture
+    tout au long de ta vie.
+18) Il [[Adam|te]] produira des épines ╵et des chardons ;
+    et [[Adam|tu]] mangeras des produits du sol.
+19) [[Adam|Tu]] en tireras ton pain à la sueur de ton front
+    jusqu’à ce que tu retournes à la terre,
+    puisque tu as été tiré de celle-ci.
+    Car toi, tu es poussière
+    et tu retourneras à la poussière.
+20) L’[[Adam|homme]] nomma sa femme [[Eve]] (Vie) ; elle est devenue en effet la mère de toute vie humaine.
+21) L’[[Dieu|Eternel Dieu]] fit à [[Adam]] et à sa [[Eve|femme]] des vêtements de peau pour les habiller.
+22) Puis [[Dieu|il]] dit : Voici que l’homme est devenu comme l’un de nous pour décider du bien et du mal. Maintenant il ne faudrait pas qu’il tende la main pour cueillir aussi du fruit de l’arbre de la vie, qu’il en mange et qu’il vive éternellement.
+23) Alors l’[[Dieu|Eternel Dieu]] le chassa du jardin d’Eden pour qu’il travaille le sol d’où il avait été tiré.
+24) Après avoir chassé l’homme, [[Dieu|il]] posta des chérubins à l’est du jardin d’Eden, avec une épée flamboyante tournoyant en tous sens pour barrer l’accès de l’arbre de la vie.
 ## Chapitre 12
 ### Versets 1 à 9
 Intitulé **L'appel d'[[Abraham|Abram]]** par [[Bible#^358f23|BDS]]

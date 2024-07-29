@@ -1,0 +1,1 @@
+Région correspondant à l'actuelle région de la Macédoine grecque, et du pays de la Macédoine du Nord.

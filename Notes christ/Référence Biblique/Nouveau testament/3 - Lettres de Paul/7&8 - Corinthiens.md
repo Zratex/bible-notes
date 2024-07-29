@@ -2,17 +2,17 @@
 # 1 Corinthiens
 ## Chapitre 1
 ### Versets 18 à 31
-Intitulé **La [[Sagesse]] des hommes et la folie de [[Dieu]]** par [[Bible#^358f23|BDS]]
+Intitulé **La [[Sagesse (note)]] des hommes et la folie de [[Dieu]]** par [[Bible#^358f23|BDS]]
 
 18) En effet, la prédication de la mort de Christ sur une croix est une folie aux yeux de ceux qui se perdent. Mais pour nous qui sommes sauvés, elle est la puissance même de Dieu.
 19) N’est-il pas écrit :
-    *Je détruirai la [[Sagesse|sagesse]] des sages*
+    *Je détruirai la [[Sagesse (note)|sagesse]] des sages*
     *et je réduirai à néant l’intelligence des intelligents*
 
 Référence à [[23 - Esaïe#Versets 13 et 14|Esaïe 29:13-14]]
 
-20) Où est le sage ? Où est le spécialiste de la Loi ? Où est le raisonneur de ce monde ? [[Dieu]] n’a-t-il pas changé en folie la [[Sagesse]] du monde ?
-21) En effet, là où la [[Sagesse]] divine s’est manifestée, le monde n’a pas reconnu [[Dieu]] par le moyen de la sagesse. C’est pourquoi [[Dieu]] a jugé bon de sauver ceux qui croient, par un message qui annonce une folie.
+20) Où est le sage ? Où est le spécialiste de la Loi ? Où est le raisonneur de ce monde ? [[Dieu]] n’a-t-il pas changé en folie la [[Sagesse (note)]] du monde ?
+21) En effet, là où la [[Sagesse (note)]] divine s’est manifestée, le monde n’a pas reconnu [[Dieu]] par le moyen de la sagesse. C’est pourquoi [[Dieu]] a jugé bon de sauver ceux qui croient, par un message qui annonce une folie.
 22) Oui, tandis que, d’un côté, les Juifs réclament des signes miraculeux et que, de l’autre, les Grecs recherchent « la sagesse »,
 23) nous, nous prêchons [[Jésus|Christ]] mis en croix, ce qui est une cause de rejet pour les Juifs et une folie pour les Grecs.
 24) Mais pour tous ceux que [[Dieu]] appelle, qu’ils soient juifs ou grecs, [[Jésus|Christ]] est puissance de [[Dieu]] et sagesse de [[Dieu]].
@@ -21,7 +21,7 @@ Référence à [[23 - Esaïe#Versets 13 et 14|Esaïe 29:13-14]]
 27) Non ! [[Dieu]] a choisi ce que le monde considère comme une folie pour confondre les sages, et il a choisi ce qui est faible pour couvrir de honte les puissants.
 28) [[Dieu]] a porté son choix sur ce qui n’a aucune noblesse et que le monde méprise, sur ce qui est considéré comme insignifiant, pour réduire à néant ce que le monde estime important.
 29) Ainsi, aucune créature ne pourra se vanter devant [[Dieu]].
-30) Par lui, vous êtes unis à [[Jésus|Christ]], qui est devenu pour nous cette [[Sagesse]] qui vient de [[Dieu]], justice, purification et délivrance.
+30) Par lui, vous êtes unis à [[Jésus|Christ]], qui est devenu pour nous cette [[Sagesse (note)]] qui vient de [[Dieu]], justice, purification et délivrance.
 31) Et il en est ainsi pour que soit respecté ce commandement de l’Ecriture :
     *Celui qui veut éprouver de la fierté,*
     *qu’il place sa fierté dans le [[Dieu|Seigneur]]*
@@ -47,7 +47,7 @@ Intitulé **Le rôle des prédicateurs de l'[[Note sur l'évangile|Evangile]]** 
 15) mais si elle est consumée, il en subira les conséquences. Lui, personnellement, sera sauvé, mais tout juste, comme un homme qui réussit à échapper au feu.
 16) Ne savez-vous pas que vous êtes le temple de [[Dieu]] et que l’[[Saint-Esprit|Esprit]] de [[Dieu]] habite en vous ?
 17) Si quelqu’un détruit son temple, [[Dieu]] le détruira. Car son temple est saint, et vous êtes ce temple.
-18) Que personne ne se fasse d’illusions sur ce point. Si quelqu’un parmi vous se croit sage selon les critères de ce monde, qu’il devienne fou afin de devenir véritablement [[Sagesse|sage]].
+18) Que personne ne se fasse d’illusions sur ce point. Si quelqu’un parmi vous se croit sage selon les critères de ce monde, qu’il devienne fou afin de devenir véritablement [[Sagesse (note)|sage]].
 19) Car ce qui passe pour sagesse dans ce monde est folie aux yeux de [[Dieu]]. Il est écrit en effet : *Il attrape les sages à leur propre piège,*
 20) et encore : *Le [[Dieu|Seigneur]] connaît les pensées des sages : elles ne sont que du vent.*
 21) Que personne ne mette donc sa fierté dans des hommes, car tout est à vous,
@@ -146,3 +146,23 @@ Intitulé par la version [[Bible#^358f23|BDS]] **Paul défend son apostolat | L'
 
 5) ainsi que tout ce qui se dresse présomptueusement contre la connaissance de [[Dieu]], et nous faisons prisonnière toute pensée pour l’amener à obéir à [[Jésus|Christ]].
 6) Aussi sommes-nous prêts à punir toute désobéissance dès que votre obéissance sera entière.
+
+## Chapitre 11
+### Versets 1 à 15
+Intitulé **Mise en garde contre les faux apôtres** par [[Bible#^358f23|BDS]]
+
+1) Ah ! [[Paul|J]]’aimerais que vous supportiez aussi de ma part un peu de folie. Oui, supportez-moi !
+2) Car [[Paul|je]] brûle pour vous d’un amour qui vient de [[Dieu]] lui-même. Je [[Eglise|vous]] ai, en effet, fiancés à un seul époux pour vous présenter à [[Jésus|Christ]] comme une jeune fille pure.
+3) Or, j’ai bien peur que vous laissiez votre esprit se corrompre et se détourner de votre attachement sincère et pur à [[Jésus|Christ]], comme [[Eve]] s’est laissé séduire par le mensonge « tortueux » du [[Satan|serpent]].
+4) Si quelqu’un vient vous annoncer un autre [[Jésus]] que celui que nous avons prêché, vous le supportez fort bien ! Vous supportez bien, aussi, de recevoir un autre esprit que celui que vous avez reçu, ou un autre [[Note sur l'évangile|Evangile]] que celui que vous avez accepté.
+5) [[Paul|J]]’estime cependant n’être en rien inférieur à ces « super-apôtres » !
+6) [[Paul|Je]] ne suis peut-être pas un « brillant orateur », mais je sais au moins de quoi je parle – nous vous en avons donné la preuve à tous égards et en toutes circonstances.
+7) Ai-[[Paul|je]] commis une faute en m’abaissant moi-même pour vous élever en vous annonçant gratuitement l’Evangile de [[Dieu]] ?
+8) [[Paul|J]]’ai dépouillé d’autres [[Eglise|Eglises]] qui m’ont régulièrement envoyé de l’argent pour que j’exerce mon ministère parmi vous.
+9) Pendant tout mon séjour chez vous, [[Paul|je]] n’ai été à la charge de personne, quoique je me sois trouvé dans le besoin. Ce sont des frères venus de [[Macédoine]] qui ont pourvu à ce qui me manquait. En tout, je me suis gardé d’être à votre charge, et je m’en garderai à l’avenir.
+10) Par la vérité qui vient de [[Jésus|Christ]] et que j’ai fait mienne, je le déclare : je ne me laisserai pas ravir ce titre de gloire dans les provinces d’[[Achaïe]].
+11) Pourquoi agir de la sorte ? Parce que [[Paul|je]] ne vous aime pas ? [[Dieu]] sait ce qu’il en est !
+12) Mais j’agis ainsi, et [[Paul|je]] continuerai à le faire, pour ôter toute possibilité – à ceux qui en cherchent une – de se présenter comme nos égaux en s’appuyant sur leurs prétendus titres de gloire.
+13) Ces hommes-là sont de faux apôtres, des ouvriers malhonnêtes déguisés en apôtres de [[Jésus|Christ]].
+14) Cela n’a rien d’étonnant : [[Satan]] lui-même ne se déguise-t-il pas en ange de lumière ?
+15) Il n’est donc pas surprenant que [[Satan|ses]] agents aussi se déguisent en serviteurs de ce qui est juste. Mais ils auront la fin que méritent leurs œuvres.

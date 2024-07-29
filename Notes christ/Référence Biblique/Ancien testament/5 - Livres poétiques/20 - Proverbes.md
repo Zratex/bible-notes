@@ -7,7 +7,7 @@ Cependant, ils ne sont pas pour autant regroupés par thématique. Et il faut du
 ### Versets 1 à 7
 Intitulé **Introduction** par [[Bible#^358f23|BDS]]
 1) Proverbes de [[Salomon]], fils de [[David]], roi d’[[Israël]].
-2) Ils ont pour but d’enseigner aux hommes la [[Sagesse]] et de les éduquer, pour qu’ils comprennent les paroles prononcées avec intelligence,
+2) Ils ont pour but d’enseigner aux hommes la [[Sagesse (note)]] et de les éduquer, pour qu’ils comprennent les paroles prononcées avec intelligence,
 3) et qu’ils reçoivent une éducation réfléchie en vue d’être justes, de vivre selon le droit et dans la droiture.
 4) Ces proverbes donneront aux gens sans expérience le bon sens et aux jeunes de la connaissance et du jugement.
 5) Que le sage écoute et il enrichira son savoir, et l’homme avisé acquerra l’art de bien se conduire.
@@ -15,15 +15,15 @@ Intitulé **Introduction** par [[Bible#^358f23|BDS]]
 
 Verset 7 intitulé **La clé de la sagesse** par [[Bible#^358f23|BDS]] :
 
-7) C’est par la [[Sagesse#Point de départ de la Sagesse|crainte]] de l’[[Dieu|Eternel]] que commence la connaissance, mépriser la [[Sagesse]] et l’éducation, c’est être un insensé.
+7) C’est par la [[Sagesse (note)#Point de départ de la Sagesse|crainte]] de l’[[Dieu|Eternel]] que commence la connaissance, mépriser la [[Sagesse (note)]] et l’éducation, c’est être un insensé.
 ## Chapitre 2
-Intitulé **Pourquoi rechercher la [[Sagesse]]** par [[Bible#^358f23|BDS]]
+Intitulé **Pourquoi rechercher la [[Sagesse (note)]]** par [[Bible#^358f23|BDS]]
 
 1) Mon fils, si tu acceptes mes paroles, si tu conserves mes préceptes au fond de toi-même,
 2) si tu prêtes une oreille attentive à la sagesse, en inclinant ton cœur vers l’intelligence,
 3) oui, si tu fais appel au discernement, si tu recherches l’intelligence,
 4) si tu la recherches comme de l’argent, si tu creuses pour la trouver comme pour découvrir des trésors,
-5) alors tu comprendras ce qu’est [[Sagesse#Point de départ de la Sagesse|craindre]] l’[[Dieu|Eternel]], et tu apprendras à connaître [[Dieu]].
+5) alors tu comprendras ce qu’est [[Sagesse (note)#Point de départ de la Sagesse|craindre]] l’[[Dieu|Eternel]], et tu apprendras à connaître [[Dieu]].
 6) Car l’[[Dieu|Eternel]] donne la sagesse, et ce sont ses paroles qui procurent la connaissance et l’intelligence.
 ## Chapitre 4
 Intitulé **Une opération de séduction** par [[Bible#^358f23|BDS]]

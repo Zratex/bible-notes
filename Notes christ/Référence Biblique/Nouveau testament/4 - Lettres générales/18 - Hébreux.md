@@ -2,6 +2,14 @@ La plus longue lettre du [[Nouveau testament]].
 L'origine de qui l'a écrit, et envers qui précisément restent inconnus. Ce qui est clair, c'est qu'il s'adresse à tout ceux qui se sont convertis. 
 
 > Les passages en gras sont des paroles de [[Jésus]]. Elles sont en italiques car ce sont des paroles citées
+
+## Chapitre 4
+### Versets 14 à 16
+Intitulé **Un grand prêtre qui nous permet de nous approcher de [[Dieu]]** par [[Bible#^358f23|BDS]]
+
+14) Ainsi, puisque nous avons en [[Jésus]], le Fils de [[Dieu]], un grand-prêtre éminent qui a traversé les cieux, demeurons fermement attachés à la foi que nous reconnaissons comme vraie.
+15) En effet, nous n’avons pas un grand-prêtre qui serait incapable de compatir à nos faiblesses. Au contraire, il a été [[Tentation|tenté]] en tout point comme nous le sommes, mais sans commettre de péché.
+16) Approchons-nous donc du trône du [[Dieu]] de grâce avec une pleine assurance. Là, [[Dieu]] nous accordera sa bonté et nous donnera sa grâce pour que nous soyons secourus au bon moment.
 ## Chapitre 10
 ### Versets 1 à 18
 Intitulé **L'inefficacité de la [[La Loi de Dieu|Loi]] et l'efficacité du sacrifice de [[Jésus|Christ]]** par [[Bible#^358f23|BDS]]

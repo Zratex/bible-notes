@@ -25,7 +25,7 @@ Dans ce genre de cas, il faut rester attaché à [[Dieu]] (en écoutant le [[Sai
 
 ## Les bonnes habitudes 
 [[9&10 - Samuel#Versets 19 à 25|2 Samuel 5:19-25]] : [[David]] pris l'habitude de consulter [[Dieu]] pour ses **projes**. Nous devons nous laisser guider par [[Dieu]], avec une parole ayant des formes différentes.
--> Cependant il faut de la [[Sagesse]] pour discerner sa parole d'une autre
+-> Cependant il faut de la [[Sagesse (note)]] pour discerner sa parole d'une autre
 
 [[Actes#Versets 6 et 7|Actes 16:6-7]] le malaise peux arriver si on a le [[Saint-Esprit]] en nous, quand ce sont des situations pouvant être dérangeantes.
 

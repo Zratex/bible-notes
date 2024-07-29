@@ -1,4 +1,4 @@
-Lettre de [[Paul]] envers les romains
+Lettre de [[Paul]] envers les [[Romains]]
 ## Chapitre 1
 ### Versets 16 à 17
 Intitulé **Le résumé de l'[[Note sur l'évangile|Evangile]]** par [[Bible#^358f23|BDS]] :

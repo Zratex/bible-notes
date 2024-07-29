@@ -12,7 +12,7 @@ Si on accepte [[Jésus]], [[Satan]] ne peux plus rien faire :
 [[20&21 - Pierre]] décrit [[Satan]] comme un voleur : la [[Bible|parole]] nous maintient éveillé, il attend donc qu'on arrête de veiller pour voler.
 # En [[Jésus|Christ]] toute choses concourent à mon bien
 [[6 - Romains|Romains 8:28-30]]
-Aimer [[Dieu]] c'est de le [[Sagesse#Point de départ de la Sagesse|craindre]], d'étudier sa parole et (?). En revanche, il nous a donné la liberté et le libre-arbitre.
+Aimer [[Dieu]] c'est de le [[Sagesse (note)#Point de départ de la Sagesse|craindre]], d'étudier sa parole et (?). En revanche, il nous a donné la liberté et le libre-arbitre.
 
 [[Dieu]] a un plan pour chaque choses. Exemple :
 - [[Adam]] a été créé pour remplir la Terre

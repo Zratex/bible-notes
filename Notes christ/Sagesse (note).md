@@ -7,11 +7,11 @@ C'est une série débuté par pasteur Camille de Hillsong Paris sur les [[20 - P
 - [[20 - Proverbes#Versets 1 à 6|Proverbes 9:1]] : Sagesse de [[Dieu]] construit
 - [[20 - Proverbes|Proverbes 4:1-7]] -> il faut acquérir la sagesse
 
-==Sagesse :== Savoir utiliser ses connaissances pour servir [[Dieu]] ^dd161f
+![[Sagesse#Définition]]
 ### Sagesse monde != Sagesse Dieu
 Différence entre Sagesse du monde et de [[Dieu]] : [[19 - Jacques|Jacques 3:13-18]]  (~=`Mathieu 5`)
 
-Faire confiance à sa propre sagesse ou celle du monde, est un cas similaire de [[Adam]] et [[Eve]] ([[Genèse#Versets 6 et 7|Genèse 3:6-7]]) -> on se fait facilement avoir par la tentation et les mauvais choix
+Faire confiance à sa propre sagesse ou celle du monde, est un cas similaire de [[Adam]] et [[Eve]] ([[Genèse#Chapitre 3|Genèse 3:6-7]]) -> on se fait facilement avoir par la tentation et les mauvais choix
 -> Principe expliqué dans les proverbes comme un chemin de **folie**
 > On ne doit pas se confier à sa propre intelligence, mais en la foi en [[Dieu]]
 
