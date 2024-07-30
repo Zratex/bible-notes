@@ -1,8 +1,26 @@
 2 lettres écrites par [[Paul]] envers l'[[Eglise]] de [[Corinthe]].
 # 1 Corinthiens
 ## Chapitre 1
+### Versets 1 à 3
+Intitulé **Salutation** par [[Bible#^358f23|BDS]]
+
+1) [[Paul]], qui a été appelé, par la volonté de [[Dieu]], à être un apôtre de [[Jésus|Jésus-Christ]], et le frère Sosthène,
+2) saluent l’[[Eglise]] de [[Dieu]] établie à [[Corinthe]], ceux qui ont été purifiés de leurs péchés dans l’union avec [[Jésus|Jésus-Christ]] et qui ont été appelés à faire partie du peuple saint, ainsi que tous ceux qui, en quelque lieu que ce soit, font appel à notre [[Seigneur]] [[Jésus|Jésus-Christ]], leur [[Seigneur]] comme le nôtre.
+3) Que la grâce et la paix vous soient accordées par [[Dieu]] notre [[Dieu|Père]] et par le [[Seigneur]] [[Jésus|Jésus-Christ]].
+
+### Versets 10 à 17
+Intitulé **Les divisions dans l'[[Eglise]] : Les divisions à [[Corinthe]]** par [[Bible#^358f23|BDS]]
+
+10) Il faut cependant, frères et sœurs, que [[Paul|je]] vous adresse une recommandation instante, et c’est au nom de notre [[Seigneur]] [[Jésus|Jésus-Christ]] que je le fais. Vivez tous ensemble en pleine harmonie ! Ne laissez pas de division s’introduire entre vous ! Soyez parfaitement unis en ayant une même conviction, une même façon de penser !
+11) En effet, mes frères et sœurs, [[Paul|j]]’ai été informé par les gens de la maison de Chloé que la discorde règne parmi vous.
+12) Voici ce que [[Paul|je]] veux dire : chacun de vous tient ce type de langage : « Pour moi, c’est [[Paul]] ! » ou : « Pour moi, c’est [[Apollos]]  ! » ou : « Pour moi, c’est [[Simon Pierre|Pierre]] ! » ou encore : « Pour moi, c’est [[Jésus|Christ]] ! »
+13) Voyons : [[Jésus|Christ]] serait-il divisé ? [[Paul]] aurait-il été crucifié pour vous ? Ou bien est-ce au nom de [[Paul]] que vous avez été baptisés ?
+14) Je remercie [[Dieu]] de n’avoir baptisé aucun de vous, sauf Crispus et Gaïus.
+15) Personne, en tout cas, ne peut prétendre avoir été baptisé en [[Paul|mon]] nom.
+16) – Ah si ! J’ai baptisé encore les gens de la maison de Stéphanas. A part ceux-là, je crois n’avoir baptisé personne.
+17) Car ce n’est pas pour baptiser que [[Jésus|Christ]] [[Paul|m]]’a envoyé, c’est pour proclamer l’[[Note sur l'évangile|Evangile]]. Et cela, sans recourir à la sagesse des beaux discours, afin de ne pas vider de son sens la mort de [[Jésus|Christ]] sur la croix.
 ### Versets 18 à 31
-Intitulé **La [[Sagesse (note)]] des hommes et la folie de [[Dieu]]** par [[Bible#^358f23|BDS]]
+Intitulé **Les divisions dans l'[[Eglise]] : La [[Sagesse (note)]] des hommes et la folie de [[Dieu]]** par [[Bible#^358f23|BDS]]
 
 18) En effet, la prédication de la mort de Christ sur une croix est une folie aux yeux de ceux qui se perdent. Mais pour nous qui sommes sauvés, elle est la puissance même de Dieu.
 19) N’est-il pas écrit :

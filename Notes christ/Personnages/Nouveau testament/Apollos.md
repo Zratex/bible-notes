@@ -1,0 +1,1 @@
+Originaire de la ville d'[[Alexandrie]], après avoir servit auprès de [[Jean Baptiste]], il a particulièrement été actif dans la région de [[Corinthe]] à propos de la diffusion de l'[[Note sur l'évangile|Evangile]]

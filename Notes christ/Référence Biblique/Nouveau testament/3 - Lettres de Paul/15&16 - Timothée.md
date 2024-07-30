@@ -1,4 +1,4 @@
-Lettres de [[Paul]] destiné à [[Timothée]]
+Lettres de [[Paul]] destinées à [[Timothée]]
 # 1 Timothée
 ## Chapitre 6
 ### Versets 1 et 2
@@ -23,6 +23,17 @@ Etudié dans le [[Positionnement du cœur]]
 10) Car « l’[[Positionnement du cœur|amour]] de l’argent est racine de toutes sortes de maux  ». Pour s’y être abandonnés, certains se sont égarés très loin de la foi, et se sont infligé beaucoup de tourments.
 
 # 2 Timothée
+## Chapitre 2
+### Versets 1 à 7
+Intitulé **Combats !** par [[Bible#^358f23|BDS]]
+
+1) Toi donc, mon enfant, puise tes forces dans la grâce qui nous est accordée dans l’union avec [[Jésus|Jésus-Christ]].
+2) Et l’enseignement que tu as reçu de moi et que de nombreux témoins ont confirmé, transmets-le à des personnes dignes de confiance qui seront capables à leur tour d’en instruire d’autres.
+3) Tel un bon soldat de [[Jésus|Jésus-Christ]], prends, comme moi, ta part de souffrances.
+4) Celui qui s’engage dans une expédition militaire ne s’embarrasse pas des affaires de la vie civile, afin de donner pleine satisfaction à l’officier qui l’a enrôlé.
+5) On n’a jamais vu un athlète remporter le prix sans avoir respecté toutes les règles.
+6) C’est au cultivateur qui travaille dur d’être le premier à jouir de la récolte.
+7) Réfléchis bien à ce que je te dis et le [[Dieu|Seigneur]] te donnera de comprendre toutes ces choses.
 ## Chapitre 3
 ### Versets 1 à 9
 Intitulé **Les périls à venir** par [[Bible#^358f23|BDS]]

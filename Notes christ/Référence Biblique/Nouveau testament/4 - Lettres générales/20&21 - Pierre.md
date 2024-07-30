@@ -1,6 +1,29 @@
 Le livre de Pierre est séparé en 2 lettres différentes. Rédigé par [[Simon Pierre]].
 # 1 Pierre
 ## Chapitre 1
+### Versets 3 à 9
+Intitulé **L'espérance du salut : Une espérance vivante** par [[Bible#^358f23|BDS]]
+
+3) Béni soit [[Dieu]], le [[Dieu]] de notre [[Seigneur|Seigneur]] [[Jésus|Jésus-Christ]]. Dans sa grande compassion, il nous a fait naître à une vie nouvelle, pour nous donner une espérance vivante par la résurrection de [[Jésus|Jésus-Christ]].
+4) Car [[Dieu|il]] a préparé pour nous un héritage qui ne peut ni se détruire, ni se corrompre, ni perdre sa beauté. Il le tient en réserve pour vous dans les cieux,
+5) vous qu’[[Dieu|il]] garde, par sa puissance, au moyen de la foi, en vue du salut qui est prêt à être révélé au moment de la fin.
+6) Voilà ce qui fait votre joie, même si, actuellement, il faut que vous soyez attristés pour un peu de temps par diverses épreuves :
+7) celles-ci servent à éprouver la valeur de votre foi. Le feu du creuset n’éprouve-t-il pas l’or qui pourtant disparaîtra un jour ? Pourtant, votre foi qui a résisté à l’épreuve a une valeur beaucoup plus précieuse. Elle vous vaudra louange, gloire et honneur, lorsque [[Jésus|Jésus-Christ]] apparaîtra.
+8) [[Jésus]], vous ne l’avez pas vu, et pourtant vous l’aimez ; mais en plaçant votre confiance en lui sans le voir encore, vous êtes remplis d’une joie glorieuse et inexprimable,
+9) car vous obtenez en retour votre salut qui est le but de votre foi.
+## Chapitre 2
+### Versets 18 à 25
+Intitulé **Vivre dans un monde hostile : Les esclaves et leurs maîtres** par [[Bible#^358f23|BDS]]
+
+18) Serviteurs, soumettez-vous à votre maître avec toute la crainte qui lui est due, non seulement s’il est bon et bienveillant, mais aussi s’il est dur.
+19) En effet, c’est un privilège que de supporter des souffrances imméritées, par motif de conscience envers [[Dieu]].
+20) Quelle gloire y a-t-il, en effet, à endurer un châtiment pour avoir commis une faute ? Mais si vous endurez la souffrance tout en ayant fait le bien, c’est là un privilège devant [[Dieu]].
+21) C’est à cela que [[Dieu]] vous a appelés, car [[Jésus|Christ]] aussi a souffert pour vous, vous laissant un exemple, pour que vous suiviez ses traces.
+22) [[Jésus|Il]] n’a commis aucun péché, ses lèvres n’avaient produit la tromperie.
+23) Injurié, il ne ripostait pas par l’injure. Quand on le faisait souffrir, il ne formulait aucune menace, mais remettait sa cause entre les mains du juste Juge.
+24) [[Jésus|Il]] a pris nos péchés sur lui et les a portés dans son corps, sur la croix, afin qu’étant morts pour le péché, nous menions une vie juste. Oui, c’est par ses blessures que vous avez été guéris.
+25) Car vous étiez comme des brebis errantes mais, à présent, vous êtes retournés vers le [[Jésus|berger]] qui veille sur vous.
+## Chapitre 4
 ### Versets 7 à 11
 Intitulé **La vie communautaire : Au service les uns des autres** par [[Bible#^358f23|BDS]]
 

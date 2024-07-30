@@ -4,37 +4,15 @@
     "type": "split",
     "children": [
       {
-        "id": "7aecaaad94320c99",
+        "id": "6c3f07fcbf6d9418",
         "type": "tabs",
         "children": [
           {
-            "id": "d065c21097872c66",
+            "id": "b130deb4c7513be0",
             "type": "leaf",
             "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Attitude du vainqueur.md",
-                "mode": "preview",
-                "source": false
-              }
-            }
-          }
-        ]
-      },
-      {
-        "id": "0eb222abae7bae71",
-        "type": "tabs",
-        "children": [
-          {
-            "id": "ccf51839cfeae601",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.md",
-                "mode": "source",
-                "source": false
-              }
+              "type": "graph",
+              "state": {}
             }
           }
         ]
@@ -103,7 +81,6 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Attitude du vainqueur.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -120,7 +97,6 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "Attitude du vainqueur.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -142,9 +118,7 @@
             "type": "leaf",
             "state": {
               "type": "outline",
-              "state": {
-                "file": "Attitude du vainqueur.md"
-              }
+              "state": {}
             }
           },
           {
@@ -176,11 +150,22 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "d065c21097872c66",
+  "active": "b130deb4c7513be0",
   "lastOpenFiles": [
-    "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/6 - Romains.md",
+    "Sagesse (note).md",
     "Attitude du vainqueur.md",
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/6 - Romains.md",
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/7&8 - Corinthiens.md",
+    "Personnages/Ancien testament/Esaü.md",
+    "Personnages/Nouveau testament/Apollos.md",
+    "Lieux historiques/Villes/Alexandrie.md",
+    "Personnages/Ancien testament/Alexandre le Grand.md",
+    "Personnages/Baal.md",
+    "Référence Biblique/Nouveau testament/4 - Lettres générales/20&21 - Pierre.md",
+    "Vie victorieuse en Christ.md",
+    "Tentation (note).md",
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/15&16 - Timothée.md",
+    "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.md",
     "Personnages/Nouveau testament/Paul.md",
     "Référence Biblique/Nouveau testament/1 -Evangiles/4eme Evangile - Jean.md",
     "Personnages/Nouveau testament/Disciples de Jésus/Jean.md",
@@ -194,17 +179,6 @@
     "Lieux historiques/Royaumes/Philistins.md",
     "Lieux historiques/Régions géographiques/Samarie.md",
     "Lieux historiques/Régions géographiques/Palestine.md",
-    "Lieux historiques/Royaumes/Israël.md",
-    "Lieux historiques/Régions géographiques/Golgotha.md",
-    "Référence Biblique/Nouveau testament/1 -Evangiles/3eme Evangile - Luc.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/10 - Ephésiens.md",
-    "Tentation (note).md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/9 - Galates.md",
-    "Note sur l'évangile.md",
-    "Référence Biblique/Ancien testament/1 - Le commencement/Genèse.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/7&8 - Corinthiens.md",
-    "Lieux historiques/Régions géographiques/Macédoine.md",
-    "Définitions/Tentation.md",
     "~syncthing~Vie victorieuse en Christ.md.tmp",
     "Personnages/Ancien testament/Chute de Judée/Perses",
     "Personnages/Ancien testament/Chute de Judée/Babyloniens",

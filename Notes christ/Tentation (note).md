@@ -3,7 +3,7 @@ Message apporté par Camille le 21/07/2024 s'inscrivant dans la liste des notes 
 ![[Tentation#Définition]]
 A savoir que [[Jésus]] a vaincu la tentation.
 ### Dieu permet les épreuves, [[Satan]] tente
-[[Dieu]] nous met à l'épreuve pour faire sortir de nous du bon, ou nous faire passer au prochain niveau. 
+[[Dieu]] nous met à l'épreuve pour faire sortir de nous du bon, ou nous faire passer au prochain niveau. (Passage que j'ai ajouté en plus de ce message qui y fait écho : [[20&21 - Pierre#Versets 3 à 9|1 Pierre 1:6-7]])
 > Dans ce cas précis, c'est ce qu'est l'obéissance
 
 Dans ce genre de situations, [[Satan]] quand à lui veux faire ressortir de nous du mauvais.
