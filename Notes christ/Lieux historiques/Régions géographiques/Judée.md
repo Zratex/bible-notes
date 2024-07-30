@@ -14,4 +14,4 @@ En **135**, l'empereur Hadrien changea le nom de la province de Judée en ***S
 Le nom « Judée » (en hébreu, _Yéhouda_ יהודה) a donné les mots « [Juif](https://fr.wikipedia.org/wiki/Juifs "Juifs") » (_Yéhoudi_ יהודי en hébreu)
 
 ### Cisjordanie
-Les termes de « Judée » et « [[Samarie]] » et « Judée et Samarie » (יהודה ושומרון) sont aujourd'hui utilisés par le gouvernement israélien pour désigner en hébreu la **Cisjordanie** (région Est d'[[Israël]] revendiqué presque en totalité par la Palestine), en souvenir de l'appellation ancienne de ces territoires.
+Les termes de « Judée » et « [[Samarie]] » et « Judée et Samarie » (יהודה ושומרון) sont aujourd'hui utilisés par le gouvernement israélien pour désigner en hébreu la **Cisjordanie** (région Est d'[[Israël]] revendiqué presque en totalité par la [[Palestine]]), en souvenir de l'appellation ancienne de ces territoires.

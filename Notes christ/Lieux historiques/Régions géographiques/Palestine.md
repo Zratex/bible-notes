@@ -1,0 +1,1 @@
+C'était en premier lieu la région [[Romains|romaine]] qui désigne le pays de [[Canaan]], c'est devenue une province à part entière musulmane et arabe, jusqu'à la fondation de l'[[Israël]] moderne. Depuis, c'est désormais un état au sein de l'état [[Israël|israélien]]

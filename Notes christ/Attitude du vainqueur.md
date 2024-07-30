@@ -1,14 +1,15 @@
 Message apporté par Raphaël De Sousa le 28/07 dans la série [[Vie victorieuse en Christ]]
 
-`Ephesiens 2:19` quand on a accepté [[Jésus]], on est dans l'équipe du royaume de [[Dieu]], donc on est pas de ce monde.
+[[10 - Ephésiens#Versets 11 à 22|Ephésiens 2:19]] quand on a accepté [[Jésus]], on est dans l'équipe du royaume de [[Dieu]], donc on est pas de ce monde.
+Chaque point est une liste de ce qui ressort de l'attitude d'un vainqueur, ainsi que ce que cela implique en tant que chrétien.
 ## Soulagement et paix
 Quand on est victorieux, on a le soulagement et la paix.
-`Jean 19:30` [[Jésus]] aussi a été soulagé une fois qu'il a accompli son sacrifice
-`Romains 8:11` il n'y a plus de condamnation depuis son sacrifice
+[[4eme Evangile - Jean#Versets 17 à 37|Jean 19:30]] [[Jésus]] aussi a été soulagé une fois qu'il a accompli son sacrifice
+[[6 - Romains#Versets 1 à 17|Romains 8:1-17]] il n'y a plus de condamnation depuis son sacrifice
 
 L'exemple de [[Paul]] 
 
-`Matthieu 5:9` comme nous sommes fils de [[Dieu]], nous apportons aussi sa paix.
+[[1er Evangile - Matthieu#Versets 3 à 12|Matthieu 5:9]] comme nous sommes fils de [[Dieu]], nous apportons aussi sa paix.
 `2 Timothée 2:4`
 ## Remplie de joie
 `1 Pierre 1:3-4` on apporte aussi de la joie autour de nous, et c'est ce qu'on appelle une **bonne nouvelle**.

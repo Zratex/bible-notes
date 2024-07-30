@@ -2,6 +2,32 @@
 > Les passages qui seront en gras correspondent aux passages où [[Jésus]] parle
 ## Chapitre 5
 Première partie de ce qui est appelé le "serment sur la montage " par [[Jésus]]
+### Versets 1 et 2
+Intitulé **La loi du royaume** par [[Bible#^358f23|BDS]]
+
+1) [[Jésus]], voyant ces foules, monta sur une colline. Il s’assit, ses disciples se rassemblèrent autour de lui
+2) et [[Jésus|il]] se mit à les enseigner. [[Jésus|Il]] leur dit :
+### Versets 3 à 12
+Intitulé **Les béatitudes** par [[Bible#^358f23|BDS]]
+
+3) **Heureux ceux qui se reconnaissent spirituellement pauvres,**
+   **car le royaume des cieux leur appartient.**
+4) **Heureux ceux qui pleurent,**
+   **car [[Dieu]] les consolera.**
+5) **Heureux ceux qui sont doux,**
+   **car [[Dieu]] leur donnera la terre en héritage.**
+6) **Heureux ceux qui ont faim et soif de justice,**
+   **car ils seront rassasiés.**
+7) **Heureux ceux qui témoignent de la bonté,**
+   **car [[Dieu]] sera bon pour eux.**
+8) **Heureux ceux dont le cœur est pur,**
+   **car ils verront [[Dieu]].**
+9) **Heureux ceux qui répandent autour d’eux la paix,**
+   **car [[Dieu]] les reconnaîtra pour ses fils.**
+10) **Heureux ceux qui sont opprimés pour la justice,**
+**car le royaume des cieux leur appartient.**
+11) **Heureux serez-vous quand les hommes vous insulteront et vous persécuteront, lorsqu’ils répandront toutes sortes de calomnies sur votre compte à cause de [[Jésus|moi]].**
+12) **Oui, réjouissez-vous alors et soyez heureux, car une magnifique récompense vous attend dans les cieux. Car vous serez ainsi comme les prophètes d’autrefois : eux aussi ont été persécutés avant vous de la même manière.**
 ## Chapitre 6
 Seconde partie de ce qui est appelé le "serment sur la montage " par [[Jésus]]
 ### Versets 1 à 18

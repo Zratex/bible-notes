@@ -1,4 +1,5 @@
 4eme [[Nouveau testament#^94270d|évangile de la Bible]], rédigé par [[Jean]].
+> Les passages qui seront en gras correspondent aux passages où [[Jésus]] parle
 ## Chapitre 1
 Intitulé **Introduction : la [[Immuabilité de la parole|parole]] de [[Dieu]] et son témoin** par [[Bible|BDS]]
 1) Au commencement était celui qui est la [[Bible|Parole]] de [[Dieu]]. Il était avec [[Dieu]], il était lui-même [[Dieu]].
@@ -85,3 +86,35 @@ Etudié en temps que conclusion de la note sur [[Nos Forteresses]]
 
 33) Il fallait que je vous dise aussi cela pour que vous trouviez la paix en [[Jésus|moi]]. Dans le monde, vous aurez à souffrir bien des afflictions. Mais courage ! [[Jésus|Moi]], j’ai vaincu le monde.
 
+## Chapitre 19
+### Versets 17 à 37
+Intitulé **La mort de [[Jésus]]** par [[Bible#^358f23|BDS]]
+
+16) (...) Ils s'emparèrent du corps de [[Jésus]].
+17) Celui-ci, portant lui-même sa croix, sortit de la ville pour se rendre à l’endroit appelé « le lieu du crâne » (en hébreu : « [[Golgotha|Golgotha]] »).
+18) C’est là qu’ils [[Jésus|le]] crucifièrent, lui et deux autres. On plaça une croix de chaque côté de la sienne. Celle de [[Jésus]] était au milieu.
+19) [[Pilate]] fit placer un écriteau que l’on fixa au-dessus de la croix. Il portait cette inscription : « [[Jésus]] de [[Nazareth]], le roi des Juifs ».
+20) Comme l’endroit où [[Jésus]] avait été crucifié se trouvait près de la ville, beaucoup de Juifs lurent l’inscription écrite en hébreu, en latin et en grec.
+21) Les chefs des prêtres protestèrent auprès de [[Pilate]] : Il ne fallait pas mettre « le roi des Juifs », mais « Cet homme a dit : Je suis le roi des Juifs ».
+22) [[Pilate]] répliqua : Ce que j’ai écrit restera écrit.
+23) Lorsque les [[Romains|soldats]] eurent crucifié [[Jésus]], ils prirent ses vêtements et en firent quatre parts, une pour chacun d’eux. Restait la tunique qui était sans couture, tissée tout d’une seule pièce de haut en bas.
+24) Les [[Romains|soldats]] se dirent entre eux : Au lieu de la déchirer, tirons au sort pour savoir qui l’aura.
+    C’est ainsi que s’accomplit cette prophétie de l’[[Ancien Testament|Ecriture]] :
+    *Ils se sont partagé mes habits*
+    *et ils ont tiré au sort ma tunique.*
+    C’est exactement ce que firent les [[Romains|soldats]].
+25) Près de la croix de [[Jésus]] se tenaient sa [[Marie|mère]], la sœur de sa [[Marie|mère]], Marie, femme de Clopas, et [[Marie de Magdala|Marie de Magdala]].
+26) En voyant [[Jésus|sa]] [[Marie|mère]] et, à côté d’elle, le disciple qu’il aimait, [[Jésus]] dit à sa [[Marie|mère]] : **Voici ton fils.**
+27) Puis [[Jésus|il]] dit au disciple : **Voici ta [[Marie|mère]].**
+    A partir de ce moment-là, le disciple [[Marie|la]] prit chez lui.
+28) Après cela, [[Jésus]], sachant que désormais tout était achevé, dit, pour que l’[[Ancien Testament|Ecriture]] soit accomplie : **J’ai soif.**
+29) Près de là se trouvait un vase rempli de vinaigre. On attacha donc une éponge imbibée de ce vinaigre au bout d’une branche d’hysope, et on l’approcha de la bouche de [[Jésus]].
+30) Quand [[Jésus|il]] eut goûté le vinaigre, [[Jésus]] dit : **Tout est accompli.**
+    [[Jésus|Il]] pencha la tête et rendit l’esprit.
+31) Comme on était à la veille du sabbat, et de plus, d’un sabbat particulièrement solennel, les Juifs voulaient éviter que les cadavres restent en croix durant la fête. Ils allèrent trouver [[Pilate]] pour lui demander de faire briser les jambes des suppliciés et de faire enlever les corps.
+32) Les [[Romains|soldats]] vinrent donc et brisèrent les jambes au premier des criminels crucifiés avec [[Jésus]], puis à l’autre.
+33) Quand ils arrivèrent à [[Jésus]], ils constatèrent qu’[[Jésus|il]] était déjà mort et ils ne lui brisèrent pas les jambes.
+34) L’un des [[Romains|soldats]] lui enfonça sa lance dans le côté, et aussitôt il en sortit du sang et de l’eau.
+35) Celui qui rapporte ces faits, les a vus de ses propres yeux et son témoignage est vrai. Il sait parfaitement qu’il dit la vérité pour que, vous aussi, vous croyiez.
+36) En effet, tout cela est arrivé pour que se réalise cette parole de l’[[Ancien Testament|Ecriture]] : *Aucun de ses os ne sera brisé*.
+37) De plus, un autre [[Ancien Testament|texte]] déclare : *Ils tourneront leurs regards vers celui qu’ils ont transpercé.*

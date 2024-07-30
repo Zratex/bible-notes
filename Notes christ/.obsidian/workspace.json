@@ -4,16 +4,34 @@
     "type": "split",
     "children": [
       {
-        "id": "af9a80320fafdcb8",
+        "id": "7aecaaad94320c99",
         "type": "tabs",
         "children": [
           {
-            "id": "110ed676a4a5acf3",
+            "id": "d065c21097872c66",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Vie victorieuse en Christ.md",
+                "file": "Attitude du vainqueur.md",
+                "mode": "preview",
+                "source": false
+              }
+            }
+          }
+        ]
+      },
+      {
+        "id": "0eb222abae7bae71",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "ccf51839cfeae601",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.md",
                 "mode": "source",
                 "source": false
               }
@@ -48,7 +66,7 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "",
+                "query": "palestine",
                 "matchingCase": false,
                 "explainSearch": false,
                 "collapseAll": false,
@@ -85,7 +103,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Vie victorieuse en Christ.md",
+                "file": "Attitude du vainqueur.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -102,7 +120,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "Vie victorieuse en Christ.md",
+                "file": "Attitude du vainqueur.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -125,7 +143,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "Vie victorieuse en Christ.md"
+                "file": "Attitude du vainqueur.md"
               }
             }
           },
@@ -158,37 +176,36 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "110ed676a4a5acf3",
+  "active": "d065c21097872c66",
   "lastOpenFiles": [
+    "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.md",
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/6 - Romains.md",
     "Attitude du vainqueur.md",
-    "Vie victorieuse en Christ.md",
-    "Vie victorieuse en Christ.sync-conflict-20240729-163416-4D4KN2W.md",
-    "~syncthing~Vie victorieuse en Christ.sync-conflict-20240729-163416-4D4KN2W.md.tmp",
-    "~syncthing~L'attitude du vainqueur.md.tmp",
+    "Personnages/Nouveau testament/Paul.md",
+    "Référence Biblique/Nouveau testament/1 -Evangiles/4eme Evangile - Jean.md",
+    "Personnages/Nouveau testament/Disciples de Jésus/Jean.md",
+    "Personnages/Nouveau testament/Marie de Magdala.md",
+    "Lieux historiques/Villes/Magdala.md",
+    "Lieux historiques/Régions géographiques/Galilée.md",
+    "Lieux historiques/Images/Magdala.png",
+    "Personnages/Nouveau testament/Pilate.md",
+    "Lieux historiques/Régions géographiques/Canaan.md",
+    "Lieux historiques/Régions géographiques/Judée.md",
+    "Lieux historiques/Royaumes/Philistins.md",
+    "Lieux historiques/Régions géographiques/Samarie.md",
+    "Lieux historiques/Régions géographiques/Palestine.md",
+    "Lieux historiques/Royaumes/Israël.md",
+    "Lieux historiques/Régions géographiques/Golgotha.md",
+    "Référence Biblique/Nouveau testament/1 -Evangiles/3eme Evangile - Luc.md",
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/10 - Ephésiens.md",
     "Tentation (note).md",
-    "Sagesse (note).md",
-    "Lieux historiques/Villes/Rome.md",
-    "Lieux historiques/Régions géographiques/Macédoine.md",
-    "Lieux historiques/Régions géographiques/Achaïe.md",
-    "Lieux historiques/Royaumes/Romains.md",
-    "Définitions/Tentation.md",
-    "Définitions/Sagesse.md",
-    "Changement.md",
-    "Référence Biblique/Nouveau testament/4 - Lettres générales/22&23&24 - Livres de Jean.md",
-    "Référence Biblique/Nouveau testament/4 - Lettres générales/18 - Hébreux.md",
-    "Positionnement du cœur.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/12 - Colossiens.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/7&8 - Corinthiens.md",
-    "Personnages/Ancien testament/Caïn.md",
-    "Alliance (ou contrat).md",
-    "A quiconque désire suivre Jésus.md",
-    "Chemins tout tracés.md",
-    "L'affaire.md",
-    "~syncthing~Vie victorieuse en Christ.md.tmp",
-    "Personnages/Ancien testament/Sarah.md",
-    "Personnages/Ancien testament/Haran.md",
-    "Définitions/Sion.md",
     "Référence Biblique/Nouveau testament/3 - Lettres de Paul/9 - Galates.md",
+    "Note sur l'évangile.md",
+    "Référence Biblique/Ancien testament/1 - Le commencement/Genèse.md",
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/7&8 - Corinthiens.md",
+    "Lieux historiques/Régions géographiques/Macédoine.md",
+    "Définitions/Tentation.md",
+    "~syncthing~Vie victorieuse en Christ.md.tmp",
     "Personnages/Ancien testament/Chute de Judée/Perses",
     "Personnages/Ancien testament/Chute de Judée/Babyloniens",
     "Personnages/Ancien testament/Chute de Judée",
@@ -205,6 +222,7 @@
     "Lieux historiques/Images/Babylone.PNG",
     "Lieux historiques/Images/Asie mineure.jpg",
     "Lieux historiques/Images/Asie mineure.jpg.crdownload",
-    "Lieux historiques/Images/Galatie.png"
+    "Lieux historiques/Images/Galatie.png.0.pdnSave",
+    "~syncthing~La marche d'Élie.md.tmp"
   ]
 }

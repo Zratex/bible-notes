@@ -1,1 +1,1 @@
-Ancienne nommé **Saul**
+Ancienne nommé **Saul**, il était auparavant un Juif [[Romains|romain]]

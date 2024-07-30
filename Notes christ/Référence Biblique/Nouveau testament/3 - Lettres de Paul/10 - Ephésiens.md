@@ -12,6 +12,21 @@ Intitulé **De la mort à la vie** par [[Bible#^358f23|BDS]]
 8) Car c’est par grâce que vous êtes sauvés, par le moyen de la foi. Cela ne vient pas de vous, c’est un don de Dieu ;
 9) ce n’est pas le fruit d’œuvres que vous auriez accomplies. Personne n’a donc de raison de se vanter.
 10) Ce que nous sommes, nous le devons à Dieu ; car par notre union avec Jésus-Christ, Dieu nous a créés pour une vie riche d’œuvres bonnes qu’il a préparées à l’avance afin que nous les accomplissions.
+### Versets 11 à 22
+Intitulé **Juifs et non-Juifs réconciliés par [[Jésus|Jésus-Christ]]** par [[Bible#^358f23|BDS]]
+
+11) C’est pourquoi, vous qui portez, dans votre corps, la preuve que vous n’êtes pas des Juifs et qui donc êtes traités d’« incirconcis » par ceux qui se disent « les circoncis » à cause d’un rite accompli sur leur corps et par des hommes, rappelez-vous quelle était votre situation autrefois.
+12) En ce temps-là, vous étiez sans Messie, vous n’aviez pas le droit de faire partie du peuple d’[[Israël]], vous étiez étrangers aux alliances conclues par [[Dieu]] pour garantir sa promesse, sans espérance et sans [[Dieu]] dans le monde.
+13) Mais maintenant, par votre union avec [[Jésus|Jésus-Christ]], vous qui, autrefois, étiez loin, vous êtes devenus proches grâce au sacrifice de [[Jésus|Christ]].
+14) Car nous lui devons notre paix. [[Jésus|Il]] a, en effet, instauré l’unité entre les Juifs et les non-Juifs et abattu le mur qui les séparait : en livrant son corps à la mort, il a annulé les effets de ce qui faisait d’eux des ennemis,
+15) c’est-à-dire de la [[La Loi de Dieu|Loi]] de [[Moïse|Moïse]], dans ses commandements et ses règles. [[Jésus|Il]] voulait ainsi créer une seule et nouvelle humanité à partir des Juifs et des non-Juifs qu’il a unis à lui-même, en établissant la paix.
+16) [[Jésus|Il]] voulait aussi les réconcilier les uns et les autres avec [[Dieu]] et les unir en un seul corps, en supprimant, par sa mort sur la croix, ce qui faisait d’eux des ennemis.
+17) Ainsi [[Jésus|il]] est venu annoncer la paix à vous qui étiez loin et la paix à ceux qui étaient proches.
+18) Car, grâce à [[Jésus|lui]], nous avons accès, les uns comme les autres, auprès du [[Dieu|Père]], par le même [[Saint-Esprit|Esprit]].
+19) Voilà pourquoi vous n’êtes plus des étrangers ou des résidents temporaires, vous êtes concitoyens des membres du peuple saint, vous faites partie de la famille de [[Dieu]].
+20) [[Dieu]] vous a intégrés à l’édifice qu’il construit sur le fondement que sont les apôtres, ses prophètes, et dont [[Jésus|Jésus-Christ]] lui-même est la pierre principale.
+21) En [[Jésus|lui]] toute la construction s’élève, bien coordonnée, afin d’être un temple saint dans le [[Dieu|Seigneur]],
+22) et, unis à [[Jésus|Christ]], vous avez été intégrés ensemble à cette construction pour former une demeure où [[Dieu]] habite par l’[[Saint-Esprit|Esprit]].
 ## Chapitre 5
 ### Versets 6 à 16
 Intitulé **La vie dans la lumière** par [[Bible#^358f23|BDS]]

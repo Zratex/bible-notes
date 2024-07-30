@@ -33,6 +33,26 @@ Intitulé **La grâce : une excuse pour pécher ?** par [[Bible#^358f23|BDS]]
 22) Mais maintenant, affranchis du péché et devenus esclaves de [[Dieu]], le [[Fruit|fruit]] que vous portez, c’est une vie sainte, et le résultat auquel vous aboutissez, c’est la vie éternelle.
 23) Car le salaire que verse le péché, c’est la mort, mais le don de la grâce que [[Dieu]] accorde, c’est la vie éternelle dans l’union avec [[Jésus|Jésus-Christ]] notre [[Seigneur et non seulement sauveur|Seigneur]].
 ## Chapitre 8
+### Versets 1 à 17
+Intitulé **Vivre conduits par l'[[Saint-Esprit|Esprit]]**
+
+1) Maintenant donc, il n’y a plus de condamnation pour ceux qui sont unis à [[Jésus|Jésus-Christ]].
+2) Car la loi de l’[[Saint-Esprit|Esprit]] qui nous donne la vie dans l’union avec [[Jésus|Jésus-Christ]] t’a libéré de la loi du péché et de la mort.
+3) Car ce que la [[La Loi de Dieu|Loi]] était incapable de faire, parce que l’état de l’homme la rendait impuissante, [[Dieu]] l’a fait : il a envoyé son propre [[Jésus|Fils]] avec une nature semblable à celle des hommes pécheurs et, pour régler le problème du péché, [[Dieu|il]] a exécuté sur [[Jésus|cet homme]] la sanction qu’encourt le péché.
+4) [[Dieu|Il]] l’a fait pour que la juste exigence de la [[La Loi de Dieu|Loi]] soit pleinement satisfaite en ce qui nous concerne, nous qui vivons, non plus à la manière de l’homme livré à lui-même, mais dans la dépendance de l’[[Saint-Esprit|Esprit]].
+5) En effet, les hommes livrés à eux-mêmes tendent vers ce qui est conforme à l’homme livré à lui-même. Mais ceux qui ont l’[[Saint-Esprit|Esprit]] tendent vers ce qui est conforme à l’[[Saint-Esprit|Esprit]].
+6) Car ce à quoi tend l’homme livré à lui-même mène à la mort, tandis que ce à quoi tend l’[[Saint-Esprit|Esprit]] conduit à la vie et à la paix.
+7) En effet, l’homme livré à lui-même, dans toutes ses tendances, n’est que haine de [[Dieu]] : il ne se soumet pas à la [[La Loi de Dieu|Loi]] de [[Dieu]] car il ne le peut même pas.
+8) Les hommes livrés à eux-mêmes sont incapables de plaire à [[Dieu]].
+9) Vous, au contraire, vous n’êtes pas livrés à vous-mêmes, mais vous dépendez de l’[[Saint-Esprit|Esprit]], puisque l’[[Saint-Esprit|Esprit]] de [[Dieu]] habite en vous. Si quelqu’un n’a pas l’[[Saint-Esprit|Esprit]] de [[Jésus|Christ]], il ne lui appartient pas.
+10) Or, si [[Jésus|Christ]] est en vous, votre corps reste mortel à cause du péché, mais l’[[Saint-Esprit|Esprit]] est source de vie, parce que vous avez été déclarés justes.
+11) Et si l’[[Saint-Esprit|Esprit]] de celui qui a ressuscité [[Jésus]] habite en vous, celui qui a ressuscité [[Jésus|Christ]] rendra aussi la vie à votre corps mortel par son Esprit qui habite en vous.
+12) Ainsi donc, frères et sœurs, si nous avons une obligation, ce n’est pas celle de vivre à la manière de l’homme livré à lui-même.
+13) Car, si vous vivez à la manière de l’homme livré à lui-même, vous mourrez, mais si, par l’[[Saint-Esprit|Esprit]], vous faites mourir les actes mauvais que vous accomplissez dans votre corps, vous vivrez.
+14) Car ceux qui sont conduits par l’[[Saint-Esprit|Esprit]] de [[Dieu]] sont fils de [[Dieu]].
+15) En effet, vous n’avez pas reçu un [[Saint-Esprit|Esprit]] qui fait de vous des esclaves et vous ramène à la crainte : non, vous avez reçu l’[[Saint-Esprit|Esprit]] en conséquence de votre adoption par [[Dieu]] comme ses fils et ses filles. Car c’est par cet [[Saint-Esprit|Esprit]] que nous crions : Abba, c’est-à-dire Père !
+16) L’[[Saint-Esprit|Esprit Saint]] lui-même témoigne à notre esprit que nous sommes enfants de [[Dieu]].
+17) Et puisque nous sommes enfants, nous sommes aussi héritiers : héritiers de [[Dieu]], et donc cohéritiers de [[Jésus|Christ]], puisque nous souffrons avec lui pour avoir part à sa gloire.
 ### Versets 18 à 30
 Intitulé **L’espérance au milieu des détresses présentes** par [[Bible#^358f23|BDS]]
 #### Versets 28 à 30
