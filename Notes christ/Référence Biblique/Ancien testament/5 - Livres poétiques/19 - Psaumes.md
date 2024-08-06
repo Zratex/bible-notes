@@ -1,3 +1,31 @@
+## Chapitre 28
+Intitulé **L'[[Dieu|Eternel]] répond** par [[Bible#^358f23|BDS]]
+
+1) *De [[David]].*
+   A toi, ô [[Dieu|Eternel]], ╵[[David|je]] fais appel ;
+   toi, mon rocher, ╵ne sois pas sourd ╵à ma requête.
+   Si tu restes muet,
+   je deviendrai pareil ╵à ceux qui s’en vont vers la tombe.
+2) Entends [[David|ma]] voix qui [[Dieu|te]] supplie ╵quand je t’appelle à l’aide
+   en élevant mes mains ╵en direction du lieu très saint ╵de ta demeure !
+3) Ne [[David|me]] fais pas subir ╵avec les criminels, ╵avec les malfaisants, ╵le sort qui leur est réservé ;
+   ces gens parlent de paix ╵à leur prochain, ╵avec le mal au fond du cœur.
+4) Oui, traite-les selon leurs actes ╵et leurs méfaits ;
+   oui, traite-les selon leurs œuvres,
+   fais retomber sur eux ╵ce qu’ils ont fait !
+5) Car ils ne tiennent aucun compte ╵des actes accomplis par l’[[Dieu|Eternel]]
+   et de ses œuvres.
+   Que l’[[Dieu|Eternel]] ╵fasse venir leur ruine ╵et qu’il ne les relève pas !
+6) Béni soit l’[[Dieu|Eternel]],
+   car il [[David|m]]’entend ╵lorsque je le supplie.
+7) L’[[Dieu|Eternel]] est [[David|ma]] force, ╵mon bouclier.
+   En lui je me confie ; ╵il vient à mon secours.
+   Aussi mon cœur bondit de joie.
+   Je veux chanter pour le louer.
+8) L’[[Dieu|Eternel]] est la force ╵de tous les siens,
+   il est la forteresse ╵où le roi qui a reçu l’onction de sa part ╵trouve la délivrance.
+9) O [[Dieu|Eternel]], ╵sauve ton peuple, ╵et bénis-le : ╵il est ton patrimoine.
+   Sois son berger, ╵et prends soin de lui pour toujours.
 ## Chapitre 32
 Intitulé **Joie du pardon** par [[Bible#^358f23|BDS]]
 

@@ -184,3 +184,16 @@ Intitulé **Mise en garde contre les faux apôtres** par [[Bible#^358f23|BDS]]
 13) Ces hommes-là sont de faux apôtres, des ouvriers malhonnêtes déguisés en apôtres de [[Jésus|Christ]].
 14) Cela n’a rien d’étonnant : [[Satan]] lui-même ne se déguise-t-il pas en ange de lumière ?
 15) Il n’est donc pas surprenant que [[Satan|ses]] agents aussi se déguisent en serviteurs de ce qui est juste. Mais ils auront la fin que méritent leurs œuvres.
+
+## Chapitre 12
+### Versets 1 à 10
+1) Faut-il se vanter ? Cela n’est pas convenable. [[Paul|J]]’en viendrai cependant à des visions et à des révélations du [[Dieu|Seigneur]].
+2) [[Paul|Je]] connais un homme, qui appartient à [[Jésus|Christ]], et qui, il y a quatorze ans, a été enlevé jusqu’au troisième ciel – était-ce dans son corps, je ne sais, ou sans son corps, je ne sais, mais [[Dieu]] le sait.
+3) [[Paul|Je]] sais seulement que cet homme – dans son corps ou hors de son corps, je ne sais, [[Dieu]] le sait –
+4) a été enlevé au paradis et qu’il a entendu des paroles qu’on ne peut pas répéter parce qu’il n’est pas permis à un homme de les dire.
+5) Au sujet d’un tel homme, [[Paul|je]] me vanterai, mais au sujet de moi-même, je ne me vanterai que de mes faiblesses.
+6) Et pourtant, si [[Paul|je]] voulais me vanter, je ne serais pas un insensé, car je ne dirais que la vérité. Mais je m’en abstiens. Car je désire éviter que l’on se fasse de moi une idée supérieure à ce qu’on peut déduire de mes actes et de mes paroles.
+7) D’ailleurs, parce que ces révélations étaient extraordinaires, pour [[Paul|me]] garder de l’orgueil, [[Dieu]] m’a imposé une épreuve qui, telle une écharde, tourmente mon corps. Elle me vient de [[Satan]] qui a été chargé de me frapper pour que je ne sois pas rempli d’orgueil.
+8) Au sujet de cette épreuve, [[Paul|j]]’ai prié par trois fois le [[Dieu|Seigneur]] de l’éloigner de moi,
+9) mais [[Dieu|il]] [[Paul|m]]’a répondu : **« Ma grâce te suffit, c’est dans la faiblesse que ma puissance se manifeste pleinement. »** C’est pourquoi je me vanterai plutôt de mes faiblesses, afin que la puissance de [[Jésus|Christ]] repose sur moi.
+10) [[Paul|Je]] trouve ainsi ma joie dans la faiblesse, les insultes, la détresse, les persécutions et les angoisses que j’endure pour [[Jésus|Christ]]. Car c’est lorsque je suis faible que je suis réellement fort.
