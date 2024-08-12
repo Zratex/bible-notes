@@ -116,19 +116,51 @@
             }
           },
           {
-            "id": "0c2835358d219d94",
+            "id": "f9e5d6396f545b8d",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "L'attitude du vainqueur.md",
+                "file": "Grâce dans la souffrance.md",
                 "mode": "source",
                 "source": false
               }
             }
+          },
+          {
+            "id": "36ebcfb9d419d5a9",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Origines de la souffrance.md",
+                "mode": "source",
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "a8105b1e9f519430",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Combat spirituel.md",
+                "mode": "source",
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "0c2835358d219d94",
+            "type": "leaf",
+            "state": {
+              "type": "empty",
+              "state": {}
+            }
           }
         ],
-        "currentTab": 8
+        "currentTab": 11
       }
     ],
     "direction": "vertical"
@@ -194,7 +226,7 @@
         "state": {
           "type": "backlink",
           "state": {
-            "file": "Vie victorieuse en Christ.md",
+            "file": "Combat spirituel.md",
             "collapseAll": false,
             "extraContext": false,
             "sortOrder": "alphabetical",
@@ -211,7 +243,7 @@
         "state": {
           "type": "outgoing-link",
           "state": {
-            "file": "Vie victorieuse en Christ.md",
+            "file": "Combat spirituel.md",
             "linksCollapsed": false,
             "unlinkedCollapsed": true
           }
@@ -223,7 +255,7 @@
         "state": {
           "type": "outline",
           "state": {
-            "file": "Vie victorieuse en Christ.md"
+            "file": "Combat spirituel.md"
           }
         }
       }
@@ -240,10 +272,14 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "66b64099e0227a92",
+  "active": "a8105b1e9f519430",
   "lastOpenFiles": [
-    "L'attitude du vainqueur.md",
+    "Personnages/Satan.md",
+    "Combat spirituel.md",
+    "Origines de la souffrance.md",
+    "Grâce dans la souffrance.md",
     "Vie victorieuse en Christ.md",
+    "L'attitude du vainqueur.md",
     "Lieux historiques/Villes/Kalné.md",
     "Personnages/Jésus.md",
     "Référence Biblique/Ancien testament/3 - Premiers livres historiques/11&12 - Rois.md",
@@ -264,10 +300,6 @@
     "Référence Biblique/Nouveau testament/3 - Lettres de Paul/11 - Philippiens.md",
     "Définitions/Service.md",
     "Seigneur et non seulement sauveur.md",
-    "Table d'opération.md",
-    "Référence Biblique/Ancien Testament.md",
-    "Fruit.md",
-    "Référence Biblique/Ancien testament/7 - Seconds livres prophétiques/32 - Jonas.md",
     "Lieux historiques/Images/Carte Judée.png",
     "Versets"
   ]
