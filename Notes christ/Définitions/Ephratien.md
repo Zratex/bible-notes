@@ -1,0 +1,1 @@
+==Ephratien :== habitant de [[Bethléem]]

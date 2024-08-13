@@ -1,0 +1,2 @@
+Bethléem (ou **Bethléhem**) Ville d'origine [[Israël|israélienne]] mais désormais en [[Palestine]] située entre 5 et 10km au sud de [[Jérusalem]], elle est surtout connue car [[David]] et [[Jésus]] y sont nés.
+![[Bethléem.png]]

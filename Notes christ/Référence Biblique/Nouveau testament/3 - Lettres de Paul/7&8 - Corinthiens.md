@@ -152,18 +152,26 @@ Verset 17 fait référence à [[23 - Esaïe#Versets 7 à 12|Esaïe 52:11]]
 18) *Je serai pour vous un Père, et vous serez pour moi des fils et des filles,*
     *dit le [[Dieu|Seigneur]], le [[Dieu|Tout-Puissant]]*
 ## Chapitre 10
-Intitulé par la version [[Bible#^358f23|BDS]] **Paul défend son apostolat | L'autorité de l'apôtre**
-### Versets 1 à 4
-1) Moi, Paul, je suis, paraît-il, « timide » quand je suis présent parmi vous et « hardi » quand je suis absent, loin de vous. Mais c’est au nom de la douceur et de la bonté de Christ que je vous adresse cet appel :
-2) je vous en prie, ne m’obligez pas, lorsque je serai chez vous, à me montrer « hardi ». Car je compte faire preuve de mon assurance et agir avec « audace » envers certains qui jugent notre conduite « trop humaine ».
+Intitulé **Paul défend son apostolat | L'autorité de l'apôtre** par [[Bible#^358f23|BDS]]
+
+1) Moi, [[Paul]], je suis, paraît-il, « timide » quand je suis présent parmi vous et « hardi » quand je suis absent, loin de vous. Mais c’est au nom de la douceur et de la bonté de [[Jésus|Christ]] que je vous adresse cet appel :
+2) [[Paul|je]] vous en prie, ne m’obligez pas, lorsque je serai chez vous, à me montrer « hardi ». Car je compte faire preuve de mon assurance et agir avec « audace » envers certains qui jugent notre conduite « trop humaine ».
 3) Sans doute, nous sommes des hommes et nous vivons comme tels, mais nous ne menons pas notre combat d’une manière purement humaine.
-4) Car les armes avec lesquelles nous combattons ne sont pas simplement humaines ; elles tiennent leur puissance de Dieu qui les rend capables de renverser des forteresses. Oui, nous renversons les faux raisonnements
-### Versets 5 et 6
-
-^2d8a13
-
+4) Car les armes avec lesquelles nous combattons ne sont pas simplement humaines ; elles tiennent leur puissance de [[Dieu]] qui les rend capables de renverser des forteresses. Oui, nous renversons les faux raisonnements
 5) ainsi que tout ce qui se dresse présomptueusement contre la connaissance de [[Dieu]], et nous faisons prisonnière toute pensée pour l’amener à obéir à [[Jésus|Christ]].
 6) Aussi sommes-nous prêts à punir toute désobéissance dès que votre obéissance sera entière.
+7) Regardez donc la réalité en face. Si quelqu’un se persuade d’appartenir à [[Jésus|Christ]], qu’il soit vraiment convaincu de ceci : nous appartenons à [[Jésus|Christ]], nous aussi, tout autant que lui !
+8) Et même si [[Paul|je]] me montre un peu trop fier de l’autorité que le [[Seigneur et non seulement sauveur|Seigneur]] nous a donnée pour construire et non pour renverser, je n’en rougirai pas.
+9) Car [[Paul|je]] ne veux pas passer pour quelqu’un qui ne serait capable d’intimider que par des lettres, comme on le prétend :
+10) « Ses lettres, dit-on, sont sévères et énergiques, mais lorsqu’il est là, c’est un faible et sa parole ne mérite pas l’attention. »
+11) Que celui qui tient ces propos en soit bien convaincu : nos actes, quand nous serons chez vous, seront conformes à ce que nous vous écrivons dans nos lettres quand nous sommes loin de vous.
+12) Certes, nous n’aurions pas l’audace de nous prétendre égaux ou même comparables à certains qui se recommandent eux-mêmes ! La mesure avec laquelle ils se mesurent, c’est eux-mêmes, et ils ne se comparent à rien d’autre qu’à eux-mêmes. N’est-ce pas là une preuve de leur folie ?
+13) Quant à nous, nous ne nous laisserons pas aller à une fierté démesurée, mais nous prendrons comme mesure les limites du champ d’action que [[Dieu]] nous a confié. C’est ainsi que nous nous sommes rendus jusque chez vous.
+14) Aussi ne dépassons-nous pas les limites de notre domaine comme si nous n’étions pas arrivés jusqu’à vous. Car nous sommes bien venus chez vous les premiers pour vous annoncer l’[[Note sur l'évangile|Evangile]] de [[Jésus|Christ]].
+15) Nous n’avons donc pas une fierté démesurée comme si nous nous vantions d’un travail accompli par d’autres. Au contraire, nous gardons l’espoir qu’avec les progrès de votre foi, notre œuvre grandira de plus en plus parmi vous, dans les limites de notre champ d’action.
+16) Nous pourrons ainsi annoncer l’[[Note sur l'évangile|Evangile]] dans les régions situées au-delà de chez vous, sans nous vanter du travail accompli par d’autres dans leur propre champ d’action.
+17) [[24 - Jérémie#Versets 22 à 25|Si quelqu’un veut éprouver de la fierté, qu’il place sa fierté dans le Seigneur]] , déclare l’[[Ancien Testament|Ecriture]].
+18) Ainsi, celui qui est approuvé, ce n’est pas l’homme qui se recommande lui-même, mais celui que le [[Seigneur et non seulement sauveur|Seigneur]] recommande.
 
 ## Chapitre 11
 ### Versets 1 à 15

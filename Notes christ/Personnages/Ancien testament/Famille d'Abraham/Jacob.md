@@ -1,4 +1,4 @@
-Fils d'[[Isaac]] et [[Rebecca]], frère d'[[Esaü]], et est à l'origine d'[[Israël]]. Il eut comme femme [[Rachel]].
+Renommé en ==Israël== (il est donc à l'origine de la nation d'[[Israël]]), **Jacob** est le fils d'[[Isaac]] et [[Rebecca]], frère d'[[Esaü]], et il eut comme femme [[Rachel]].
 
 Jacob eut 12 fils qui représente les 12 tribus d'[[Israël]]. Respectivement :
 - [[Ruben]]

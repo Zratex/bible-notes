@@ -1,1 +1,1 @@
-Auteur du livre d'[[23 - Esaïe|Esaïe]]
+Auteur du livre d'[[23 - Esaïe|Esaïe]], à ne pas confondre avec [[Isaï]]

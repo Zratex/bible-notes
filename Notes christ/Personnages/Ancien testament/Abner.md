@@ -1,0 +1,1 @@
+Vraisemblablement l'oncle de [[Saül]], il a occupé le poste de général de l'armée d'[[Israël]] pendant le règne de [[Saül]] et aussi apparemment pendant le début du schisme entre [[Israël]] et le [[Royaume de Judée]]

@@ -1,0 +1,1 @@
+Guérar (ou "Gerar") était une ville d'origine [[Philistins|philistine]] située entre [[Gaza]] et [[Rafah]]

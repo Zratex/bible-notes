@@ -23,7 +23,7 @@ Il y a pas mal d'aspect géopolitiques (présents ou non) à propos de l'existen
 	- ...
 - Royaumes voisins (très souvent ennemis) :
 	- [[Egypte]]
-	- [[Philistins]] (Gaza)
+	- [[Philistins]] ([[Gaza]])
 	- [[Edom]]
 	- [[Moab]]
 	- [[Phénécie]]

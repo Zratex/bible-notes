@@ -133,3 +133,20 @@ Intitulé **[[Abraham|Abram]] se fixe au pays de Canaan** par [[Bible#^358f23|BD
 11) [[Loth]] choisit donc pour lui toute la plaine du [[Jourdain]] et il se dirigea vers l’est. Ainsi, ils se séparèrent l’un de l’autre.
 12) [[Abraham|Abram]] se fixa dans le pays de [[Canaan]], et [[Loth]] s’établit au milieu des villes de la plaine, dressant ses tentes jusqu’à Sodome.
 13) Or, les gens de Sodome étaient mauvais, ils commettaient beaucoup de péchés contre l’[[Dieu|Eternel]].
+## Chapitre 26
+### Versets 1 à 11
+Intitulé **[[Isaac]] à [[Guérar]]**
+
+1) A cette époque-là, il y eut de nouveau une famine dans le pays, comme naguère au temps d’[[Abraham|Abraham]]. Alors [[Isaac]] se rendit à [[Guérar]] chez [[Abimélek]], roi des [[Philistins]].
+2) En effet, l’[[Dieu|Eternel]] [[Isaac|lui]] était apparu et lui avait dit : Ne descends pas en [[Egypte]] ! Fixe-toi dans le pays que je te désignerai.
+3) Séjourne dans ce pays-ci. [[Dieu|Je]] serai avec [[Isaac|toi]] et je te bénirai. Car c’est à toi et à ta descendance que je donnerai tous ces territoires. J’accomplirai ainsi le serment que j’ai fait à ton père [[Abraham]].
+4) [[Dieu|Je]] rendrai [[Isaac|ta]] descendance aussi nombreuse que les étoiles du ciel et je lui donnerai tous ces territoires-ci, et tous les peuples de la terre seront bénis en ta descendance.
+5) [[Dieu|Je]] le ferai parce qu’[[Abraham]] m’a obéi et qu’il a observé mes prescriptions, mes commandements, mes préceptes et mes lois.
+6) C’est pourquoi [[Isaac]] resta à [[Guérar]].
+7) Lorsque les hommes de l’endroit s’enquéraient au sujet de [[Isaac|sa]] [[Rebecca|femme]], il répondait : C’est ma sœur.
+   Il ne disait pas qu’elle était sa femme : il avait peur que les gens de l’endroit le tuent à cause d’elle, car elle était belle.
+8) Comme [[Isaac|il]] était déjà depuis assez longtemps dans le pays, [[Abimélek]], le roi des [[Philistins]], regardant par la fenêtre, surprit [[Isaac]] en train de s’amuser avec [[Rebecca|Rébecca]] sa femme.
+9) Alors [[Abimélek|il]] [[Isaac|le]] fit appeler et lui dit : C’est sûrement ta [[Rebecca|femme]]. Pourquoi as-tu dit : « C’est ma sœur » ?
+   [[Isaac]] lui répondit : Je me disais que je risquais de mourir à cause d’elle.
+10) [[Abimélek]] rétorqua : Te rends-[[Isaac|tu]] compte de ce que tu nous as fait là ? Il s’en est fallu de peu qu’un homme de ce peuple couche avec ta [[Rebecca|femme]] ; dans ce cas, tu nous aurais chargés d’une lourde culpabilité.
+11) Alors [[Abimélek]] fit publier ce décret à tout le peuple : Quiconque fera du mal à [[Isaac|cet homme]] ou à [[Rebecca|sa femme]] sera puni de mort.

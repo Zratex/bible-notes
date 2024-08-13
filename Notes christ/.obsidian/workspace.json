@@ -11,8 +11,12 @@
             "id": "b130deb4c7513be0",
             "type": "leaf",
             "state": {
-              "type": "graph",
-              "state": {}
+              "type": "markdown",
+              "state": {
+                "file": "Combat spirituel.md",
+                "mode": "source",
+                "source": false
+              }
             }
           }
         ]
@@ -44,7 +48,7 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "palestine",
+                "query": "",
                 "matchingCase": false,
                 "explainSearch": false,
                 "collapseAll": false,
@@ -81,6 +85,7 @@
             "state": {
               "type": "backlink",
               "state": {
+                "file": "Combat spirituel.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -97,6 +102,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
+                "file": "Combat spirituel.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -118,7 +124,9 @@
             "type": "leaf",
             "state": {
               "type": "outline",
-              "state": {}
+              "state": {
+                "file": "Combat spirituel.md"
+              }
             }
           },
           {
@@ -152,32 +160,37 @@
   },
   "active": "b130deb4c7513be0",
   "lastOpenFiles": [
-    "Tentation (note).md",
-    "Tentation (note).sync-conflict-20240812-101145-GNOYGME.md",
-    "Wake up.md",
-    "Wake up.sync-conflict-20240812-101134-GNOYGME.md",
-    "Veiller sur le cœur.sync-conflict-20240812-101111-GNOYGME.md",
-    "Veiller sur le cœur.md",
-    "Unité.md",
-    "Unité.sync-conflict-20240812-101107-GNOYGME.md",
-    "Titre de noblesse.md",
-    "Titre de noblesse.sync-conflict-20240812-101123-GNOYGME.md",
-    "Sagesse (note).sync-conflict-20240812-101106-4D4KN2W.md",
-    "Sagesse (note).md",
-    "Alliance (ou contrat).sync-conflict-20240812-101120-GNOYGME.md",
-    "Alliance (ou contrat).md",
-    "A quiconque désire suivre Jésus.sync-conflict-20240812-101142-GNOYGME.md",
-    "A quiconque désire suivre Jésus.md",
-    "Référence Biblique/Nouveau testament/1 -Evangiles/2nd Evangile - Marc.md",
-    "Référence Biblique/Nouveau testament/1 -Evangiles/4eme Evangile - Jean.sync-conflict-20240812-101137-GNOYGME.md",
-    "Référence Biblique/Nouveau testament/1 -Evangiles/2nd Evangile - Marc.sync-conflict-20240812-101141-GNOYGME.md",
-    "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.md",
-    "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.sync-conflict-20240812-101115-GNOYGME.md",
-    "Chemins tout tracés.sync-conflict-20240812-101135-GNOYGME.md",
-    "Chemins tout tracés.md",
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/7&8 - Corinthiens.md",
     "Combat spirituel.md",
-    "Table d'opération.md",
-    "Table d'opération.sync-conflict-20240812-101107-GNOYGME.md",
+    "Définitions/Seigneur.md",
+    "Référence Biblique/Ancien testament/6 - Premiers livres prophétiques/24 - Jérémie.md",
+    "Lieux historiques/Royaumes/Ammon.md",
+    "Lieux historiques/Royaumes/Amalec.md",
+    "Lieux historiques/Royaumes/Moab.md",
+    "Lieux historiques/Royaumes/Edom.md",
+    "Définitions/Sagesse.md",
+    "Référence Biblique/Nouveau testament/2 - Actes des apôtres/Actes.md",
+    "Référence Biblique/Ancien testament/1 - Le commencement/Genèse.md",
+    "Personnages/Ancien testament/Ennemis d'Israel/Abimélek.md",
+    "Lieux historiques/Villes/Guérar.md",
+    "Lieux historiques/Royaumes/Israël.md",
+    "Lieux historiques/Royaumes/Philistins.md",
+    "Lieux historiques/Villes/Gaza.md",
+    "Lieux historiques/Villes/Rafah.md",
+    "Lieux historiques/Images/Bande de Gaza.png",
+    "Lieux historiques/Images/Gaza.png",
+    "Référence Biblique/Ancien testament/2 - La loi de Dieu/5 - Deutéronome.md",
+    "Personnages/Ancien testament/Famille d'Abraham/Jacob.md",
+    "Définitions/Parole de Dieu (Actes).md",
+    "Personnages/Nouveau testament/Etienne.md",
+    "Référence Biblique/Ancien testament/3 - Premiers livres historiques/9&10 - Samuel.md",
+    "Personnages/Ancien testament/Abner.md",
+    "Lieux historiques/Villes/Shaaraïm.md",
+    "Lieux historiques/Images/Shaaraïm.png",
+    "Lieux historiques/Villes/Gath.md",
+    "Lieux historiques/Villes/Eqrôn.md",
+    "Lieux historiques/Images/Eqron.png",
+    "Lieux historiques/Images/Bethléem.png",
     "Lieux historiques/Images/Magdala.png",
     "~syncthing~Vie victorieuse en Christ.md.tmp",
     "Personnages/Ancien testament/Chute de Judée/Perses",
@@ -188,13 +201,8 @@
     "Lieux historiques/Images/Suse.PNG",
     "Lieux historiques/Images/Hamath.PNG",
     "Lieux historiques/Images/Gath.PNG",
-    "Lieux historiques/Images/Tigre Euphrate.PNG",
-    "Lieux historiques/Images/Assyrie.png",
     "Lieux historiques/Images/Assyrie.png.0.pdnSave",
-    "Lieux historiques/Images/Mésopothamie.png",
     "Lieux historiques/Images/Mésopothamie.png.0.pdnSave",
-    "Lieux historiques/Images/Babylone.PNG",
-    "Lieux historiques/Images/Asie mineure.jpg",
     "Lieux historiques/Images/Asie mineure.jpg.crdownload",
     "Lieux historiques/Images/Galatie.png.0.pdnSave",
     "~syncthing~La marche d'Élie.md.tmp"

@@ -23,7 +23,19 @@ Intitulé **Se garder de l'idolâtrie** par [[Bible#^358f23|BDS]]
 19) Vous les enseignerez à vos enfants et vous leur en parlerez, chez vous dans votre maison et quand vous marcherez sur la route, quand vous vous coucherez et quand vous vous lèverez.
 20) Vous les inscrirez sur les poteaux de votre maison et sur les montants de vos portes.
 21) Alors vos jours et ceux de vos enfants dans le pays que l’[[Dieu|Eternel]] a promis par serment de donner à vos ancêtres dureront aussi longtemps que le ciel restera au-dessus de la terre.
+## Chapitre 18
+### Versets 14 à 22
+Intitulé **Les prophètes** par [[Bible#^358f23|BDS]]
 
+14) Car ces peuples étrangers que vous allez déposséder écoutent les faiseurs de présages et les devins ; mais pour vous, l’[[Dieu|Eternel]] votre [[Dieu]] n’a rien voulu de pareil.
+15) [[Dieu|Il]] suscitera pour vous un prophète comme [[Moïse|moi]], issu de votre peuple, l’un de vos compatriotes : écoutez-le.
+16) Cela est conforme à ce que vous avez demandé à l’[[Dieu|Eternel]] votre [[Dieu]] le jour où vous étiez rassemblés au [[Mont Sinaï|mont Horeb]] : « Nous ne voulons plus entendre la voix de l’Eternel notre Dieu, nous ne voulons plus voir ce grand feu ! Nous ne voulons pas mourir  ! »
+17) Alors l’[[Dieu|Eternel]] m’a dit : « J’approuve ce qu’ils disent là. »
+18) [[Dieu|Je]] vais leur susciter un prophète comme [[Moïse|toi]], l’un de leurs compatriotes. Je mettrai mes paroles dans sa bouche et il leur transmettra tout ce que je lui ordonnerai.
+19) Et si quelqu’un refuse d’écouter ce qu’il dira de ma part, [[Dieu|je]] lui en demanderai compte moi-même.
+20) Mais si un prophète a l’audace de prononcer en mon nom un message dont je ne l’ai pas chargé, ou s’il se met à parler au nom d’autres divinités, il sera mis à mort.
+21) Peut-être vous demanderez-vous : « Comment saurons-nous qu’une prophétie ne vient pas de l’[[Dieu|Eternel]] ? »
+22) Sachez donc que si le prophète annonce de la part de l’[[Dieu|Eternel]] une chose qui ne se réalise pas, si sa parole reste sans effet, c’est que son message ne vient pas de l’[[Dieu|Eternel]], c’est par présomption que le prophète l’aura prononcé : vous ne vous laisserez donc pas impressionner par lui.
 ## Chapitre 30
 ### Versets 15 à 20
 Intitulé **La vie et la mort** par [[Bible#^358f23|BDS]]

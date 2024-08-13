@@ -1,6 +1,43 @@
 Actes des [[Apôtres]]
-### Parole de Dieu
-A savoir qu'ici quand il est question d'annoncer "*la parole du Seigneur/Dieu*", le [[Nouveau testament]] n'était pas encore écrit. Ils prêchaient non pas le christianisme, mais le [[Jésus|Christ]] (la bonne nouvelle).
+
+Petite note sur un terme précis : [[Parole de Dieu (Actes)|Parole de Dieu]]
+## Chapitre 3
+### Versets 1 à 11
+Intitulé **La guérison d'un paralysé** par [[Bible#^358f23|BDS]]
+
+1) Un jour, [[Simon Pierre|Pierre]] et [[Jean]] montaient au Temple pour la prière à trois heures de l’après-midi.
+2) On était juste en train d’y porter un infirme : c’était un homme paralysé depuis sa naissance. On l’installait tous les jours à l’entrée de la cour du Temple, près de la porte appelée la « Belle Porte », pour qu’il puisse demander l’aumône à ceux qui se rendaient au sanctuaire.
+3) Quand il vit [[Simon Pierre|Pierre]] et [[Jean]] qui allaient pénétrer dans la cour du Temple, il leur demanda l’aumône.
+4) Les deux [[Apôtres|apôtres]] fixèrent les yeux sur lui.
+   – Regarde-nous ! lui dit [[Simon Pierre|Pierre]].
+5) L’infirme les regarda attentivement : il pensait qu’il allait recevoir d’eux quelque chose.
+6) Mais [[Simon Pierre|Pierre]] lui dit : Je n’ai ni argent ni or, mais ce que j’ai je te le donne : au nom de [[Jésus|Jésus-Christ]] de [[Nazareth]], lève-toi et marche  !
+7) Et, en même temps, [[Simon Pierre|il]] le prit par la main droite et le fit lever. Aussitôt, ses pieds et ses chevilles se raffermirent,
+8) d’un saut il fut debout et se mit à marcher. Il entra avec eux dans la cour du Temple : il marchait, il sautait de joie et louait [[Dieu]].
+9) Tout le monde le vit ainsi marcher et louer [[Dieu]].
+10) On le reconnaissait : c’était bien lui qui était toujours assis à mendier près de la « Belle Porte » du Temple.
+    En voyant ce qui venait de lui arriver, les gens étaient remplis de stupeur et de crainte.
+11) Quant à lui, il ne quittait plus [[Simon Pierre|Pierre]] et [[Jean]]. Tout le peuple accourut et se rassembla autour d’eux dans la cour du Temple, sous le portique de [[Salomon]], et ils étaient stupéfaits.
+### Versets 12 à 26
+Intitulé **[[Simon Pierre|Pierre]] explique le miracle** par [[Bible#^358f23|BDS]]
+
+12) Quand [[Simon Pierre|Pierre]] vit cela, il s’adressa à la foule :
+    Hommes [[Israël|israélites]], qu’avez-vous à vous étonner ainsi de ce qui vient de se passer ? Pourquoi nous fixez-vous avec tant d’insistance comme si c’était nous qui, par notre propre pouvoir ou notre piété, avions fait marcher cet homme ?
+13) Non, c’est le [[Dieu]] d’[[Abraham]], d’[[Isaac]] et de [[Jacob]], le [[Dieu]] de nos ancêtres, qui vient ici de manifester la gloire de son serviteur [[Jésus]] – ce [[Jésus]] que vous avez livré à [[Pilate]] et renié devant lui alors qu’il était décidé de le remettre en liberté.
+14) Oui, vous avez renié celui qui est saint et juste. A sa place, vous avez demandé comme faveur la libération d’un meurtrier.
+15) Ainsi vous avez fait mourir l’auteur de la vie. Mais [[Dieu]] l’a ressuscité : nous en sommes témoins.
+16) Et c’est parce que nous croyons en [[Jésus]], que la puissance de ce [[Jésus]] que nous avons invoqué a rendu à cet homme que vous voyez et que vous connaissez, la force de se tenir debout. Oui, cette foi qui est efficace par [[Jésus]] a donné à cet homme une parfaite guérison, comme vous pouvez tous vous en rendre compte.
+17) A présent, mes [[Israël|frères]], [[Simon Pierre|je]] sais bien que vous avez agi sans savoir ce que vous faisiez, aussi bien vous que vos chefs.
+18) Mais [[Dieu]] a accompli de cette manière ce qu’il avait annoncé d’avance par tous ses prophètes : le [[Jésus|Messie]] qu’il avait promis d’envoyer devait souffrir.
+19) Maintenant donc, changez et tournez-vous vers [[Dieu]] pour qu’il efface vos péchés.
+20) Alors le [[Seigneur et non seulement sauveur|Seigneur]] vous accordera des temps de repos, et il vous enverra celui qu’il vous a destiné comme Messie : [[Jésus]].
+21) En attendant, [[Jésus|il]] doit demeurer au ciel jusqu’au jour où l’univers entier sera restauré, comme [[Dieu]] l’a annoncé depuis des siècles par la bouche de ses saints prophètes.
+22) Ainsi [[Moïse]] a dit :
+    [[5 - Deutéronome#Versets 14 à 22|Le Seigneur votre Dieu suscitera pour vous, du milieu de vos compatriotes, un prophète qui sera comme moi : vous écouterez tout ce qu’il vous dira.]]
+23) [[5 - Deutéronome#Versets 14 à 22|Celui qui refusera d’obéir à ce prophète sera exclu de mon peuple par la mort.]]
+24) Tous les prophètes qui ont parlé, depuis [[Samuel]] et ses successeurs, ont annoncé aussi d’avance les temps que nous vivons aujourd’hui.
+25) Vous êtes les héritiers de ces prophètes, les bénéficiaires de l’alliance que [[Dieu]] a conclue avec nos ancêtres lorsqu’il a promis à [[Abraham]] : [[Genèse#Versets 1 à 11|Toutes les familles de la terre seront bénies à travers ta descendance.]]
+26) C’est pour vous, en premier lieu, que [[Dieu]] a ressuscité [[Jésus|son serviteur]] ; et [[Dieu|il]] vous l’a envoyé pour vous bénir, en détournant chacun de vous de ses mauvaises actions.
 ## Chapitre 8
 Intitulé **Témoins en [[Judée]] et en [[Samarie]]** par [[Bible#^358f23|BDS]]
 ### Versets 1 à 3
@@ -22,7 +59,7 @@ Pour la capitale, c'est probablement la ville de [[Samarie]] en fonction des tra
 11) S’ils s’attachaient ainsi à lui, c’était parce que, depuis assez longtemps, il les étonnait par ses actes de magie.
 12) Mais quand ils crurent [[Philippe]] qui leur annonçait ce qui concerne le royaume de [[Dieu]] et [[Jésus|Jésus-Christ]], ils se firent baptiser, tant les hommes que les femmes.
 13) [[Actes#^896ff7|Simon]] lui-même crut et fut baptisé. Dès lors, il ne quittait plus [[Philippe]], émerveillé par les signes miraculeux et les prodiges extraordinaires qui s’accomplissaient sous ses yeux.
-14) Quand les [[Apôtres]], restés à [[Jérusalem]], apprirent que les Samaritains avaient accepté la [[Actes#Parole de Dieu|Parole de Dieu]], ils déléguèrent auprès d’eux [[Simon Pierre|Pierre]] et [[Jean]].
+14) Quand les [[Apôtres]], restés à [[Jérusalem]], apprirent que les Samaritains avaient accepté la [[Parole de Dieu (Actes)|Parole de Dieu]], ils déléguèrent auprès d’eux [[Simon Pierre|Pierre]] et [[Jean]].
 15) Dès leur arrivée, ceux-ci prièrent pour les nouveaux disciples afin qu’ils reçoivent le [[Saint-Esprit]].
 16) En effet, il n’était encore descendu sur aucun d’eux : ils avaient seulement été baptisés au nom du [[Jésus|Seigneur Jésus]].
 17) [[Simon Pierre|Pierre]] et [[Jean]] leur imposèrent donc les mains et ils reçurent l’[[Saint-Esprit|Esprit Saint]].
@@ -39,7 +76,7 @@ Pour la capitale, c'est probablement la ville de [[Samarie]] en fonction des tra
 
 Après Simon :
 
-25) [[Simon Pierre|Pierre]] et [[Jean]] continuèrent à rendre témoignage à [[Jésus|Jésus-Christ]] en annonçant la [[Actes#Parole de Dieu|Parole du Seigneur]], puis ils retournèrent à [[Jérusalem]], tout en annonçant l’[[Nouveau testament#^94270d|Evangile]] dans un grand nombre de villages samaritains.
+25) [[Simon Pierre|Pierre]] et [[Jean]] continuèrent à rendre témoignage à [[Jésus|Jésus-Christ]] en annonçant la [[Parole de Dieu (Actes)|Parole du Seigneur]], puis ils retournèrent à [[Jérusalem]], tout en annonçant l’[[Nouveau testament#^94270d|Evangile]] dans un grand nombre de villages samaritains.
 
 
 

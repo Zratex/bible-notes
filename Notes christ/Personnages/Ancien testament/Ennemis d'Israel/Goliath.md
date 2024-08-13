@@ -1,0 +1,1 @@
+Un géant [[Philistins]] de près de 3m originaire de [[Gath]] qui défiait [[Israël]] avant de se faire vaincre par [[David]]
