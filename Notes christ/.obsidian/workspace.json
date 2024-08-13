@@ -11,12 +11,8 @@
             "id": "b130deb4c7513be0",
             "type": "leaf",
             "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Combat spirituel.md",
-                "mode": "source",
-                "source": false
-              }
+              "type": "graph",
+              "state": {}
             }
           }
         ]
@@ -48,7 +44,7 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "",
+                "query": "canan",
                 "matchingCase": false,
                 "explainSearch": false,
                 "collapseAll": false,
@@ -85,7 +81,6 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Combat spirituel.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -102,7 +97,6 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "Combat spirituel.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -124,9 +118,7 @@
             "type": "leaf",
             "state": {
               "type": "outline",
-              "state": {
-                "file": "Combat spirituel.md"
-              }
+              "state": {}
             }
           },
           {
@@ -158,10 +150,12 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "b130deb4c7513be0",
+  "active": "412ad4b021e16018",
   "lastOpenFiles": [
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/7&8 - Corinthiens.md",
+    "Personnages/Nouveau testament/Disciples de Jésus/Simon.md",
+    "Personnages/Ancien testament/Esaü.md",
     "Combat spirituel.md",
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/7&8 - Corinthiens.md",
     "Définitions/Seigneur.md",
     "Référence Biblique/Ancien testament/6 - Premiers livres prophétiques/24 - Jérémie.md",
     "Lieux historiques/Royaumes/Ammon.md",
@@ -187,8 +181,6 @@
     "Personnages/Ancien testament/Abner.md",
     "Lieux historiques/Villes/Shaaraïm.md",
     "Lieux historiques/Images/Shaaraïm.png",
-    "Lieux historiques/Villes/Gath.md",
-    "Lieux historiques/Villes/Eqrôn.md",
     "Lieux historiques/Images/Eqron.png",
     "Lieux historiques/Images/Bethléem.png",
     "Lieux historiques/Images/Magdala.png",
