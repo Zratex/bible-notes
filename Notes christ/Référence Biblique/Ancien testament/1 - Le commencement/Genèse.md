@@ -45,6 +45,40 @@ Intitulé **La création de l'univers** par [[Bible#^358f23|BDS]]
 1) Ainsi furent achevés le ciel et la terre avec toute l’armée de ce qu’ils contiennent.
 2) Le septième jour, [[Dieu]] avait achevé tout ce qu’il avait créé. Alors il se reposa en ce jour-là de toutes les œuvres qu’il avait accomplies.
 3) [[Dieu|Il]] bénit le septième jour, [[Dieu|il]] en fit un jour saint, car, en ce jour-là, [[Dieu|il]] se reposa de toute l’œuvre de création qu’[[Dieu|il]] avait accomplie.
+### Versets 4 à 25
+Intitulé **L'histoire des débuts de l'humanité - l'alliance d'Eden** par [[Bible#^358f23|BDS]]
+
+4) Voici l’histoire de ce qui est advenu au ciel et sur la terre lorsqu’ils furent créés.
+   Au temps où l’[[Dieu|Eternel Dieu]] fit la terre et le ciel,
+5) il n’existait encore sur la terre aucun arbuste, et aucune herbe des champs n’avait encore germé, car l’[[Dieu|Eternel Dieu]] n’avait pas fait pleuvoir sur la terre, et il n’y avait pas d’homme pour cultiver la terre.
+6) De l’eau se mit à sourdre et à irriguer toute la surface du sol.
+7) L’[[Dieu|Eternel Dieu]] façonna l’homme avec de la poussière du sol, il lui insuffla dans les narines le souffle de vie, et l’homme devint un être vivant.
+8) L’[[Dieu|Eternel Dieu]] planta un jardin vers l’orient : l’[[Eden]], le pays des Délices. Il y plaça l’homme qu’il avait façonné.
+9) L’[[Dieu|Eternel Dieu]] fit pousser du sol toutes sortes d’arbres portant des fruits d’aspect agréable et délicieux, et il mit l’arbre de la vie au milieu du jardin. Il y plaça aussi l’arbre de la détermination du bien et du mal.
+10) Du pays d’[[Eden]] sortait un fleuve qui arrosait le jardin. De là, il se divisait en quatre bras.
+11) Le nom du premier est Pishôn : il contourne tout le pays de Havila où se trouve de l’or,
+12) un or d’excellente qualité. On trouve aussi dans cette contrée de l’ambre parfumée et la pierre précieuse appelée onyx.
+13) Le deuxième fleuve s’appelle Guihôn, il parcourt tout le pays de [[Koush]].
+14) Le troisième fleuve s’appelle le [[Tigre & Euphrate|Tigre]], c’est celui qui coule à l’orient de l’[[Assyrie]].
+    Et le quatrième fleuve c’est l’[[Tigre & Euphrate|Euphrate]].
+15) L’[[Dieu|Eternel Dieu]] prit l’[[Adam|homme]] et l’établit dans le jardin d’[[Eden]] pour le cultiver et le garder.
+16) Et l’[[Dieu|Eternel Dieu]] ordonna à l’[[Adam|homme]] : Mange librement des fruits de tous les arbres du jardin,
+17) sauf du fruit de l’arbre de la détermination du bien et du mal. De celui-là, n’en mange pas, car le jour où [[Adam|tu]] en mangeras, tu mourras.
+18) L’[[Dieu|Eternel Dieu]] dit : Il n’est pas bon que l’[[Adam|homme]] soit seul, je lui ferai une aide qui soit son vis-à-vis.
+19) L’[[Dieu|Eternel Dieu]], qui avait façonné du sol tous les animaux des champs et tous les oiseaux du ciel, les fit venir vers l’[[Adam|homme]] pour voir comment il les nommerait, afin que tout être vivant porte le nom que l’[[Adam|homme]] lui donnerait.
+20) L’[[Adam|homme]] donna donc un nom à tous les animaux domestiques, à tous les oiseaux du ciel et aux animaux sauvages. Mais il ne trouva pas d’aide qui soit son vis-à-vis.
+21) Alors l’[[Dieu|Eternel Dieu]] plongea l’[[Adam|homme]] dans un profond sommeil. Pendant que celui-ci dormait, [[Dieu|il]] prit une de ses côtes et referma la chair à la place.
+22) L’[[Dieu|Eternel Dieu]] forma une [[Eve|femme]] de la côte qu’[[Dieu|il]] avait prise de l’[[Adam|homme]], et il l’amena à l’homme.
+23) Alors l’[[Adam|homme]] s’écria :
+    Voici bien cette fois
+    celle qui est
+    os de mes os,
+    chair de ma chair.
+    On la nommera « Femme »
+    car elle a été prise
+    de l’homme.
+24) C’est pourquoi l’homme laissera son père et sa mère et s’attachera à sa femme, et les deux ne feront plus qu’un.
+25) L’[[Adam|homme]] et sa [[Eve|femme]] étaient tous deux nus sans en éprouver aucune honte.
 ## Chapitre 3
 Intitulé **La rupture de l'[[Alliance (ou contrat)|alliance]]** par [[Bible#^358f23|BDS]]
 

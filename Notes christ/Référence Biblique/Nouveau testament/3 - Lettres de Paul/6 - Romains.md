@@ -55,10 +55,20 @@ Intitulé **Vivre conduits par l'[[Saint-Esprit|Esprit]]**
 17) Et puisque nous sommes enfants, nous sommes aussi héritiers : héritiers de [[Dieu]], et donc cohéritiers de [[Jésus|Christ]], puisque nous souffrons avec lui pour avoir part à sa gloire.
 ### Versets 18 à 30
 Intitulé **L’espérance au milieu des détresses présentes** par [[Bible#^358f23|BDS]]
-#### Versets 28 à 30
+
+18) [[Paul|J]]’estime d’ailleurs qu’il n’y a aucune commune mesure entre les souffrances de la vie présente et la gloire qui va se révéler en nous.
+19) En effet, la création attend, avec un ardent désir, la révélation des fils de [[Dieu]].
+20) Car la création tout entière a été réduite à une condition bien dérisoire ; cela ne s’est pas produit de son gré, mais à cause de celui qui l’y a soumise. Il lui a toutefois donné une espérance :
+21) c’est que la création elle-même sera délivrée de l’esclavage, de la corruption pour accéder à la liberté que les enfants de [[Dieu]] connaîtront dans la gloire.
+22) Nous le savons bien, en effet : jusqu’à présent la création tout entière est unie dans un profond gémissement et dans les douleurs d’un enfantement.
+23) Elle n’est pas seule à gémir ; car nous aussi, qui avons reçu l’[[Saint-Esprit|Esprit]] comme avant-goût de la gloire, nous gémissons du fond du cœur, en attendant d’être pleinement établis dans notre condition de fils adoptifs de [[Dieu]] quand notre corps sera délivré.
+24) Car nous sommes sauvés, mais c’est en espérance ; or, voir ce que l’on espère, ce n’est plus espérer ; qui, en effet, continue à espérer ce qu’il voit ?
+25) Mais si nous ne voyons pas ce que nous espérons, nous l’attendons avec persévérance.
+26) De même, l’[[Saint-Esprit|Esprit]] vient nous aider dans notre faiblesse. En effet, nous ne savons pas prier comme il faut, mais l’[[Saint-Esprit|Esprit]] lui-même intercède en gémissant d’une manière inexprimable.
+27) Et [[Dieu]] qui scrute les cœurs sait ce vers quoi tend l’[[Saint-Esprit|Esprit]], car c’est en accord avec [[Dieu]] qu’[[Saint-Esprit|il]] intercède pour les membres du peuple saint.
 28) Nous savons en outre que [[Dieu]] fait concourir toutes choses au bien de ceux qui l’aiment, de ceux qui ont été appelés conformément au plan divin.
 29) En effet, ceux que [[Dieu]] a connus d’avance, il les a aussi destinés d’avance à devenir conformes à l’image de son [[Jésus|Fils]], afin que celui-ci soit l’aîné de nombreux frères et sœurs.
-30) Ceux qu’il a ainsi destinés, il les a aussi appelés à lui ; ceux qu’il a ainsi appelés, il les a aussi déclarés justes, et ceux qu’il a déclarés justes, il leur a aussi donné sa gloire.
+30) Ceux qu’[[Dieu|il]] a ainsi destinés, il les a aussi appelés à lui ; ceux qu’il a ainsi appelés, il les a aussi déclarés justes, et ceux qu’il a déclarés justes, il leur a aussi donné sa gloire.
 
 ### Versets 31 à 39
 Intitulé **L'amour de [[Dieu]] : une assurance certaine** par [[Bible#^358f23|BDS]]
@@ -75,6 +85,23 @@ Intitulé **L'amour de [[Dieu]] : une assurance certaine** par [[Bible#^358f23|B
 37) Mais dans tout cela nous sommes bien plus que vainqueurs par celui qui nous a aimés.
 38) Oui, [[Paul|j]]’en ai l’absolue certitude : ni la mort ni la vie, ni les anges ni les dominations, ni le présent ni l’avenir, ni les puissances,
 39) ni ce qui est en haut ni ce qui est en bas (Autre traduction : `ni la hauteur, ni la profondeur`), ni aucune autre créature, rien ne pourra nous arracher à l’amour que [[Dieu]] nous a témoigné en [[Jésus|Jésus-Christ]] notre [[Seigneur]].
+## Chapitre 9
+### Versets 14 à 23
+Intitulé **Le [[Dieu]] souverain est juste** par [[Bible#^358f23|BDS]]
+
+14) Mais alors, que dire ? [[Dieu]] serait-il injuste ? Loin de là !
+15) Car [[Dieu|il]] a dit à [[Moïse]] :
+    [[2 - Exode#Versets 12 à 23|Je ferai grâce à qui je veux faire grâce,]]
+    [[2 - Exode#Versets 12 à 23|j’aurai compassion de qui je veux avoir compassion]]
+16) Cela ne dépend donc ni de la volonté de l’homme, ni de ses efforts, mais de Dieu qui fait grâce.
+17) Dans l’[[Ancien Testament|Ecriture]], [[Dieu]] dit au [[Pharaon|pharaon]] :
+    [[2 - Exode#Versets 13 à 35|Voici pourquoi je t’ai fait parvenir où tu es : pour montrer en toi ma puissance et pour que ma renommée se répande par toute la terre.]]
+18) Ainsi donc, [[Dieu]] fait grâce à qui il veut et il endurcit qui il veut.
+19) Tu vas [[Paul|me]] dire : pourquoi alors fait-il encore des reproches ? Car qui a jamais pu résister à [[Dieu|sa]] volonté ?
+20) Mais, qui es-tu donc toi, un homme, pour critiquer [[Dieu]] ? L’ouvrage demandera-t-il à l’ouvrier : « Pourquoi m’as-tu fait ainsi? »
+21) Le potier n’a-t-il pas le droit, à partir du même bloc d’argile, de fabriquer un pot d’usage noble et un autre pour l’usage courant ?
+22) Et qu’as-tu à redire si [[Dieu]], parce qu’il voulait montrer sa colère et faire connaître sa puissance, a supporté avec une immense patience ceux qui étaient les objets de sa colère, tout prêts pour la destruction ?
+23) Oui, qu’as-tu à redire si [[Dieu]] a agi ainsi pour manifester la richesse de sa gloire en faveur de ceux qui sont les objets de sa compassion, ceux qu’il a préparés d’avance pour la gloire ?
 ## Chapitre 10
 ### Versets 1 à 13
 Il n'y a pas d'intitulé, mais c'est bien la version [[Bible#^358f23|BDS]]

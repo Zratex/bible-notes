@@ -1,0 +1,1 @@
+==Mort :== La mort est l'éloignement de [[Dieu]]

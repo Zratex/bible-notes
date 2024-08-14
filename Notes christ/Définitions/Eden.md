@@ -1,0 +1,1 @@
+Signifiant "**lieu des délices**", le jardin d'Eden décrit dans [[Genèse#Chapitre 2|Genèse 2]] et [[Genèse#Chapitre 3|Genèse 3]] est en quelque sorte un "paradis sur terre" créé par [[Dieu]] pour l'humanité, et dont la **première alliance** avec l'humanité a été faite.
