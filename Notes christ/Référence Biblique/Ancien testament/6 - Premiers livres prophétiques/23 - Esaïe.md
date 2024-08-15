@@ -11,13 +11,103 @@ Verset 14 cité dans [[7&8 - Corinthiens#Versets 18 à 31|1 Corinthiens 1:19]]
 ### Versets 7 à 12
 Intitulé **[[Dieu]] délivre** par la version [[Bible#^358f23|BDS]]
 
-11) Partez, partez, sortez de là, ne touchez rien d’impur  ! Sortez de cette ville ! Purifiez-vous, vous qui portez les ustensiles de l’[[Dieu|Eternel]]
-12) 
+7) Comme il est beau de voir ╵sur les montagnes
+   les pas du messager ╵d’une bonne nouvelle,
+   qui annonce la paix,
+   qui parle de bonheur,
+   et qui annonce le salut,
+   qui dit à [[Sion]] : « Ton [[Dieu]] règne. »
+8) On entend tes guetteurs,
+   ils élèvent la voix,
+   ils crient de joie ensemble
+   car de leurs propres yeux ils voient
+   l’[[Dieu|Eternel]] arriver ╵de nouveau à [[Sion]].
+9) Poussez des cris de joie, ╵ensemble faites éclater ╵votre allégresse,
+   vous, ruines de [[Jérusalem]] !
+   Car l’[[Dieu|Eternel]] ╵a consolé son peuple
+   et délivré [[Jérusalem]].
+10) L’[[Dieu|Eternel]] a manifesté ╵sa puissance et sa sainteté
+    aux yeux de toutes les nations,
+    et tous les confins de la terre ╵verront
+    la délivrance ╵qu’apporte notre [[Dieu]].
+11) Partez, partez, sortez de là,
+    ne touchez rien d’impur  !
+    Sortez de cette ville !
+    Purifiez-vous, vous qui portez les ustensiles de l’[[Dieu|Eternel]]
+12) Vous ne sortirez pas ╵en courant à la hâte,
+    vous ne marcherez pas ╵comme des fugitifs,
+    car l’[[Dieu|Eternel]] ╵marchera devant vous,
+    et le [[Dieu]] d’[[Israël]] ╵fermera votre marche.
+### Versets 13 à 15
+Intitulé **Le quatrième chant du Serviteur** par [[Bible#^358f23|BDS]]
+
+13) Voici, mon serviteur
+    agira en toute sagesse,
+    il sera haut placé,
+    très élevé, ╵grandement exalté.
+14) Beaucoup ont été horrifiés
+    tellement son visage ╵était défiguré
+    et tant son apparence ╵n’avait plus rien d’humain.
+15) Car il accomplira le rite ╵de l’aspersion ╵pour des peuples nombreux.
+    Les rois, à son sujet, ╵resteront bouche close,
+    car ils verront eux-mêmes ╵ce qui ne leur avait ╵pas été raconté,
+    ils comprendront ╵ce qui ne leur avait ╵pas été annoncé.
 ## Chapitre 53
-5) Mais c’est pour nos péchés ╵qu’il a été percé,
-   c’est pour nos fautes ╵qu’il a été brisé.
+1) Qui a cru à notre message ?
+   A qui a été révélée ╵l’intervention de l’[[Dieu|Eternel]]  ?
+2) [[Jésus|Il]] a grandi tout droit ╵comme une jeune pousse
+   ou comme une racine ╵sortant d’un sol aride.
+   [[Jésus|Il]] n’avait ni prestance ni beauté
+   pour retenir notre attention
+   ni rien dans son aspect ╵qui pût nous attirer.
+3) [[Jésus|Il]] était méprisé, ╵abandonné des hommes,
+   un homme de douleur
+   habitué à la souffrance.
+   Oui, [[Jésus|il]] était semblable ╵à ceux devant lesquels ╵on détourne les yeux.
+   [[Jésus|Il]] était méprisé,
+   et nous n’avons fait de [[Jésus|lui]] aucun cas.
+4) Pourtant, en vérité, ╵c’est de nos maladies ╵qu’[[Jésus|il]] s’est chargé,
+   et ce sont nos souffrances ╵qu’[[Jésus|il]] a prises sur [[Jésus|lui]],
+   alors que nous pensions ╵que [[Dieu]] l’avait puni,
+   frappé et humilié.
+5) Mais c’est pour nos péchés ╵qu’[[Jésus|il]] a été percé,
+   c’est pour nos fautes ╵qu’[[Jésus|il]] a été brisé.
    Le châtiment ╵qui nous donne la paix ╵est retombé sur [[Jésus|lui]]
-   et c’est par ses blessures ╵que nous sommes guéris
+   et c’est par ses blessures ╵que nous sommes guéris.
+6) Nous étions tous errants, ╵pareils à des brebis,
+   chacun de nous allait ╵par son propre chemin :
+   l’[[Dieu|Eternel]] a fait retomber sur [[Jésus|lui]] ╵les fautes de nous tous.
+7) [[Jésus|Il]] était maltraité, ╵et [[Jésus|il]] s’est humilié,
+   [[Jésus|il]] n’a pas dit un mot.
+   Semblable à un agneau ╵mené à l’abattoir,
+   tout comme la brebis muette ╵devant ceux qui la tondent,
+   [[Jésus|il]] n’a pas dit un mot.
+8) [[Jésus|Il]] a été arraché à la vie ╵avec violence, ╵suite à un jugement.
+   Et qui, parmi les gens ╵de sa génération, ╵s’est soucié de son sort,
+   lorsqu’on l’a retranché
+   du pays des vivants ?
+   [[Jésus|Il]] a été frappé à mort
+   à cause des péchés ╵que mon peuple a commis.
+9) On a mis [[Jésus|son]] tombeau ╵avec celui des criminels
+   et [[Jésus|son]] sépulcre ╵avec celui des riches,
+   alors qu’[[Jésus|il]] n’avait pas commis ╵d’acte de violence
+   et que jamais ses lèvres ╵n’avaient produit la tromperie.
+10) Mais [[Jésus|il]] a plu à [[Dieu]] ╵de le briser par la souffrance.
+    Bien que toi, [[Dieu]], ╵tu aies livré sa vie ╵en sacrifice de réparation,
+    il verra une descendance.
+    Il vivra de longs jours
+    et il accomplira avec succès ╵ce que désire l’[[Dieu|Eternel]].
+11) Car après avoir tant souffert,
+    il verra la lumière, ╵et il sera comblé.
+    Beaucoup de gens le connaîtront, et pour cela,
+    [[Dieu|mon]] serviteur, [[Jésus|le Juste]], ╵leur accordera le statut de justes
+    et se chargera de leurs fautes.
+12) Voilà pourquoi ╵[[Dieu|je]] lui donnerai une part ╵avec ces gens nombreux ;
+    [[Jésus|il]] partagera le butin ╵avec la multitude,
+    car [[Jésus|il]] s’est dépouillé lui-même ╵jusqu’à la mort
+    et s’est laissé compter ╵parmi les malfaiteurs,
+    car [[Jésus|il]] a pris sur lui ╵les fautes d’un grand nombre,
+    [[Jésus|il]] a intercédé ╵en faveur des coupables.
 ## Chapitre 58
 Intitulé **La gloire de Sion rachetée** par [[Bible#^358f23|BDS]], sous titré **Le vrai [[Jeûne]]**
 

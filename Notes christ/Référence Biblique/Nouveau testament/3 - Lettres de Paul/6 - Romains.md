@@ -5,7 +5,22 @@ Intitulé **Le résumé de l'[[Note sur l'évangile|Evangile]]** par [[Bible#^35
 
 16) Car je n’ai pas honte de l’[[Note sur l'évangile|Evangile]] : c’est la puissance de [[Dieu]] par laquelle il sauve tous ceux qui croient, les Juifs en premier lieu et aussi les non-Juifs.
 17) En effet, cet [[Note sur l'évangile|Evangile]] nous révèle en quoi consiste la justice que [[Dieu]] accorde : elle est reçue par la foi et rien que par la foi, comme il est dit dans l’Ecriture : *Le juste vivra grâce à la foi*
+## Chapitre 5
+Intitulé **La vie nouvelle en [[Jésus|Christ]], par l’[[Saint-Esprit|Esprit]]** par [[Bible#^358f23|BDS]]
+### Versets 1 à 11
+Intitulé **La paix avec [[Dieu]]** par [[Bible#^358f23|BDS]]
 
+1) Puisque nous avons été déclarés justes en raison de notre foi, nous sommes en paix avec [[Dieu]] grâce à notre [[Seigneur et non seulement sauveur|Seigneur]] [[Jésus|Jésus-Christ]].
+2) Par lui, nous avons eu accès, au moyen de la foi, à ce don gratuit de [[Dieu]] qui nous est désormais acquis ; et notre fierté se fonde sur l’espérance d’avoir part à la gloire de [[Dieu]].
+3) Mieux encore ! Nous tirons fierté même de nos détresses, car nous savons que la détresse produit la persévérance,
+4) la persévérance conduit à une fidélité éprouvée, et la fidélité éprouvée nourrit l’espérance.
+5) Or, notre espérance ne risque pas de tourner à notre confusion, car [[Dan]] a versé son amour dans notre cœur par l’[[Saint-Esprit|Esprit Saint]] qu’[[Dieu|il]] nous a donné.
+6) En effet, au moment fixé par [[Dieu]], alors que nous étions encore sans force, [[Jésus|Christ]] est [[Mort|mort]] pour des pécheurs.
+7) A peine accepterait-on de [[Mort|mourir]] pour un juste ; peut-être quelqu’un irait-il jusqu’à [[Mort|mourir]] pour le bien.
+8) Mais voici comment [[Dieu]] nous montre l’amour qu’il a pour nous : alors que nous étions encore des pécheurs, [[Jésus|Christ]] est [[Mort|mort]] pour nous.
+9) Donc, puisque nous sommes maintenant déclarés justes grâce à [[Jésus|son]] sacrifice, nous serons, à plus forte raison encore, sauvés par [[Jésus|lui]] de la colère à venir.
+10) Alors que nous étions [[Dieu|ses]] ennemis, [[Dieu]] nous a réconciliés avec lui par la mort de son [[Jésus|Fils]] ; à plus forte raison, maintenant que nous sommes réconciliés, serons-nous sauvés par sa vie.
+11) Mieux encore : nous plaçons désormais notre fierté en [[Dieu]] par notre [[Seigneur et non seulement sauveur|Seigneur]] [[Jésus|Jésus-Christ]] qui nous a obtenu la réconciliation.
 ## Chapitre 6
 Intitulé **La grâce : une excuse pour pécher ?** par [[Bible#^358f23|BDS]]
 

@@ -10,6 +10,24 @@ Intitulé **Un grand prêtre qui nous permet de nous approcher de [[Dieu]]** par
 14) Ainsi, puisque nous avons en [[Jésus]], le Fils de [[Dieu]], un grand-prêtre éminent qui a traversé les cieux, demeurons fermement attachés à la foi que nous reconnaissons comme vraie.
 15) En effet, nous n’avons pas un grand-prêtre qui serait incapable de compatir à nos faiblesses. Au contraire, il a été [[Tentation|tenté]] en tout point comme nous le sommes, mais sans commettre de péché.
 16) Approchons-nous donc du trône du [[Dieu]] de grâce avec une pleine assurance. Là, [[Dieu]] nous accordera sa bonté et nous donnera sa grâce pour que nous soyons secourus au bon moment.
+## Chapitre 5
+### Versets 1 à 10
+Intitulé **Le ministère sacerdotal de [[Jésus|Christ]] - [[Jésus|Christ]], grand-prêtre et auteur du salut des siens** par [[Bible#^358f23|BDS]]
+
+1) Tout grand-prêtre est pris parmi les hommes et il est établi en faveur des hommes pour leurs relations avec [[Dieu]]. Il est chargé de présenter à [[Dieu]] des offrandes et des sacrifices pour les péchés.
+2) Il peut avoir de la compréhension pour ceux qui sont dans l’ignorance et qui s’égarent, parce qu’il est lui aussi exposé à la faiblesse.
+3) A cause de cette faiblesse, il doit offrir des sacrifices, non seulement pour les péchés du peuple, mais aussi, de la même manière, pour les siens propres.
+4) De plus, on ne s’attribue pas, de sa propre initiative, l’honneur d’être grand-prêtre : on le reçoit en y étant appelé par [[Dieu]], comme ce fut le cas pour [[Aaron]].
+5) Il en est de même pour [[Jésus|Christ]]. Ce n’est pas [[Jésus|lui]] qui s’est attribué, de son propre chef, l’honneur de devenir grand-prêtre, mais c’est [[Dieu]] qui lui a déclaré :
+   [[19 - Psaumes#Chapitre 2|Tu es mon Fils ; aujourd’hui,]]
+   [[19 - Psaumes#Chapitre 2|je fais de toi mon enfant.]]
+6) Et, dans un autre passage :
+   [[19 - Psaumes#Chapitre 110|Tu seras prêtre pour toujours]]
+   [[19 - Psaumes#Chapitre 110|selon la ligne de ]] [[Melchisédek|Melchisédek.]]
+7) Ainsi, au cours de sa vie sur terre, [[Jésus]], avec de grands cris et des larmes, a présenté des prières et des supplications à celui qui pouvait le sauver de la mort, et il a été exaucé, à cause de sa soumission à [[Dieu]].
+8) Bien qu’étant [[Jésus|Fils]] de [[Dieu]], [[Jésus|il]] a appris l’obéissance par tout ce qu’il a souffert.
+9) Et c’est parce qu’[[Jésus|il]] a été ainsi amené à la perfection qu’il est devenu, pour tous ceux qui lui obéissent, l’auteur d’un salut éternel :
+10) [[Dieu]], en effet, l’a déclaré grand-prêtre selon la ligne de [[Melchisédek]].
 ## Chapitre 10
 ### Versets 1 à 18
 Intitulé **L'inefficacité de la [[La Loi de Dieu|Loi]] et l'efficacité du sacrifice de [[Jésus|Christ]]** par [[Bible#^358f23|BDS]]

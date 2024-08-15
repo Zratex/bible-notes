@@ -1,0 +1,1 @@
+Décrit dans [[Genèse#Chapitre 14|Genèse 14]] comme étant le roi de [[Elam]] à l'époque d'[[Abraham]]

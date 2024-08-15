@@ -1,0 +1,2 @@
+Royaume localisé au sud ouest de l'actuel `Iran` fondé un peu avant -3000, avec [[Suse]] comme l'une de ses principales régions. Ce royaume a été sous plusieurs reprises une province [[Perse]] avant de complètement disparaître en 1000.
+![[Elam.png]]

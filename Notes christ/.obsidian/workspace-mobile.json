@@ -145,8 +145,8 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Combat spirituel.md",
-                "mode": "source",
+                "file": "Origines de la souffrance.md",
+                "mode": "preview",
                 "source": false
               }
             }
@@ -226,7 +226,7 @@
         "state": {
           "type": "backlink",
           "state": {
-            "file": "Combat spirituel.md",
+            "file": "Origines de la souffrance.md",
             "collapseAll": false,
             "extraContext": false,
             "sortOrder": "alphabetical",
@@ -243,7 +243,7 @@
         "state": {
           "type": "outgoing-link",
           "state": {
-            "file": "Combat spirituel.md",
+            "file": "Origines de la souffrance.md",
             "linksCollapsed": false,
             "unlinkedCollapsed": true
           }
@@ -255,7 +255,7 @@
         "state": {
           "type": "outline",
           "state": {
-            "file": "Combat spirituel.md"
+            "file": "Origines de la souffrance.md"
           }
         }
       }
@@ -274,8 +274,8 @@
   },
   "active": "a8105b1e9f519430",
   "lastOpenFiles": [
-    "Personnages/Satan.md",
     "Combat spirituel.md",
+    "Personnages/Satan.md",
     "Origines de la souffrance.md",
     "Grâce dans la souffrance.md",
     "Vie victorieuse en Christ.md",

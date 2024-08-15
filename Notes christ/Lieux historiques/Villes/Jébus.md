@@ -1,0 +1,1 @@
+Nom de la ville de [[Jérusalem]] à l'époque de [[Samuel]], avant qu'elle soit prise par [[David]]

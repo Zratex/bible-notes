@@ -1,3 +1,35 @@
+## Chapitre 2
+Intitulé **L'intronisation du Roi** par [[Bible#^358f23|BDS]]
+
+1) Pourquoi tant d’effervescence ╵parmi les nations ?
+   Et pourquoi les peuples ╵trament-ils ces complots inutiles ?
+2) Pourquoi les rois de la terre ╵se sont-ils tous soulevés
+   et les grands conspirent-ils ensemble
+   contre l’[[Dieu|Eternel]] ╵et contre l’homme qui a reçu ╵l’onction de sa part  ?
+3) Ils s’écrient :
+   « Faisons sauter tous leurs liens
+   et jetons au loin leurs chaînes ! »
+4) Mais [[Dieu|il]] rit, celui qui siège ╵sur son trône dans les cieux. ╵Le [[Dieu|Seigneur]] se moque d’eux.
+5) Dans [[Dieu|sa]] colère [[Dieu|il]] leur parle,
+   dans sa fureur il les épouvante,
+   en leur tenant ce discours :
+6) « [[Dieu|Moi]], j’ai établi ╵mon Roi par l’onction
+   sur [[Sion]], ma montagne sainte. »
+7) Je publierai le décret ╵qu’a promulgué l’[[Dieu|Eternel]].
+   Il m’a dit : « Tu es mon Fils ;
+   aujourd’hui, ╵je fais de toi mon enfant.
+8) Demande-[[Dieu|moi]] : Que veux-tu ? ╵Je te donne en patrimoine ╵tous les peuples de la terre ;
+   et le monde, ╵jusqu’en ses confins lointains, ╵sera ta propriété.
+9) Avec un sceptre de fer, ╵tu les soumettras  ;
+   comme des vases d’argile, ╵tu les briseras. »
+10) C’est pourquoi, rois de la terre, ╵montrez-vous intelligents,
+    vous qui exercez ╵le gouvernement ╵en ce monde, ╵laissez-vous donc avertir !
+11) Servez l’[[Dieu|Eternel]] ╵avec crainte !
+    Et, tout en tremblant, ╵exultez de joie !
+12) Au Fils, rendez votre hommage, ╵pour éviter qu’[[Dieu|il]] s’irrite
+    et que vous périssiez tous ╵dans la voie que vous suivez.
+    En un instant, [[Dieu|sa]] colère ╵contre vous peut s’enflammer.
+    Oui, heureux sont tous les hommes ╵qui, en [[Dieu|lui]], cherchent refuge !
 ## Chapitre 28
 Intitulé **L'[[Dieu|Eternel]] répond** par [[Bible#^358f23|BDS]]
 
@@ -128,3 +160,26 @@ Intitulé **Je soupire après ton temple** par [[Bible#^358f23|BDS]]
     à ceux qui cheminent dans l’intégrité.
 13) [[Dieu|Eternel]], Seigneur des armées célestes,
     bienheureux est l’homme ╵qui met sa confiance en toi.
+## Chapitre 110
+Intitulé **Le Roi-Prêtre** par [[Bible#^358f23|BDS]]
+
+1) *Psaume de [[David]].*
+   Déclaration de l’[[Dieu|Eternel]]. ╵Il dit à mon [[Seigneur et non seulement sauveur|Seigneur]] :
+   « Viens siéger à ma droite
+   jusqu’à ce que j’aie mis ╵tes ennemis ╵à terre sous tes pieds. »
+2) L’[[Dieu|Eternel]] étendra ╵de [[Sion]] ton pouvoir royal,
+   et tu domineras ╵parmi tes ennemis.
+3) Au jour où tu ranges tes forces ╵en ordre de bataille,
+   ton peuple est plein d’ardeur
+   et, du sein de l’aurore,
+   dans de saintes parures,
+   tous tes jeunes guerriers ╵se presseront vers toi ╵comme naît la rosée.
+4) L’[[Dieu|Eternel]] l’a juré, ╵il ne reviendra pas ╵sur son engagement :
+   « Tu seras prêtre pour toujours
+   selon la ligne de [[Melchisédek]]. »
+5) Le [[Seigneur et non seulement sauveur|Seigneur]], à ta droite,
+   va écraser des rois ╵au jour de sa colère.
+6) Il exerce le jugement ╵parmi les peuples ; ╵les cadavres s’entassent,
+   il écrase des chefs ╵de par la terre entière.
+7) En chemin, le roi s’abreuve au torrent,
+   puis relève la tête.

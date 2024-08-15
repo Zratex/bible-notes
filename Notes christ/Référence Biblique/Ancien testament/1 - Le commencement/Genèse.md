@@ -167,6 +167,23 @@ Intitulé **[[Abraham|Abram]] se fixe au pays de Canaan** par [[Bible#^358f23|BD
 11) [[Loth]] choisit donc pour lui toute la plaine du [[Jourdain]] et il se dirigea vers l’est. Ainsi, ils se séparèrent l’un de l’autre.
 12) [[Abraham|Abram]] se fixa dans le pays de [[Canaan]], et [[Loth]] s’établit au milieu des villes de la plaine, dressant ses tentes jusqu’à Sodome.
 13) Or, les gens de Sodome étaient mauvais, ils commettaient beaucoup de péchés contre l’[[Dieu|Eternel]].
+## Chapitre 14
+### Versets 17 à 24
+Intitulé **[[Melchisédek]] bénit [[Abraham|Abram]]** par [[Bible#^358f23|BDS]]
+
+17) Lorsque [[Abraham|Abram]] revint après avoir battu [[Kedorlaomer]] et les rois qui étaient avec lui, le roi de [[Sodome]] vint à sa rencontre dans la vallée de Shavé qui est la vallée royale.
+18) [[Melchisédek]], roi de [[Salem]], qui était prêtre du [[Dieu]] très-haut, apporta du pain et du vin.
+19) Il bénit [[Abraham|Abram]] en ces termes :
+    Béni soit [[Abraham|Abram]]
+    par le [[Dieu]] très-haut
+    qui a formé le ciel et la terre ;
+20) béni soit aussi le [[Dieu]] très-haut
+    qui t’a donné la victoire ╵sur tes ennemis !
+    Et [[Abraham|Abram]] lui donna le dixième de tout le butin.
+21) Le roi de [[Sodome]] dit alors à [[Abraham|Abram]] : Rends-moi les personnes et garde les biens pour toi.
+22) [[Abraham|Abram]] lui répondit : Je jure à main levée vers l’[[Dieu|Eternel]], le [[Dieu]] très-haut qui a formé le ciel et la terre,
+23) que [[Abraham|je]] ne prendrai rien de ce qui t’appartient, pas même un fil ou une courroie de soulier, pour que tu ne puisses pas dire : « J’ai enrichi [[Abraham|Abram]]. »
+24) [[Abraham|Je]] ne veux rien si ce n’est ce qu’ont mangé les jeunes gens. De plus, la part des hommes qui m’ont accompagné, Aner, Eshkol et Mamré, eux, ils la prendront.
 ## Chapitre 26
 ### Versets 1 à 11
 Intitulé **[[Isaac]] à [[Guérar]]**

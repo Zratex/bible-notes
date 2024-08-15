@@ -59,6 +59,15 @@ Intitulé **Le neuf et l’ancien** par [[Bible#^358f23|BDS]]
 38) **Non, il faut mettre le vin nouveau dans des outres neuves.**
 39) **Bien sûr, quand on a bu du vin vieux, on n’en désire pas du nouveau ; en effet, on se dit : le vieux est meilleur.**
 ## Chapitre 9
+### Versets 18 à 22
+Intitulé **Qui est vraiment [[Jésus]] ?** par [[Bible#^358f23|BDS]]
+
+18) Un jour, [[Jésus]] priait à l’écart, et ses disciples étaient avec lui. Alors [[Jésus|il]] les interrogea : **Que disent les foules à mon sujet ? Qui suis-je d’après elles ?**
+19) Ils [[Jésus|lui]] répondirent : Pour les uns, tu es [[Jean Baptiste|Jean-Baptiste]] ; pour d’autres, [[Elie]] ; pour d’autres encore, l’un des prophètes d’autrefois qui serait ressuscité.
+20) **– Et vous,** leur demanda-t-[[Jésus|il]], **qui dites-vous que [[Jésus|je]] suis ?**
+[[Simon Pierre|Pierre]] prit la parole et dit : Le [[Jésus|Messie]], envoyé par [[Dieu]].
+21) [[Jésus]] leur ordonna formellement de ne le dire à personne.
+22) Et [[Jésus|il]] ajouta : **Il faut que le [[Jésus|Fils]] de l’homme souffre beaucoup et soit rejeté par les responsables du peuple, les chefs des prêtres et les spécialistes de la [[La Loi de Dieu|Loi]]  ; il doit être mis à mort et ressusciter le troisième jour.**
 ### Versets 51 à 56
 Intitulé **Jésus se dirige vers [[Jérusalem]] : L'opposition en [[Samarie]]** par [[Bible#^358f23]|BDS]]
 #### Versets 54 à 56

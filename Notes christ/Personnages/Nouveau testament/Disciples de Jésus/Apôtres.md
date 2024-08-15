@@ -10,3 +10,6 @@ Les apôtres sont disciples de [[Jésus]] sont ceux qui étaient au service de [
 - [[André]]
 - [[Simon]]
 - [[Nathanaël]]
+- [[Judas]]
+
+Ils sont tous originaires de [[Galilée]], mis à part [[Judas]] qui vient de [[Judée]] (comme [[Jésus]]).

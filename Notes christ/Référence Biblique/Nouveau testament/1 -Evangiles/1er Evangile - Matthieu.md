@@ -119,3 +119,20 @@ Intitulé **La parabole des dix jeunes filles** par [[Bible#^358f23|BDS]].
 11) Plus tard, les autres jeunes filles arrivèrent à leur tour ; mais elles eurent beau crier : « Seigneur, Seigneur, ouvre-nous ! »
 12) Il leur répondit : « Vraiment, je vous l’assure : je ne sais pas qui vous êtes. »
 13) C’est pourquoi, ajouta [[Jésus]], tenez-vous en éveil, car vous ne savez ni le jour, ni l’heure de ma venue.
+## Chapitre 26
+### Versets 47 à 56
+Intitulé **L'arrestation de [[Jésus]]** par [[Bible#^358f23|BDS]]
+
+47) [[Jésus|Il]] n’avait pas fini de parler que [[Judas]], l’un des [[Apôtres|Douze]], survint, accompagné d’une troupe nombreuse armée d’épées et de gourdins. Cette troupe était envoyée par les chefs des prêtres et les responsables du peuple.
+48) [[Judas|Le traître]] avait convenu avec eux d’un signe en disant : Celui que [[Judas|j]]d’embrasserai, c’est [[Jésus|lui]], saisissez-vous de lui.
+49) Aussitôt, [[Judas|il]] se dirigea vers [[Jésus]] et lui dit : Bonsoir, Maître !
+    Et il l’embrassa.
+50) **– Mon ami**, lui dit [[Jésus]], **ce que tu es venu faire ici, fais-le !**
+Alors les autres s’avancèrent et, mettant la main sur [[Jésus]], ils se saisirent de [[Jésus|lui]].
+51) A ce moment, l’un des compagnons de [[Jésus]] porta la main à son épée, la dégaina, en frappa le serviteur du grand-prêtre et lui emporta l’oreille.
+52) [[Jésus]] lui dit : **Remets ton épée à sa place, car tous ceux qui se serviront de l’épée mourront par l’épée.**
+53) **Penses-tu donc que [[Jésus|je]] ne pourrais pas faire appel à mon [[Dieu|Père]] ? A l’instant même, il enverrait des dizaines de milliers d’anges à mon secours.**
+54) **Mais alors, comment les [[Ancien Testament|Ecritures]], qui annoncent que tout doit se passer ainsi, s’accompliraient-elles ?**
+55) Là-dessus, [[Jésus|Jésus]] dit à la troupe : **Me prenez-vous pour un bandit, pour que vous soyez venus en force avec épées et gourdins afin de vous emparer de moi ? J’étais assis chaque jour dans la cour du Temple pour donner mon enseignement et vous ne m’avez pas arrêté !**
+56) **Mais tout ceci est arrivé pour que les écrits des prophètes s’accomplissent.**
+    Alors tous les disciples l’abandonnèrent et prirent la fuite.

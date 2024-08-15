@@ -1,0 +1,1 @@
+Grand prêtre de la ville de [[Salem]], il bénit [[Abraham]] dans [[Genèse#Versets 17 à 24|Genèse 14:18-20]]
