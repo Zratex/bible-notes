@@ -44,7 +44,7 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "sion",
+                "query": "mer morte",
                 "matchingCase": false,
                 "explainSearch": false,
                 "collapseAll": false,
@@ -150,7 +150,7 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "b130deb4c7513be0",
+  "active": "412ad4b021e16018",
   "lastOpenFiles": [
     "Origines de la souffrance.md",
     "Référence Biblique/Nouveau testament/1 -Evangiles/3eme Evangile - Luc.md",
