@@ -1,2 +1,2 @@
 Spécifiquement dans [[Actes|Actes des apôtes]], il faut savoir que quand il est question d'annoncer "*la parole du Seigneur/[[Dieu]]*", le [[Nouveau testament]] n'était pas encore écrit.
-Ils prêchaient non pas le christianisme, mais le [[Jésus|Christ]] (la bonne nouvelle).
+-> Ils prêchaient non pas le christianisme, mais le [[Jésus|Christ]] (la bonne nouvelle).

@@ -1,6 +1,22 @@
 Actes des [[Apôtres]]
 
 Petite note sur un terme précis : [[Parole de Dieu (Actes)|Parole de Dieu]]
+## Chapitre 2
+### Versets 37 à 47
+Intitulé **Les premiers croyants** par [[Bible#^358f23|BDS]]
+
+37) Ce discours toucha profondément ceux qui l’avaient entendu. Ils demandèrent à [[Simon Pierre|Pierre]] et aux autres [[Apôtres|apôtres]] : Frères, que devons-nous faire ?
+38) [[Simon Pierre|Pierre]] leur répondit : Changez, et que chacun de vous se fasse baptiser au nom de [[Jésus|Jésus-Christ]], pour que vos péchés vous soient pardonnés. Alors, vous recevrez le don du [[Saint-Esprit]].
+39) Car la promesse est pour vous, pour vos enfants, et pour ceux qui vivent dans les pays lointains, tous ceux que le [[Seigneur et non seulement sauveur|Seigneur]] notre [[Dieu]] fera venir à lui.
+40) [[Simon Pierre|Pierre]] continuait, avec instance, à leur adresser d’autres paroles pour les persuader, et il les encourageait, leur disant : Recevez le salut, séparez-vous de cette génération dévoyée.
+41) Ceux qui acceptèrent les paroles de [[Simon Pierre|Pierre]] se firent baptiser et, ce jour-là, environ trois mille personnes furent ajoutées au nombre des croyants.
+42) Dès lors, ils s’attachaient à écouter assidûment l’enseignement des [[Apôtres|apôtres]], à vivre en communion les uns avec les autres, à rompre le pain et à prier ensemble.
+43) Tout le monde était très impressionné, car les [[Apôtres|apôtres]] accomplissaient beaucoup de prodiges et de signes miraculeux.
+44) Tous les croyants vivaient unis entre eux et partageaient tout ce qu’ils possédaient.
+45) Ils vendaient leurs propriétés et leurs biens et répartissaient l’argent entre tous, selon les besoins de chacun.
+46) Tous les jours, d’un commun accord, ils se retrouvaient dans la cour du Temple ; ils rompaient le pain dans les maisons, et prenaient leurs repas dans la joie, avec simplicité de cœur.
+47) Ils louaient [[Dieu]], et le peuple tout entier leur était favorable.
+    Le [[Seigneur et non seulement sauveur|Seigneur]] ajoutait chaque jour à leur communauté ceux qu’il sauvait.
 ## Chapitre 3
 ### Versets 1 à 11
 Intitulé **La guérison d'un paralysé** par [[Bible#^358f23|BDS]]
@@ -50,7 +66,6 @@ Intitulé **La prédication de Philippe et le don de l'Esprit en [[Samarie]]** p
 
 4) Les croyants qui s’étaient dispersés parcouraient le pays, en proclamant le message de l’[[Nouveau testament#^94270d|Evangile]]. 
 5) [[Philippe]] se rendit dans la capitale de la [[Samarie]] et prêcha le [[Jésus|Messie]] à la population.
-Pour la capitale, c'est probablement la ville de [[Samarie]] en fonction des traductions.
 6) Elle se montra tout entière très attentive à ses paroles en l’entendant et en voyant les signes miraculeux qu’il accomplissait. 
 7) En effet, beaucoup de personnes qui avaient des démons en elles en furent délivrées ; ils sortaient d’elles en poussant de grands cris, et de nombreux paralysés et des infirmes furent guéris.
 8) Aussi, toute la ville était-elle dans une grande joie.

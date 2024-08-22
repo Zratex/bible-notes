@@ -53,7 +53,7 @@ Intitulé **Le rôle des prédicateurs de l'[[Note sur l'évangile|Evangile]]** 
 3) parce que vous êtes comme des hommes et des femmes livrés à eux-mêmes. En effet, lorsque vous vous jalousez les uns les autres et que vous vous disputez, n’êtes-vous pas semblables à des hommes livrés à eux-mêmes, ne vous comportez-vous pas d’une manière tout humaine ?
 4) Lorsque vous dites : « Pour moi, c’est [[Paul]] ! » ou : « Pour moi, c’est Apollos ! », n’êtes-vous pas comme les autres hommes ?
 5) Après tout, que sont donc Apollos et [[Paul]] ? Des serviteurs, grâce auxquels vous avez été amenés à la foi, chacun d’eux accomplissant la tâche particulière que [[Dieu]] lui a confiée.
-6) Moi [[Paul|j]]’ai planté, Apollos a arrosé, mais c’est [[Dieu]] qui a fait croître.
+6) Moi [[Paul|j]]’ai planté, [[Apollos]] a arrosé, mais c’est [[Dieu]] qui a fait croître.
 7) Peu importe, en fait, qui plante et qui arrose. Ce qui compte, c’est [[Dieu]] qui fait croître.
 8) Celui qui plante et celui qui arrose sont égaux et chacun recevra son propre salaire en fonction du travail accompli.
 9) Car nous travaillons ensemble au service de [[Dieu]], et vous, vous êtes le champ qu’[[Dieu|il]] cultive. Ou encore : vous êtes l’édifice qu’[[Dieu|il]] construit.

@@ -8,150 +8,6 @@
         "type": "tabs",
         "children": [
           {
-            "id": "ba44d39bbcd96a25",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "La marche d'Élie.md",
-                "mode": "preview",
-                "source": false
-              }
-            }
-          },
-          {
-            "id": "f9045b6bda0ee12f",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Chipeur.md",
-                "mode": "source",
-                "source": false
-              }
-            }
-          },
-          {
-            "id": "112fe321a75508b9",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Table d'opération.md",
-                "mode": "source",
-                "source": false
-              }
-            }
-          },
-          {
-            "id": "94b364f0520cee5e",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Référence Biblique/Nouveau testament/3 - Lettres de Paul/11 - Philippiens.md",
-                "mode": "preview",
-                "source": false
-              }
-            }
-          },
-          {
-            "id": "88af75542ef2f609",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Influence.md",
-                "mode": "source",
-                "source": false
-              }
-            }
-          },
-          {
-            "id": "2e33915dac8d08fd",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Titre de noblesse.md",
-                "mode": "source",
-                "source": false
-              }
-            }
-          },
-          {
-            "id": "e404facc9acfdd9e",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Me voici envoie moi.md",
-                "mode": "source",
-                "source": false
-              }
-            }
-          },
-          {
-            "id": "fac2d492449ba801",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Chemins tout tracés.md",
-                "mode": "source",
-                "source": false
-              }
-            }
-          },
-          {
-            "id": "66b64099e0227a92",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Vie victorieuse en Christ.md",
-                "mode": "source",
-                "source": false
-              }
-            }
-          },
-          {
-            "id": "f9e5d6396f545b8d",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Grâce dans la souffrance.md",
-                "mode": "source",
-                "source": false
-              }
-            }
-          },
-          {
-            "id": "36ebcfb9d419d5a9",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Origines de la souffrance.md",
-                "mode": "source",
-                "source": false
-              }
-            }
-          },
-          {
-            "id": "a8105b1e9f519430",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Origines de la souffrance.md",
-                "mode": "preview",
-                "source": false
-              }
-            }
-          },
-          {
             "id": "0c2835358d219d94",
             "type": "leaf",
             "state": {
@@ -159,8 +15,7 @@
               "state": {}
             }
           }
-        ],
-        "currentTab": 11
+        ]
       }
     ],
     "direction": "vertical"
@@ -226,7 +81,6 @@
         "state": {
           "type": "backlink",
           "state": {
-            "file": "Origines de la souffrance.md",
             "collapseAll": false,
             "extraContext": false,
             "sortOrder": "alphabetical",
@@ -243,7 +97,6 @@
         "state": {
           "type": "outgoing-link",
           "state": {
-            "file": "Origines de la souffrance.md",
             "linksCollapsed": false,
             "unlinkedCollapsed": true
           }
@@ -254,9 +107,7 @@
         "type": "leaf",
         "state": {
           "type": "outline",
-          "state": {
-            "file": "Origines de la souffrance.md"
-          }
+          "state": {}
         }
       }
     ],
@@ -272,13 +123,22 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "a8105b1e9f519430",
+  "active": "0c2835358d219d94",
   "lastOpenFiles": [
+    "La marche d'Élie.md",
+    "Chipeur.md",
+    "Table d'opération.md",
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/11 - Philippiens.md",
+    "Influence.md",
+    "Titre de noblesse.md",
+    "Me voici envoie moi.md",
+    "Chemins tout tracés.md",
+    "Vie victorieuse en Christ.md",
+    "Grâce dans la souffrance.md",
+    "Origines de la souffrance.md",
+    "Santé de l'église.md",
     "Combat spirituel.md",
     "Personnages/Satan.md",
-    "Origines de la souffrance.md",
-    "Grâce dans la souffrance.md",
-    "Vie victorieuse en Christ.md",
     "L'attitude du vainqueur.md",
     "Lieux historiques/Villes/Kalné.md",
     "Personnages/Jésus.md",
@@ -289,17 +149,8 @@
     "Relation.md",
     "Référence Biblique/Nouveau testament/3 - Lettres de Paul/7&8 - Corinthiens.md",
     "Où est le trésor.md",
-    "Influence.md",
     "Référence Biblique/Nouveau testament/4 - Lettres générales/18 - Hébreux.md",
     "Référence Biblique/Nouveau testament/3 - Lettres de Paul/12 - Colossiens.md",
-    "Chemins tout tracés.md",
-    "Personnages/Ancien testament/Famille d'Abraham/Abraham.md",
-    "Me voici envoie moi.md",
-    "Titre de noblesse.md",
-    "Personnages/Eglise.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/11 - Philippiens.md",
-    "Définitions/Service.md",
-    "Seigneur et non seulement sauveur.md",
     "Lieux historiques/Images/Carte Judée.png",
     "Versets"
   ]

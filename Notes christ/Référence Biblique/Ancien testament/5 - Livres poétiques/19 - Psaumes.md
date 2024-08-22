@@ -123,7 +123,101 @@ Intitulé **Le témoignage de l'expérience** par [[Bible#^358f23|BDS]]
    et, dans le pays, ╵tu demeureras ╵et tu jouiras ╵de bons pâturages ╵en sécurité.
 4) En [[Dieu]], mets ta joie
    et il comblera ╵les vœux de ton cœur.
+## Chapitre 68
+Intitulé **Le triomphe du [[Dieu]] victorieux** par [[Bible#^358f23|BDS]]
 
+1) *Au chef de chœur. Psaume de [[David]]. A chanter. Cantique.*
+2) Que [[Dieu]] se lève ! ╵Et voici : ses adversaires ╵sont dispersés !
+   Ses ennemis ╵fuient devant lui.
+3) [[Dieu|Tu]] les dissipes ╵comme une fumée se dissipe,
+   comme la cire ╵qui fond au feu !
+   Ainsi périssent devant [[Dieu]] ╵tous les méchants.
+4) Alors les justes ╵se réjouiront,
+   et ils seront ╵dans l’allégresse devant [[Dieu]].
+   Oui, ils seront remplis de joie.
+5) Chantez à [[Dieu]] ! ╵Louez-le par vos chants !
+   Frayez la voie ╵de celui qui chevauche les nuées  !
+   Son nom est « l’[[Dieu|Eternel]] ».
+   Exultez de joie devant lui !
+6) [[Dieu|Il]] est le père ╵des orphelins, ╵le défenseur des veuves.
+   Oui, tel est [[Dieu]] ╵dans sa sainte demeure.
+7) [[Dieu]] accorde aux gens seuls ╵une famille.
+   Il donne aux prisonniers ╵de sortir libres, dans la joie.
+   Seuls les rebelles ╵sont confinés ╵dans un désert aride.
+8) O notre [[Dieu]], ╵quand tu sortis ╵en tête de ton peuple,
+   quand tu marchas ╵dans le désert,
+   *Pause*
+9) la terre alors trembla, ╵le ciel fondit en eau, ╵devant [[Dieu]], le [[Dieu]] du [[Mont Sinaï|mont Sinaï]],
+   devant [[Dieu]], le [[Dieu]] d’[[Israël]].
+10) [[Dieu|Tu]] répandis, ô [[Dieu]], ╵une pluie bienfaisante
+    pour affermir le peuple ╵qui t’appartient ╵alors qu’il était épuisé.
+11) [[Dieu|Ton]] peuple habite dans le lieu
+    que tu as préparé, ╵ô [[Dieu]], dans ta bonté,
+    pour que les pauvres s’y installent.
+12) Le [[Seigneur et non seulement sauveur|Seigneur]] dit un mot,
+    et aussitôt les messagères ╵d’une bonne nouvelle ╵font une armée nombreuse.
+13) Les rois des armées ennemies
+    s’enfuient et c’est la débandade.
+    Celles qui sont restées ╵à la maison
+    partagent le butin.
+14) Allez-vous rester au repos ╵auprès des bergeries ?
+    Les ailes de la colombe sont argentées
+    et son plumage est jaune d’or.
+15) Lorsque le [[Dieu|Tout-Puissant]] ╵y dispersa les rois,
+    il neigeait sur le mont Tsalmôn.
+16) Vous, montagnes sublimes, ╵monts du [[Basan]],
+    monts aux cimes nombreuses, ╵monts du [[Basan]],
+17) pourquoi jalousez-vous, ╵monts aux cimes nombreuses,
+    le mont choisi par [[Dieu]] ╵pour résidence  ?
+    Néanmoins l’[[Dieu|Eternel]] ╵y habitera pour toujours.
+18) Les chars de [[Dieu]] ╵sont innombrables,
+    il y en a des milliers ╵et des milliers,
+    et l’[[Dieu|Eternel]] ╵est parmi eux.
+    Il est venu ╵du [[Sinaï]] ╵jusqu’à son sanctuaire.
+19) [[Dieu|Tu]] es monté sur la hauteur, ╵tu as emmené des captifs.
+    Et tu as prélevé des dons ╵parmi les hommes,
+    et même parmi les rebelles, ╵pour ta demeure, ╵[[Dieu|Eternel Dieu]].
+20) Béni soit le [[Seigneur et non seulement sauveur|Seigneur]] ╵jour après jour,
+    car [[Dieu|il]] nous prend en charge, ╵ce [[Dieu]] qui est notre sauveur.
+    *Pause*
+21) [[Dieu]] est pour nous ╵un [[Dieu]] qui sauve !
+    L’[[Dieu|Eternel]], le [[Seigneur et non seulement sauveur|Seigneur]], ╵peut nous délivrer de la mort.
+22) Mais [[Dieu]] fracassera ╵le crâne de ses ennemis,
+    la tête chevelue ╵des hommes dont la conduite est coupable.
+23) Le [[Dieu|Seigneur]] a déclaré : des monts du [[Basan]], ╵je les ramènerai,
+    je les ramènerai ╵des profondeurs marines,
+24) afin que tu baignes tes pieds ╵dans le sang de ses ennemis,
+    et que tes chiens ╵prennent leur part à la curée.
+25) On voit arriver ton cortège, ô [[Dieu]],
+    oui, le cortège ╵de mon [[Dieu]], mon [[Dieu|Roi]], ╵dans le lieu saint.
+26) Les chanteurs sont en tête, ╵les musiciens en queue,
+    ils viennent au milieu ╵de jeunes filles, ╵battant du tambourin.
+27) Bénissez [[Dieu]] ╵dans vos rassemblements,
+    bénissez le [[Seigneur et non seulement sauveur|Seigneur]], ╵vous, issus d’[[Israël]]  !
+28) En tête marche [[Benjamin]], ╵le plus petit,
+    puis les chefs de [[Juda]], ╵avec leurs grandes troupes,
+    les chefs de [[Zabulon]] ╵et ceux de [[Nephthali]].
+29) Ton [[Dieu]] a décidé ╵de te prodiguer de la force.
+    Veuille accomplir avec puissance, ╵ô [[Dieu]], ╵tes œuvres envers nous,
+30) depuis [[Dieu|ton]] sanctuaire ╵qui domine [[Jérusalem]] !
+    Des rois t’y apporteront leurs présents.
+31) Menace-le, ╵le crocodile ╵qui se tapit parmi les joncs,
+    de même que le troupeau des taureaux, ╵avec les veaux des peuples,
+    et qu’ils viennent se prosterner ╵en offrant leurs lingots d’argent.
+    Disperse-les, ces peuples ╵aimant la guerre !
+32) De nobles messagers ╵arrivent de l’[[Egypte]],
+    les [[Ethiopie|Ethiopiens]] accourent, ╵les mains tendues vers [[Dieu]].
+33) Royaumes de la terre, ╵chantez à [[Dieu]] !
+    Louez le [[Seigneur et non seulement sauveur|Seigneur]] par vos chants !
+    *Pause*
+34) Oui, chantez en l’honneur ╵de celui qui chevauche dans les cieux, ╵les cieux antiques,
+    et qui fait résonner sa voix, ╵une voix éclatante.
+35) Proclamez de [[Dieu]] la puissance !
+    Il est majestueux ╵au-dessus d’[[Israël]],
+    et sa puissance éclate ╵dans les nuées.
+36) Que tu es redoutable, ô [[Dieu]], ╵depuis ton sanctuaire !
+    Lui, il est le Dieu d’Israël ╵et il donne à son peuple ╵force et puissance.
+    Béni soit [[Dieu]] !
 ## Chapitre 84
 Intitulé **Je soupire après ton temple** par [[Bible#^358f23|BDS]]
 

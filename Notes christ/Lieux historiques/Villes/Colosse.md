@@ -1,2 +1,2 @@
-Ville turque dont la lettre [[12 - Colossiens|Colossiens]] est destinée à l'[[Eglise]] de celle ci.
+Colosse (ou **Colosses** de *Colossae* en grecque) est une ville d'influence grecque d'[[Asie mineure]] dont la lettre [[12 - Colossiens|Colossiens]] est destinée à l'[[Eglise]] de celle ci.
 ![[Colosse.PNG]]

@@ -27,6 +27,23 @@ Intitulé **Juifs et non-Juifs réconciliés par [[Jésus|Jésus-Christ]]** par 
 20) [[Dieu]] vous a intégrés à l’édifice qu’il construit sur le fondement que sont les apôtres, ses prophètes, et dont [[Jésus|Jésus-Christ]] lui-même est la pierre principale.
 21) En [[Jésus|lui]] toute la construction s’élève, bien coordonnée, afin d’être un temple saint dans le [[Dieu|Seigneur]],
 22) et, unis à [[Jésus|Christ]], vous avez été intégrés ensemble à cette construction pour former une demeure où [[Dieu]] habite par l’[[Saint-Esprit|Esprit]].
+## Chapitre 4
+### Versets 7 à 16
+Intitulé **L'unité : l'acquérir** par [[Bible#^358f23|BDS]]
+
+7) Cependant, chacun de nous a reçu la grâce de [[Dieu]] selon la part que [[Jésus|Christ]] lui donne dans son œuvre.
+8) C’est bien ce que déclare l’[[Ancien Testament|Ecriture]] :
+   *[[19 - Psaumes#Chapitre 68|Il est monté sur les hauteurs,]]*
+   *[[19 - Psaumes#Chapitre 68|il a emmené des captifs]]*
+   *[[19 - Psaumes#Chapitre 68|et il a fait des dons aux hommes.]]*
+9) Or, que signifie : *[[Dieu|Il]] est monté* ? Cela implique qu’auparavant, [[Dieu|il]] est descendu jusqu’en bas, c’est-à-dire sur la terre.
+10) Celui qui est descendu, c’est aussi celui qui est monté au-dessus de tous les cieux afin de remplir l’univers entier.
+11) C’est lui qui a fait don de certains comme [[Apôtres|apôtres]], d’autres comme prophètes, d’autres comme prédicateurs de l’[[Note sur l'évangile|Evangile]], et d’autres encore, comparables à des bergers, comme enseignants.
+12) [[Dieu|Il]] a fait don de ces hommes pour que les membres du peuple saint soient rendus aptes à accomplir leur service en vue de la construction du corps de [[Jésus|Christ]].
+13) Ainsi nous parviendrons tous ensemble à l’unité dans la foi et dans la connaissance du [[Jésus|Fils]] de [[Dieu]], à l’état d’adultes, à un stade de maturité où se manifeste la plénitude qui nous vient de [[Jésus|Christ]].
+14) De cette manière, nous ne serons plus de petits enfants ballottés comme des barques par les vagues et emportés çà et là par le vent de toutes sortes d’enseignements, à la merci d’hommes habiles à entraîner les autres dans l’erreur.
+15) Au contraire, en exprimant la vérité dans l’amour, nous grandirons à tous égards vers celui qui est la tête : [[Jésus|Christ]].
+16) C’est de [[Jésus|lui]] que le [[Eglise|corps]] tout entier tire sa croissance pour s’affermir dans l’amour, sa cohésion et sa forte unité lui venant de toutes les articulations dont il est pourvu, pour assurer l’activité attribuée à chacune de ses parties.
 ## Chapitre 5
 ### Versets 6 à 16
 Intitulé **La vie dans la lumière** par [[Bible#^358f23|BDS]]

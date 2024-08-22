@@ -5,9 +5,10 @@ Il est notre [[Seigneur et non seulement sauveur]]
 ## Appellations
 Il est nommé différemment au fur et à mesure de la [[Bible]] :
 - Jésus de Nazareth
-- Jésus Christ
-- Christ
-- Fils de [[Dieu]]
+- Jésus-Christ
+- Christ / Le Messie / Fils de [[Dieu]]
+	- A savoir que Christ représente sa forme en tant que Messie (l'élu dans l'[[Ancien Testament]], soit le Fils de [[Dieu]]), donc sa forme spirituel
+	- Alors que **Jésus** est son corps physique pendant qu'il était sur terre
 - Roi des juifs
 ## Généalogie
 Une note dédié à l'analyse de sa [[Généalogie#^d7dc7e|généalogie]]
