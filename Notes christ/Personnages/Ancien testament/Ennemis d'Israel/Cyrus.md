@@ -1,1 +1,1 @@
-**Cyrus II** est l'empereur le plus connu du [[Perse#Achéménides|royaume perse achéménide]]
+**Cyrus II** est l'empereur le plus connu du [[Perse#Achéménides|royaume perse achéménide]]. Il fut succédé par [[Darius]]

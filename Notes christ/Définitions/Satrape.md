@@ -1,0 +1,1 @@
+Gouverneur d'une **Satrapie**, une division administrative de la [[Perse#Achéménides|perse antique]]

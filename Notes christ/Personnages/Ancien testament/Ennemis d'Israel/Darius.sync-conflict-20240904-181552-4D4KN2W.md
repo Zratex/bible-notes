@@ -1,0 +1,1 @@
+**Darius de [[Mèdes]]** était le roi de [[Perse#Achéménides|royaume perse achéménide]] (dit [[Babylone|Babylonien]]), successeur de [[Cyrus]]

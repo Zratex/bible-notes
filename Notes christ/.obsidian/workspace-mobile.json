@@ -14,8 +14,21 @@
               "type": "empty",
               "state": {}
             }
+          },
+          {
+            "id": "8bbcb6fda9a98600",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Daniel a ouvert les fenêtres.md",
+                "mode": "source",
+                "source": false
+              }
+            }
           }
-        ]
+        ],
+        "currentTab": 1
       }
     ],
     "direction": "vertical"
@@ -81,6 +94,7 @@
         "state": {
           "type": "backlink",
           "state": {
+            "file": "Daniel a ouvert les fenêtres.md",
             "collapseAll": false,
             "extraContext": false,
             "sortOrder": "alphabetical",
@@ -97,6 +111,7 @@
         "state": {
           "type": "outgoing-link",
           "state": {
+            "file": "Daniel a ouvert les fenêtres.md",
             "linksCollapsed": false,
             "unlinkedCollapsed": true
           }
@@ -107,7 +122,9 @@
         "type": "leaf",
         "state": {
           "type": "outline",
-          "state": {}
+          "state": {
+            "file": "Daniel a ouvert les fenêtres.md"
+          }
         }
       }
     ],
@@ -123,8 +140,14 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "0c2835358d219d94",
+  "active": "8bbcb6fda9a98600",
   "lastOpenFiles": [
+    "Référence Biblique/Ancien testament/6 - Premiers livres prophétiques/27 - Daniel.sync-conflict-20240904-181752-4D4KN2W.md",
+    "Personnages/Ancien testament/Ennemis d'Israel/Darius.sync-conflict-20240904-181552-4D4KN2W.md",
+    "Lieux historiques/Royaumes/Mèdes.md",
+    "Définitions/Satrape.md",
+    "Personnages/Ancien testament/Ennemis d'Israel/Darius.md",
+    "Daniel a ouvert les fenêtres.md",
     "La marche d'Élie.md",
     "Chipeur.md",
     "Table d'opération.md",
@@ -145,12 +168,6 @@
     "Référence Biblique/Ancien testament/3 - Premiers livres historiques/11&12 - Rois.md",
     "Lieux historiques/Villes/Jérusalem.md",
     "Lieux historiques/Royaumes/Israël.md",
-    "Lieux historiques/Régions géographiques/Montagne de Hor.md",
-    "Relation.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/7&8 - Corinthiens.md",
-    "Où est le trésor.md",
-    "Référence Biblique/Nouveau testament/4 - Lettres générales/18 - Hébreux.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/12 - Colossiens.md",
     "Lieux historiques/Images/Carte Judée.png",
     "Versets"
   ]
