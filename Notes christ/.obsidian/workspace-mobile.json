@@ -26,9 +26,21 @@
                 "source": false
               }
             }
+          },
+          {
+            "id": "16606a06bb88618b",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Vie équilibré.md",
+                "mode": "source",
+                "source": false
+              }
+            }
           }
         ],
-        "currentTab": 1
+        "currentTab": 2
       }
     ],
     "direction": "vertical"
@@ -94,7 +106,7 @@
         "state": {
           "type": "backlink",
           "state": {
-            "file": "Daniel a ouvert les fenêtres.md",
+            "file": "Vie équilibré.md",
             "collapseAll": false,
             "extraContext": false,
             "sortOrder": "alphabetical",
@@ -111,7 +123,7 @@
         "state": {
           "type": "outgoing-link",
           "state": {
-            "file": "Daniel a ouvert les fenêtres.md",
+            "file": "Vie équilibré.md",
             "linksCollapsed": false,
             "unlinkedCollapsed": true
           }
@@ -123,7 +135,7 @@
         "state": {
           "type": "outline",
           "state": {
-            "file": "Daniel a ouvert les fenêtres.md"
+            "file": "Vie équilibré.md"
           }
         }
       }
@@ -140,14 +152,15 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "8bbcb6fda9a98600",
+  "active": "16606a06bb88618b",
   "lastOpenFiles": [
+    "Daniel a ouvert les fenêtres.md",
+    "Vie équilibré.md",
     "Référence Biblique/Ancien testament/6 - Premiers livres prophétiques/27 - Daniel.sync-conflict-20240904-181752-4D4KN2W.md",
     "Personnages/Ancien testament/Ennemis d'Israel/Darius.sync-conflict-20240904-181552-4D4KN2W.md",
     "Lieux historiques/Royaumes/Mèdes.md",
     "Définitions/Satrape.md",
     "Personnages/Ancien testament/Ennemis d'Israel/Darius.md",
-    "Daniel a ouvert les fenêtres.md",
     "La marche d'Élie.md",
     "Chipeur.md",
     "Table d'opération.md",
@@ -167,7 +180,6 @@
     "Personnages/Jésus.md",
     "Référence Biblique/Ancien testament/3 - Premiers livres historiques/11&12 - Rois.md",
     "Lieux historiques/Villes/Jérusalem.md",
-    "Lieux historiques/Royaumes/Israël.md",
     "Lieux historiques/Images/Carte Judée.png",
     "Versets"
   ]

@@ -96,8 +96,45 @@ Intitulé **La suite des temps** par [[Bible#^358f23|BDS]]
 Intitulé **De la destruction de [[Jérusalem]] à la venue du [[Jésus|Fils]] de l'homme** par [[Bible#^358f23|BDS]]
 Même intitulé que [[2nd Evangile - Marc#Chapitre 13|Marc 13]]
 
-27) En effet, quand le [[Jésus|Fils]] de l’homme viendra, ce sera comme l’éclair qui jaillit du levant et illumine tout jusqu’au couchant.
-
+1) Là-dessus, [[Jésus]] quitta la cour du Temple. Tandis qu’il s’éloignait, ses disciples s’approchèrent pour lui faire remarquer l’architecture du Temple.
+2) Alors [[Jésus|il]] leur dit : **Oui, regardez bien tout cela ! Vraiment, je vous l’assure : tout sera démoli : il ne restera pas une pierre sur une autre.**
+3) Comme [[Jésus|il]] était assis sur le mont des Oliviers, ses disciples s’approchèrent, le prirent à part, et lui demandèrent : Dis-nous : quand cela se produira-t-il et quel signe annoncera ta venue et la fin du monde ?
+4) [[Jésus]] leur répondit : **Faites bien attention que personne ne vous induise en erreur.**
+5) **Car plusieurs viendront sous [[Jésus|mon]] nom en disant : « Je suis le Messiea ! », et ils tromperont beaucoup de gens.**
+6) **Vous entendrez parler de guerres et de menaces de guerres. Attention ! Ne vous laissez pas troubler par ces nouvelles, car cela doit arriver, mais ce ne sera pas encore la fin.**
+7) **En effet, on verra se dresser une nation contre une nation, un royaume contre un autre; il y aura des famines et des tremblements de terre en divers lieux.**
+8) **Mais ce ne seront que les premières douleurs de l’enfantement.**
+9) **Alors on vous persécutera et l’on vous mettra à mort. Tous les peuples vous haïront à cause de [[Jésus|moi]].**
+10) **A cause de cela, beaucoup abandonneront la foi, ils se trahiront et se haïront les uns les autres.**
+11) **De nombreux faux prophètes surgiront et ils tromperont beaucoup de gens.**
+12) **Parce que le mal ne cessera de croître, l’amour du plus grand nombre se refroidira.**
+13) **Mais celui qui tiendra bon jusqu’au bout sera sauvé.**
+14) **Cette Bonne Nouvelle du royaume de [[Dieu]] sera proclamée dans le monde entier pour que tous les peuples en entendent le témoignage. Alors seulement viendra la fin.**
+15) **Quand donc vous verrez l’abominable profanation  annoncée par le prophète [[Daniel]] s’établir dans le lieu saint – que celui qui lit comprenne ! –**
+16) **alors, que ceux qui sont en [[Judée]] s’enfuient dans les montagnes.**
+17) **Si quelqu’un est sur son toit en terrasse, qu’il ne rentre pas dans sa maison pour emporter les biens qui s’y trouvent.**
+18) **Que celui qui sera dans les champs ne retourne pas chez lui pour aller chercher son manteau.**
+19) **Malheur, en ces jours-là, aux femmes enceintes et à celles qui allaitent !**
+20) **Priez pour que votre fuite n’ait pas lieu en hiver, ni un jour de sabbat.**
+21) **Car à ce moment-là, la détresse sera plus terrible que tout ce qu’on a connu depuis le commencement du monde; et jamais plus, on ne verra pareille souffrance.**
+22) **Vraiment, si le [[Dieu|Seigneur]] n’avait pas décidé de réduire le nombre de ces jours, personne n’en réchapperait ; mais, à cause de ceux qu’il a choisis, il abrégera ce temps.**
+23) **Si quelqu’un vous dit alors : « Le Messie est ici ! » ou : « Il est là ! », ne le croyez pas.**
+24) **De faux messies surgiront, ainsi que de faux prophètes. Ils produiront des signes extraordinaires et des prodiges au point de tromper même, si c’était possible, ceux que [[Dieu]] a choisis.**
+25) **Voilà, je vous ai prévenus !**
+26) **Si l’on vous dit : « Regardez, il est dans le désert ! », n’y allez pas ! Si l’on prétend : « Il se cache en quelque endroit secret ! », n’en croyez rien.**
+27) **En effet, quand le [[Jésus|Fils]] de l’homme viendra, ce sera comme l’éclair qui jaillit du levant et illumine tout jusqu’au couchant.**
+28) ***[[23 - Esaïe#Chapitre 34|Où que soit le cadavre, là s’assembleront les vautours.]]***
+29) Aussitôt après ces jours de détresse,
+    ***[[29 - Joël#Chapitre 3|le soleil s’obscurcira,]]***
+    ***[[23 - Esaïe#Chapitre 13|la lune perdra sa clarté]]*,**
+    ***[[23 - Esaïe#Chapitre 13|les étoiles tomberont du ciel]]*;**
+    ***[[23 - Esaïe#Versets 1 à 15|les puissances célestes ╵seront ébranlées.]]***
+30) **C’est alors que le signe du [[Jésus|Fils de l’homme]] apparaîtra dans le ciel. Alors tous les peuples de la terre se lamenteront, et ils verront le [[Jésus|Fils de l’homme]] venir sur les nuées du ciel  avec beaucoup de puissance et de gloire.**
+31) **[[Dieu|Il]] enverra ses anges rassembler, au son des trompettes éclatantes, ses élus des quatre coins du monde, d’un bout à l’autre de l’univers.**
+32) **Que l’exemple du figuier vous serve d’enseignement : quand ses rameaux deviennent tendres et que ses feuilles poussent, vous savez que l’été est proche.**
+33) **De même, quand vous verrez tous ces événements, sachez que le [[Jésus|Fils de l’homme]] est proche, comme aux portes de la ville.**
+34) **Vraiment, [[Jésus|je]] vous assure que cette génération-ci ne passera pas jusqu’à ce que tout cela vienne à se réaliser.**
+35) **Le ciel et la terre passeront, mais [[Jésus|mes]] paroles ne passeront jamais.**
 ### Versets 36 à 51
 Intitulé **Se tenir prêt** par [[Bible#^358f23|BDS]]
 

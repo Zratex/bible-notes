@@ -36,6 +36,41 @@ Intitulé **Les prophètes** par [[Bible#^358f23|BDS]]
 20) Mais si un prophète a l’audace de prononcer en mon nom un message dont je ne l’ai pas chargé, ou s’il se met à parler au nom d’autres divinités, il sera mis à mort.
 21) Peut-être vous demanderez-vous : « Comment saurons-nous qu’une prophétie ne vient pas de l’[[Dieu|Eternel]] ? »
 22) Sachez donc que si le prophète annonce de la part de l’[[Dieu|Eternel]] une chose qui ne se réalise pas, si sa parole reste sans effet, c’est que son message ne vient pas de l’[[Dieu|Eternel]], c’est par présomption que le prophète l’aura prononcé : vous ne vous laisserez donc pas impressionner par lui.
+## Chapitre 22
+### Versets 5 à 12
+Intitulé **Contre les mélanges et autres lois** par [[Bible#^358f23|BDS]]
+
+5) Une femme ne portera pas des habits d’homme, ni un homme des vêtements féminins, car l’[[Dieu|Eternel]] a en abomination ceux qui agissent ainsi.
+6) Si tu trouves en chemin un nid d’oiseau sur un arbre ou par terre, un nid avec une mère couvant des œufs ou abritant des oisillons, tu ne prendras pas la mère avec sa couvée ;
+7) laisse s’envoler la mère, et tu pourras prendre les petits. Si tu agis ainsi, tu seras heureux et tu vivras longtemps.
+8) Si tu construis une nouvelle maison, tu installeras une balustrade autour de ton toit en terrasse, pour que tu ne sois pas responsable de la mort de quelqu’un qui tomberait du toit.
+9) Tu ne sèmeras pas d’autres plantes dans ta vigne, sinon tout ce qu’elle produira – les raisins comme la récolte des autres graines – deviendra sacré.
+10) Tu ne laboureras pas en attelant un bœuf et un âne ensemble à la même charrue.
+11) Tu ne porteras pas de vêtement coupé dans un tissu de laine et de lin mélangés.
+12) Tu mettras des cordons aux quatre coins du vêtement dont tu t’envelopperas.
+### Versets 13 à 21
+Intitulé **L'épouse accusée à tort** par [[Bible#^358f23|BDS]]
+
+13) Supposons qu’un homme ait épousé une femme, qu’il se soit uni à elle et que, par la suite, il la prenne en aversion
+14) et invente contre elle une fausse accusation et lui fasse une mauvaise réputation, en disant qu’il ne l’a pas trouvée vierge quand il l’a épousée et s’est approché d’elle.
+15) Dans ce cas, les parents de la jeune femme apporteront aux responsables de la ville qui siègent aux portes de la cité les preuves de sa virginité.
+16) Le père leur déclarera : « J’ai donné ma fille en mariage à cet homme, mais il l’a prise en aversion,
+17) et maintenant, il invente contre elle une fausse accusation, prétextant ne pas l’avoir trouvée vierge. Or, voici les preuves de sa virginité. » Alors ils déplieront devant les responsables le drap de la nuit de noce.
+18) Les responsables de cette ville prendront l’homme et lui infligeront un châtiment,
+19) parce qu’il a porté atteinte à la réputation d’une vierge d’[[Israël]], ils le condamneront à une amende de cent pièces d’argent qu’ils remettront au père de la jeune femme  ; elle restera sa femme tant qu’il vivra : il n’aura plus le droit de la renvoyer.
+20) Si, au contraire, l’accusation s’avère fondée et si la virginité de la jeune femme n’est pas prouvée,
+21) on l’amènera à l’entrée de la maison de son père, ses concitoyens la feront mourir par lapidation parce qu’elle a commis une chose infâme en [[Israël]] en se déshonorant lorsqu’elle vivait encore dans la maison de son père. Ainsi vous ferez disparaître du milieu de vous la souillure qu’entraîne le mal.
+### Versets 22 à 29
+Intitulé **Les relations sexuelles illicites** par [[Bible#^358f23|BDS]]
+
+22) Si l’on surprend un homme en train de coucher avec une femme mariée, tous les deux, l’homme et la femme, seront mis à mort. Ainsi vous ferez disparaître du milieu d’[[Israël]] la souillure qu’entraîne le mal.
+23) Si une jeune fille vierge est fiancée à quelqu’un et qu’un autre homme la rencontre dans la ville et couche avec elle,
+24) vous les amènerez tous les deux à la porte de la ville et vous les lapiderez pour les faire mourir. La jeune fille mourra parce qu’elle n’a pas appelé au secours, bien que cela se soit passé en ville, et l’homme parce qu’il a déshonoré la femme de son prochain. Ainsi vous ferez disparaître du milieu de vous la souillure qu’entraîne le mal.
+25) Mais si c’est en pleine campagne que l’homme trouve la jeune fille fiancée et qu’il la viole, lui seul sera mis à mort.
+26) Vous ne ferez rien à la jeune fille, car elle n’a pas commis de faute qui mérite la mort. En effet, elle s’est trouvée dans le même cas que lorsqu’un homme attaque son prochain et le tue.
+27) Puisque c’est en plein champ que l’homme l’a rencontrée, elle aura eu beau crier, personne n’est venu à son secours.
+28) Si un homme rencontre une jeune fille non fiancée, qu’il s’empare d’elle et couche avec elle et qu’on les prenne sur le fait,
+29) l’homme qui a couché avec elle versera au père de la jeune fille cinquante pièces d’argent et devra l’épouser puisqu’il l’a violée. De plus, il ne pourra jamais la renvoyer tant qu’il vivra.
 ## Chapitre 30
 ### Versets 15 à 20
 Intitulé **La vie et la mort** par [[Bible#^358f23|BDS]]

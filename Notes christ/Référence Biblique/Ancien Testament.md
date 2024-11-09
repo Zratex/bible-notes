@@ -36,7 +36,7 @@ A comme appellation "la loi et les prophéties" dans le [[Nouveau testament]]
 	- [[27 - Daniel|Daniel]]
 - Seconds livres prophétiques :
 	- Osée
-	- Joël
+	- [[29 - Joël|Joël]]
 	- [[30 - Amos|Amos]]
 	- [[31 - Abdias|Abdias]]
 	- [[32 - Jonas|Jonas]]

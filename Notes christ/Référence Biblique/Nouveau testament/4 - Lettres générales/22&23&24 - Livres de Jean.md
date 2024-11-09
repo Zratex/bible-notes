@@ -20,6 +20,24 @@ Intitulé **[[Dieu]] est amour - Aimer parce que [[Dieu]] nous a aimés le premi
 20) Si quelqu’un prétend aimer [[Dieu]] tout en détestant son frère, c’est un menteur. Car s’il n’aime pas son frère qu’il voit, il ne peut pas aimer [[Dieu]] qu’il ne voit pas.
 21) D’ailleurs, [[Jésus|Christ]] lui-même nous a donné ce commandement : que celui qui aime [[Dieu]] aime aussi son frère.
 ## Chapitre 5
+### Versets 1 à 15
+Intitulé **Croire au [[Jésus|Fils]] de [[Dieu]]** par [[Bible#^358f23|BDS]]
+
+1) Celui qui croit que [[Jésus|Jésus]] est [[Jésus|Christ]] est né de [[Dieu]]. Et celui qui aime le [[Dieu|Père]], qui fait naître à la vie, aime aussi les enfants nés de lui.
+2) Voici comment nous savons que nous aimons les enfants de [[Dieu]] : c’est lorsque nous aimons [[Dieu]] lui-même et que nous obéissons à ses commandements.
+3) Car aimer [[Dieu]], c’est accomplir ses commandements. Ceux-ci, d’ailleurs, ne sont pas pénibles,
+4) car tout ce qui est né de [[Dieu]] triomphe du monde, et la victoire qui triomphe du monde, c’est notre foi.
+5) Qui, en effet, triomphe du monde ? Celui-là seul qui croit que [[Jésus|Jésus]] est le [[Jésus|Fils]] de [[Dieu]].
+6) Celui qui est venu par l’eau et par le sang, c’est bien [[Jésus|Jésus-Christ]] : il n’est pas passé seulement par l’eau du baptême, mais outre le baptême, il est passé par la mort en versant son sang. Et c’est l’[[Saint-Esprit|Esprit]] qui lui rend témoignage, car l’[[Saint-Esprit|Esprit]] est la vérité.
+7) Ainsi il y a trois témoins :
+8) l’[[Saint-Esprit|Esprit]], l’eau et le sang ; et les trois sont d’accord.
+9) Nous acceptons le témoignage des hommes ; mais le témoignage de [[Dieu]] est bien supérieur, et ce témoignage, c’est celui que [[Dieu]] a rendu à son [[Jésus|Fils]]. 
+10) Celui qui croit au [[Jésus|Fils]] de [[Dieu]] possède ce témoignage en lui-même. Celui qui ne croit pas [[Dieu]] fait de lui un menteur, puisqu’il ne croit pas le témoignage que [[Dieu]] a rendu à son [[Jésus|Fils]].
+11) Et qu’affirme ce témoignage ? Il dit que [[Dieu]] nous a donné la vie éternelle et que cette vie est en son [[Jésus|Fils]].
+12) Celui qui a le [[Jésus|Fils]] a la vie. Celui qui n’a pas le [[Jésus|Fils]] de [[Dieu]] n’a pas la vie.
+13) [[Jean|Je]] vous ai écrit cela, pour que vous sachiez que vous avez la vie éternelle, vous qui croyez au [[Jésus|Fils]] de [[Dieu]].
+14) Et voici quelle assurance nous avons devant [[Dieu]] : si nous demandons quelque chose qui est conforme à sa volonté, [[Dieu|il]] nous écoute.
+15) Et si nous savons qu’[[Dieu|il]] nous écoute, nous savons aussi que l’objet de nos demandes nous est acquis.
 ### Versets 16 à 20
 Intitulé **Le Chrétien et le péché** par [[Bible#^358f23|BDS]]
 #### Versets 19 et 20

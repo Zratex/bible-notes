@@ -1,0 +1,1 @@
+Peuple nomade situé entre le [[Tigre & Euphrate]]. Ce peuple coexistait avec [[Babylone]]

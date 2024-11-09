@@ -30,6 +30,59 @@ Intitulé **L'intronisation du Roi** par [[Bible#^358f23|BDS]]
     et que vous périssiez tous ╵dans la voie que vous suivez.
     En un instant, [[Dieu|sa]] colère ╵contre vous peut s’enflammer.
     Oui, heureux sont tous les hommes ╵qui, en [[Dieu|lui]], cherchent refuge !
+## Chapitre 4
+Intitulé **L'[[Dieu|Eternel]] donne la paix** par [[Bible#^358f23|BDS]]
+
+1) *Au chef de chœur, n psaume de [[David]] à chanter avec accompagnement d’instruments à cordes.*
+2) Quand [[David|je]] t’appelle à l’aide, ╵[[Dieu]] qui me rends justice, ╵oh, réponds-moi !
+   Lorsque je suis dans la détresse, ╵tu me délivres :
+   [[Dieu]], fais-moi grâce, ╵et entends ma prière !
+3) Et vous, les hommes, ╵jusques à quand jetterez-vous ╵le discrédit sur [[David|mon]] honneur ?
+   Jusques à quand vous plairez-vous ╵à poursuivre le vent
+   et le mensonge ?
+   Pause
+4) Sachez-le bien : ╵l’[[Dieu|Eternel]] s’est choisi ╵un homme qui s’attache à lui :
+   et il [[David|m]]’entend ╵quand je l’appelle.
+5) Mettez-vous en colère ╵mais n’allez pas jusqu’à pécher  !
+   Réfléchissez, sur votre lit, ╵puis taisez-vous !
+   Pause
+6) Offrez des sacrifices ╵conformes à la [[La Loi de Dieu|Loi]]
+   et confiez-vous en l’[[Dieu|Eternel]] !
+7) Ils sont nombreux ceux qui demandent : ╵« Qui donc nous apportera le bonheur ? »
+   O [[Dieu|Eternel]], ╵porte sur nous ╵un regard favorable ! ╵Que notre vie ╵en soit illuminée !
+8) [[Dieu|Tu]] mets dans [[David|mon]] cœur de la joie, ╵plus qu’ils n’en ont
+   quand leurs moissons abondent, ╵quand leur vin nouveau coule.
+9) Dans la paix, [[David|je]] me couche ╵et m’endors aussitôt ;
+   grâce à [[Dieu|toi]] seul, ô [[Dieu|Eternel]], ╵je demeure en sécurité.
+## Chapitre 16
+Intitulé **Le chemin de la vie** par [[Bible#^358f23|BDS]]
+
+1) *Un cantique de [[David]].*
+   O [[Dieu]], protège-moi, ╵car je me réfugie en toi.
+2) [[David|Je]] dis à l’[[Dieu|Eternel]] : ╵« Toi, tu es mon Seigneur,
+   et mon bonheur est en toi seul. »
+3) [[David|Je]] suis plein d’affection ╵pour tous ceux qui sont saints ╵dans le pays :
+   ce sont eux qui sont vraiment grands.
+4) Mais tous ceux qui s’empressent ╵après un autre dieu
+   ne font qu’augmenter leurs tourments.
+   [[David|Je]] ne prendrai pas part ╵à leurs sanglantes libations.
+   Le nom de ces idoles ╵ne passera pas sur mes lèvres.
+5) L’[[Dieu|Eternel]] est [[David|ma]] part ╵et la coupe où je bois.
+   [[Dieu|Tu]] garantis la part que j’ai reçue.
+6) [[Dieu|Tu]] en as fixé les limites, ╵c’est un jardin plein de délices,
+   oui, c’est pour moi ╵un patrimoine merveilleux.
+7) Oui, [[David|je]] veux bénir l’[[Dieu|Eternel]] ╵qui me conseille,
+   et même dans la nuit, ╵je suis instruit ╵dans mon être intérieur.
+8) [[David|Je]] garde constamment ╵les yeux fixés sur l’[[Dieu|Eternel]],
+   car il est à ma droite, ╵pour que je ne vacille pas.
+9) Voilà pourquoi ╵[[David|mon]] cœur est dans la joie,
+   mon âme exulte d’allégresse.
+   Ainsi mon corps ╵repose dans la confiance :
+10) [[Dieu|tu]] ne [[David|m]]’abandonneras pas ╵dans le séjour des morts,
+    tu ne laisseras pas ╵un homme qui t’est attaché ╵descendre dans la tombe.
+11) [[Dieu|Tu]] me feras connaître ╵le chemin de la vie :
+    plénitude de joie ╵en [[Dieu|ta]] présence,
+    délices éternelles ╵auprès de toi.
 ## Chapitre 28
 Intitulé **L'[[Dieu|Eternel]] répond** par [[Bible#^358f23|BDS]]
 

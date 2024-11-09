@@ -1,4 +1,81 @@
 Livre rédigé par [[Esaïe]]
+## Chapitre 13
+Intitulé **Contre [[Babylone]]** par [[Bible#^358f23|BDS]]
+
+1) Menace sur [[Babylone]], révélée à [[Esaïe]], fils d’Amots.
+2) Sur un mont dénudé, ╵dressez un étendard,
+   poussez des cris
+   et agitez la main !
+   Que l’on franchisse ╵les portes des seigneurs !
+3) [[Dieu|Moi]], j’ai donné mes ordres ╵à des milices ╵à qui j’ai fait appel,
+   j’ai convoqué mes braves, ╵agents de ma colère,
+   qui se réjouissent de ma gloire.
+4) C’est le bruit d’une foule ╵sur les montagnes :
+   on dirait un grand peuple.
+   On entend le tumulte de royaumes, ╵de nations rassemblées.
+   Le [[Dieu|Seigneur]] des armées célestes ╵passe en revue
+   ses troupes de combat.
+5) Ils viennent de très loin,
+   du bout de l’horizon,
+   l’[[Dieu|Eternel]] et les troupes ╵dont il se servira ╵dans son indignation
+   pour dévaster tout le pays.
+6) Poussez donc des cris de détresse, ╵car il se rapproche à grands pas, ╵le jour de l’[[Dieu|Eternel]],
+   comme un fléau dévastateur ╵déchaîné par le [[Dieu|Tout-Puissant]].
+7) C’est pourquoi tous les bras s’affaibliront
+   et tout le monde ╵perdra courage.
+8) Ils seront frappés d’épouvante,
+   ils seront saisis de douleurs, ╵accablés de souffrances ╵comme une femme qui enfante.
+   Ils se regarderont ╵avec stupeur les uns les autres,
+   le visage embrasé.
+9) Voici venir ╵le jour de l’[[Dieu|Eternel]],
+   ce jour impitoyable, ╵jour de fureur ╵et d’ardente colère
+   qui réduira la terre ╵en un désert,
+   et en exterminera les pécheurs.
+10) Alors les étoiles du ciel ╵et toutes leurs constellations
+    cesseront de briller,
+    le soleil sera obscurci ╵dès son lever,
+    il n’y aura plus de clarté ╵répandue par la lune.
+11) [[Dieu|J]]’interviendrai contre le monde ╵pour le punir ╵de sa méchanceté
+    et contre ceux qui font le mal ╵à cause de leurs fautes.
+    Je mettrai fin à l’arrogance ╵des insolents,
+    je ferai tomber l’orgueil des tyrans.
+12) [[Dieu|Je]] rendrai les humains plus rares ╵que de l’or fin,
+    plus rares que de l’or d’Ophir.
+13) [[Dieu|J]]’ébranlerai le ciel,
+    et cette terre ╵sera secouée sur ses bases
+    par la fureur de l’[[Dieu|Eternel]], ╵le [[Dieu|Seigneur]] des armées célestes,
+    au jour où il déchaînera ╵son ardente colère.
+14) Les gens seront, en ce jour-là, ╵pareils à des gazelles ╵que l’on poursuit,
+    ou comme des brebis perdues.
+    Chacun s’en retournera chez les siens,
+    chacun fuira vers son pays.
+15) Tous ceux que l’on rencontrera ╵seront percés de flèches,
+    et tous ceux que l’on saisira ╵tomberont par l’épée.
+16) Leurs petits enfants seront écrasés ╵sous leurs regards,
+    leurs maisons seront mises à sac
+    et leurs femmes violées.
+17) Car [[Dieu|je]] vais susciter ╵contre eux les [[Mèdes|Mèdes]]
+    qui ne font pas cas de l’argent
+    et qui font fi de l’or.
+18) Avec [[Mèdes|leurs]] arcs, ╵ils abattront les jeunes gens,
+    ils n’épargneront pas ╵les nouveau-nés
+    et seront sans pitié ╵pour les enfants.
+19) Et [[Babylone]], ╵le joyau des royaumes,
+    cité splendide ╵qui faisait la fierté des [[Chaldée|Chaldéens]],
+    deviendra semblable à [[Sodome]] ╵et à [[Gomorrhe]] ╵que [[Dieu]] a renversées.
+20) Car [[Babylone]] ne sera ╵plus jamais habitée
+    et plus jamais peuplée
+    dans toutes les générations.
+    Et même les nomades ╵n’y dresseront jamais leur tente,
+    et nul berger ╵n’y fera reposer ses bêtes.
+21) Les chats sauvages ╵chercheront abri dans ses ruines ;
+    ses maisons ╵seront hantées par les hiboux,
+    les autruches ╵y établiront leur demeure
+    et les boucs viendront ╵y prendre leurs ébats,
+22) les chats sauvages ╵s’appelleront dans ses châteaux,
+    et les chacals ╵viendront hurler dans ses palais.
+    Son heure approche,
+    et ses jours ne seront pas prolongés.
 ## Chapitre 29
 ### Versets 13 et 14
 Intitulé **De surprise en surprise** par la version [[Bible#^358f23|BDS]]
@@ -7,6 +84,68 @@ Intitulé **De surprise en surprise** par la version [[Bible#^358f23|BDS]]
 14) A cause de cela, j’étonnerai ce peuple par de nouveaux prodiges, des actes extraordinaires ; la [[Sagesse (note)]] des sages sera anéantie, l’intelligence fera défaut à ses intelligents
 
 Verset 14 cité dans [[7&8 - Corinthiens#Versets 18 à 31|1 Corinthiens 1:19]]
+
+## Chapitre 34
+Intitulé **La rétribution divine** par [[Bible#^358f23|BDS]]
+### Versets 1 à 15
+Intitulé **L'anéantissement d'[[Edom]]** par [[Bible#^358f23|BDS]]
+
+1) Approchez, ô nations, ╵pour écouter,
+   vous peuples, prêtez attention !
+   Oui, que la terre entière ╵et tout ce qui l’emplit,
+   oui, que le monde ╵et tout ce qu’il produit ╵se mettent à l’écoute !
+2) Car l’[[Dieu|Eternel]] est en colère
+   contre l’ensemble des nations,
+   il est furieux ╵contre toutes leurs troupes,
+   il les voue à lui-même :
+   il les livre au massacre.
+3) Leurs victimes seront jetées,
+   l’odeur de leurs cadavres ╵se répandra,
+   leur sang ruissellera ╵sur les montagnes.
+4) Toute l’armée du ciel ╵en pourriture tombera ;
+   le ciel s’enroulera ╵comme on enroule un livre,
+   tous les astres se décomposeront
+   comme se décomposent ╵les feuilles de la vigne
+   ou celles du figuier.
+5) Dans le ciel, [[Dieu|mon]] épée est ivre,
+   et la voici qui s’abat sur [[Edom|Edom]],
+   oui, sur ce peuple ╵que j’ai voué au jugement.
+6) L’épée de l’[[Dieu|Eternel]] ╵est saturée de sang ╵et couverte de graisse,
+   du sang des boucs ╵et des agneaux,
+   des parties grasses ╵des rognons de béliers.
+   Car pour l’[[Dieu|Eternel]] est prévu ╵un sacrifice dans [[Botsra]]
+   et un grand carnage en [[Edom]].
+7) En même temps, les buffles tomberont,
+   avec les bœufs et les taureaux,
+   le pays tout entier ╵est abreuvé de sang,
+   la poussière du sol ╵est imprégnée de graisse,
+8) car il y a un jour ╵où l’[[Dieu|Eternel]] rétribuera,
+   et une année ╵où il fera rendre des comptes ╵pour défendre la cause de [[Sion|Sion]].
+9) Les rivières d’[[Edom|Edom]] ╵seront changées en poix
+   et sa poussière en soufre,
+   et tout son territoire ╵deviendra de la poix brûlante.
+10) Ni la nuit ni le jour, ╵elle ne s’éteindra,
+    sa fumée montera ╵à perpétuité
+    et, pour toujours, ╵[[Edom]] restera ravagé :
+    personne n’y passera plus.
+11) Le hibou et le hérisson ╵en prendront possession,
+    la chouette et le corbeau ╵en feront leur demeure,
+    et l’[[Dieu|Eternel]] y étendra ╵le cordeau du chaos,
+    le fil à plomb du vide.
+12) Ses nobles ne pourront ╵plus proclamer de roi,
+    et tous ses grands ╵seront réduits à rien.
+13) Les épineux croîtront ╵dans ses palais,
+    les orties et les ronces ╵dans ses fortins.
+    Ce sera un repaire ╵pour les chacals,
+    un domaine pour les autruches :
+14) les bêtes du désert ╵y trouveront les hyènes,
+    les boucs sauvages ╵s’y héleront l’un l’autre.
+    La chouette nocturne ╵viendra s’y reposer
+    car elle y trouvera ╵un endroit bien tranquille.
+15) Le serpent y fera son nid ╵et y pondra ses œufs,
+    il les y couvera ╵et les fera éclore sous son ombre.
+    Là, les vautours ╵se rassembleront tous,
+    chacun avec son compagnon.
 ## Chapitre 52
 ### Versets 7 à 12
 Intitulé **[[Dieu]] délivre** par la version [[Bible#^358f23|BDS]]

@@ -21,6 +21,19 @@ Intitulé **La paix avec [[Dieu]]** par [[Bible#^358f23|BDS]]
 9) Donc, puisque nous sommes maintenant déclarés justes grâce à [[Jésus|son]] sacrifice, nous serons, à plus forte raison encore, sauvés par [[Jésus|lui]] de la colère à venir.
 10) Alors que nous étions [[Dieu|ses]] ennemis, [[Dieu]] nous a réconciliés avec lui par la mort de son [[Jésus|Fils]] ; à plus forte raison, maintenant que nous sommes réconciliés, serons-nous sauvés par sa vie.
 11) Mieux encore : nous plaçons désormais notre fierté en [[Dieu]] par notre [[Seigneur et non seulement sauveur|Seigneur]] [[Jésus|Jésus-Christ]] qui nous a obtenu la réconciliation.
+### Versets 12 à 21
+Intitulé **Condamnés en [[Adam]], déclarés justes en [[Jésus|Christ]]** par [[Bible#^358f23|BDS]]
+
+12) C’est pourquoi, de même que par un seul [[Adam|homme]], le péché est entré dans le monde et par le péché, la [[Mort|mort]], et ainsi la mort a atteint tous les hommes parce que tous ont péché…
+13) En effet, jusqu’à ce que [[Dieu]] donne la [[La Loi de Dieu|Loi]] de [[Moïse|Moïse]], le péché existait bien dans le monde ; or le péché n’est pas pris en compte quand la [[La Loi de Dieu|Loi]] n’existe pas.
+14) Et pourtant, la [[Mort|mort]] a régné depuis [[Adam]] jusqu’à [[Moïse|Moïse]], même sur les hommes qui n’avaient pas commis une faute semblable à celle d’[[Adam]] – qui est comparable à celui qui devait venir.
+15) Mais il y a une différence entre la faute et le don de la grâce ! En effet, si la faute d’un seul a eu pour conséquence la mort de beaucoup, à bien plus forte raison la grâce de [[Dieu]], don gratuit qui vient d’un seul homme, [[Jésus|Jésus-Christ]], a surabondé pour beaucoup.
+16) Quelle différence aussi entre les conséquences du péché d’un seul et le don ! En effet, le jugement intervenant à cause d’un seul homme a entraîné la condamnation, mais le don de grâce, intervenant à la suite de nombreuses fautes, a conduit à l’acquittement.
+17) Car si, par la faute commise par un seul homme, la mort a régné à cause de ce seul homme, à bien plus forte raison ceux qui reçoivent l’abondance de la grâce qu’est le don de la justification régneront-ils dans la vie par [[Jésus|Jésus-Christ]], lui seul.
+18) Ainsi donc, comme une seule faute a entraîné la condamnation de tous les hommes, un seul acte satisfaisant à la justice a obtenu pour tous les hommes l’acquittement qui leur assure la vie.
+19) Comme, par la désobéissance d’un seul, beaucoup d’hommes ont été déclarés pécheurs devant [[Dieu]], de même, par l’obéissance d’un seul, beaucoup seront déclarés justes devant [[Dieu]].
+20) Quant à la [[La Loi de Dieu|Loi]], elle est intervenue pour que le péché prolifère. Mais là où le péché a proliféré, la grâce a surabondé
+21) pour que, comme le péché a régné par la mort, de même la grâce règne par la justice que [[Dieu]] accorde et qui aboutit à la vie éternelle par [[Jésus|Jésus-Christ]] notre [[Seigneur et non seulement sauveur|Seigneur]].
 ## Chapitre 6
 Intitulé **La grâce : une excuse pour pécher ?** par [[Bible#^358f23|BDS]]
 

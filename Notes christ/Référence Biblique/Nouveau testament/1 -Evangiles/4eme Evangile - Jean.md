@@ -79,13 +79,58 @@ Comme décrit dans la note [[Parabole des vierges]], il est ici question de la r
 
 27) Mes brebis ==écoutent ma voix==, [[Jésus|je]] les connais et elles me suivent.
 28) Je leur donne la vie éternelle : jamais elles ne périront et personne ne pourra les arracher de ma main.
+## Chapitre 14
+### Versets 1 à 14
+Intitulé **Le chemin, la vérité, la vie** par [[Bible#^358f23|BDS]]
+
+1) [[Jésus]] dit : **Que votre cœur ne se trouble pas. Ayez foi en [[Dieu]], ayez aussi foi en moi.**
+2) **Dans la maison de [[Jésus|mon]] [[Dieu|Père]], il y a beaucoup de demeures ; si ce n’était pas vrai, je vous l’aurais dit : en effet je vais vous préparer une place.**
+3) **Lorsque [[Jésus|je]] vous aurai préparé une place, je reviendrai et je vous prendrai avec moi, afin que vous soyez, vous aussi, là où je suis.**
+4) **Mais vous en connaissez le chemin.**
+5) [[Thomas]] lui dit : [[Jésus|Seigneur]], nous ne savons même pas où tu vas, comment pourrions-nous savoir par quel chemin on y parvient ?
+6) **– Je suis, moi, le chemin,** répondit [[Jésus]], **la vérité et la vie. Personne ne va au [[Dieu|Père]] sans passer par moi.**
+7) **Si vous [[Jésus|me]] connaissez, vous connaîtrez aussi mon [[Dieu|Père]]. Et maintenant déjà vous le connaissez, vous l’avez même vu.**
+8) [[Philippe|Philippe]] intervint : [[Jésus|Seigneur]], montre-nous le [[Dieu|Père]], et cela nous suffit.
+9) **– Eh quoi,** lui répondit [[Jésus]], **après tout le temps que j’ai passé avec vous, tu ne me connais pas encore, [[Philippe|Philippe]] ! Celui qui m’a vu, a vu le [[Dieu|Père]]. Comment peux-tu dire : « Montre-nous le [[Dieu|Père]] ? »**
+10) **Ne crois-tu pas que [[Jésus|je]] suis dans le [[Dieu|Père]] et que le [[Dieu|Père]] est en moi ? Ce que je vous dis, je ne le dis pas de moi-même : le [[Dieu|Père]] demeure en moi et c’est lui qui accomplit ainsi ses propres œuvres.**
+11) **Croyez-moi : [[Jésus|Je]] suis dans le [[Dieu|Père]] et le [[Dieu|Père]] est en moi. Sinon, croyez au moins à cause des œuvres que vous m’avez vu accomplir.**
+12) **Vraiment, [[Jésus|je]] vous l’assure : celui qui croit en moi accomplira les œuvres que je fais. Il en fera même de plus grandes parce que je vais auprès du [[Dieu|Père]].**
+13) **Et quoi que ce soit que vous demandiez en [[Jésus|mon]] nom, je le réaliserai pour que la gloire du [[Dieu|Père]] soit manifestée par le [[Jésus|Fils]].**
+14) **[[Jésus|Je]] le répète : Si vous me demandez quelque chose en mon nom, je le ferai.**
 ## Chapitre 16
 ### Versets 17 à 33
 #### Verset 33
 Etudié en temps que conclusion de la note sur [[Nos Forteresses]]
 
 33) Il fallait que je vous dise aussi cela pour que vous trouviez la paix en [[Jésus|moi]]. Dans le monde, vous aurez à souffrir bien des afflictions. Mais courage ! [[Jésus|Moi]], j’ai vaincu le monde.
+## Chapitre 17
+### Versets 6 à 19
+Intitulé **[[Jésus]] prie pour ses disciples** par [[Bible#^358f23|BDS]]
 
+6) **[[Jésus|Je]] [[Dieu|t]]’ai fait connaître aux hommes que [[Dieu|tu]] as pris du monde pour me les donner. Ils t’appartenaient, et tu me les as donnés : ils ont gardé [[Bible|ta Parole]].**
+7) **Maintenant ils savent que tout ce que [[Dieu|tu]] [[Jésus|m]]’as donné vient de toi ;**
+8) **car [[Jésus|je]] leur ai transmis fidèlement le message que tu m’avais confié ; ils l’ont reçu. Aussi ont-ils reconnu avec certitude que je suis venu d’auprès de toi ; et ils ont cru que c’est toi qui m’as envoyé.**
+9) **[[Jésus|Je]] [[Dieu|te]] prie pour eux. Je ne te prie pas pour le monde, mais pour ceux que tu m’as donnés parce qu’ils t’appartiennent.**
+10) **Car tout ce qui est à [[Jésus|moi]] est à [[Dieu|toi]], comme tout ce qui est à toi est à moi. Ma gloire rayonne en eux.**
+11) **Bientôt, [[Jésus|je]] ne serai plus dans le monde, car je vais à [[Dieu|toi]], mais eux, ils vont rester dans le monde. [[Dieu|Père saint]], garde-les par le pouvoir de ton nom, celui que tu m’as donné, pour qu’ils soient un comme nous le sommes.**
+12) **Aussi longtemps que [[Jésus|j]]’étais parmi eux, je les ai gardés par le pouvoir de [[Dieu|ton]] nom, ce nom que tu m’as donné; je les ai protégés et aucun d’eux ne s’est perdu (sauf [[Judas|celui]] qui devait se perdre pour que s’accomplisse l’[[Ancien Testament|Ecriture]]).**
+13) **A présent, [[Jésus|je]] retourne auprès de [[Dieu|toi]], et je dis tout cela pendant que je suis encore dans le monde, pour qu’ils possèdent en eux cette joie qui est la mienne, une joie parfaite.**
+14) **[[Jésus|Je]] leur ai donné [[Dieu|ta]] [[Bible|Parole]], et le monde les a pris en haine parce qu’ils ne lui appartiennent pas, comme moi-même je ne lui appartiens pas.**
+15) **[[Jésus|Je]] ne [[Dieu|te]] demande pas de les retirer du monde, mais de les préserver du [[Satan|diable]].**
+16) **Ils n’appartiennent pas au monde, comme moi-même [[Jésus|je]] ne lui appartiens pas.**
+17) **Consacre-les par la vérité. [[Dieu|Ta]] [[Bible|Parole]] est la vérité.**
+18) **Comme [[Dieu|tu]] [[Jésus|m]]’as envoyé dans le monde, moi aussi je les y envoie.**
+19) **Et [[Jésus|je]] me consacre moi-même à [[Dieu|toi]] pour eux, pour qu’ils soient, à leur tour, consacrés à toi par la vérité.**
+### Versets 20 à 26
+Intitulé **[[Jésus]] prie pour tous ceux qui croiront en lui** par [[Bible#^358f23|BDS]]
+
+20) **Ce n’est pas seulement pour eux que [[Jésus|je]] [[Dieu|te]] prie ; c’est aussi pour ceux qui croiront en moi grâce à leur parole.**
+21) **[[Jésus|Je]] [[Dieu|te]] demande qu’ils soient tous un. Comme toi, [[Dieu|Père]], tu es en moi et comme moi je suis en toi, qu’ils soient un en nous pour que le monde croie que c’est toi qui m’as envoyé.**
+22) **[[Jésus|Je]] leur ai donné la gloire que [[Dieu|tu]] m’as donnée, afin qu’ils soient un, comme toi et moi nous sommes un,**
+23) **[[Jésus|moi]] en eux et [[Dieu|toi]] en moi. Qu’ils soient parfaitement un et qu’ainsi le monde puisse reconnaître que c’est toi qui m’as envoyé et que tu les aimes comme tu m’aimes !**
+24) **[[Dieu|Père]], mon désir est que ceux que tu [[Jésus|m]]’as donnés soient avec moi là où je serai et qu’ils contemplent ma gloire, celle que tu m’as donnée, parce que tu m’as aimé avant la création du monde.**
+25) **[[Dieu|Père]], toi qui es juste, le monde ne t’a pas connu, mais [[Jésus|moi je]] t’ai connu, et ceux-ci ont compris que c’est toi qui m’as envoyé.**
+26) **[[Jésus|Je]] [[Dieu|t]]’ai fait connaître à eux et je continuerai à te faire connaître, pour que l’amour que tu m’as témoigné soit en eux et que je sois moi-même en eux.**
 ## Chapitre 19
 ### Versets 17 à 37
 Intitulé **La mort de [[Jésus]]** par [[Bible#^358f23|BDS]]

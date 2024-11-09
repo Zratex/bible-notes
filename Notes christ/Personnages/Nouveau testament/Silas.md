@@ -1,0 +1,1 @@
+Selon Wikipédia il serait né à [[Rome]], c'est un chrétien qui a accompagné [[Paul]] lors de son premier voyage.

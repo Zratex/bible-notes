@@ -11,8 +11,14 @@
             "id": "b130deb4c7513be0",
             "type": "leaf",
             "state": {
-              "type": "graph",
-              "state": {}
+              "type": "markdown",
+              "state": {
+                "file": "Vie équilibré.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "Vie équilibré"
             }
           }
         ]
@@ -35,7 +41,9 @@
               "type": "file-explorer",
               "state": {
                 "sortOrder": "alphabetical"
-              }
+              },
+              "icon": "lucide-folder-closed",
+              "title": "Files"
             }
           },
           {
@@ -44,13 +52,15 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "mer morte",
+                "query": "",
                 "matchingCase": false,
                 "explainSearch": false,
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical"
-              }
+              },
+              "icon": "lucide-search",
+              "title": "Search"
             }
           },
           {
@@ -58,7 +68,9 @@
             "type": "leaf",
             "state": {
               "type": "bookmarks",
-              "state": {}
+              "state": {},
+              "icon": "lucide-bookmark",
+              "title": "Bookmarks"
             }
           }
         ]
@@ -81,6 +93,7 @@
             "state": {
               "type": "backlink",
               "state": {
+                "file": "Vie équilibré.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -88,7 +101,9 @@
                 "searchQuery": "",
                 "backlinkCollapsed": false,
                 "unlinkedCollapsed": true
-              }
+              },
+              "icon": "links-coming-in",
+              "title": "Backlinks for Vie équilibré"
             }
           },
           {
@@ -97,9 +112,12 @@
             "state": {
               "type": "outgoing-link",
               "state": {
+                "file": "Vie équilibré.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
-              }
+              },
+              "icon": "links-going-out",
+              "title": "Outgoing links from Vie équilibré"
             }
           },
           {
@@ -110,7 +128,9 @@
               "state": {
                 "sortOrder": "frequency",
                 "useHierarchy": true
-              }
+              },
+              "icon": "lucide-tags",
+              "title": "Tags"
             }
           },
           {
@@ -118,7 +138,11 @@
             "type": "leaf",
             "state": {
               "type": "outline",
-              "state": {}
+              "state": {
+                "file": "Vie équilibré.md"
+              },
+              "icon": "lucide-list",
+              "title": "Outline of Vie équilibré"
             }
           },
           {
@@ -130,7 +154,9 @@
                 "sortOrder": "frequency",
                 "showSearch": false,
                 "searchQuery": ""
-              }
+              },
+              "icon": "lucide-archive",
+              "title": "All properties"
             }
           }
         ]
@@ -152,51 +178,50 @@
   },
   "active": "b130deb4c7513be0",
   "lastOpenFiles": [
-    "Daniel a ouvert les fenêtres.md",
-    "Référence Biblique/Ancien testament/6 - Premiers livres prophétiques/27 - Daniel.md",
-    "Personnages/Ancien testament/Ennemis d'Israel/Darius.md",
-    "Référence Biblique/Ancien testament/6 - Premiers livres prophétiques/27 - Daniel.sync-conflict-20240904-181752-4D4KN2W.md",
+    "Pasted image 20240927193820.png",
+    "Vie équilibré.md",
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/15&16 - Timothée.md",
+    "Référence Biblique/Nouveau testament.md",
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/6 - Romains.md",
+    "Référence Biblique/Nouveau testament/5 - La fin/Apocalypse.md",
+    "Lieux historiques/Villes/Philadelphie.md",
+    "Lieux historiques/Images/Philadelphie.PNG",
+    "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.md",
+    "Référence Biblique/Ancien testament/2 - La loi de Dieu/5 - Deutéronome.md",
+    "Référence Biblique/Ancien testament/2 - La loi de Dieu/La Loi de Dieu.md",
+    "Référence Biblique/Nouveau testament/2 - Actes des apôtres/Actes.md",
+    "Personnages/Nouveau testament/Silas.md",
+    "Lieux historiques/Villes/Philippes (ville).md",
+    "Référence Biblique/Nouveau testament/4 - Lettres générales/22&23&24 - Livres de Jean.md",
+    "Lieux historiques/Images/Philippe (ville).PNG",
+    "Personnages/Nouveau testament/Lydie.md",
+    "Lieux historiques/Villes/Thyatire.md",
+    "Lieux historiques/Images/Thyatire.png",
+    "Lieux historiques/Images/Thyatire.png.0.pdnSave",
+    "Référence Biblique/Nouveau testament/1 -Evangiles/4eme Evangile - Jean.md",
+    "Personnages/Nouveau testament/Disciples de Jésus/Apôtres.md",
+    "Personnages/Nouveau testament/Disciples de Jésus/André.md",
+    "Thomas.md",
+    "Référence Biblique/Ancien testament/6 - Premiers livres prophétiques/23 - Esaïe.md",
+    "Référence Biblique/Ancien testament/7 - Seconds livres prophétiques/29 - Joël.md",
+    "Lieux historiques/Royaumes/Edom.md",
+    "Lieux historiques/Villes/Botsra.md",
+    "Lieux historiques/Villes/Petra.md",
+    "Lieux historiques/Images/Petra build.png",
+    "Lieux historiques/Images/Petra build.png.0.pdnSave",
+    "Personnages/Ancien testament/Esaü.md",
+    "Lieux historiques/Images/Botsra.PNG",
+    "~syncthing~Vie équilibré.md.tmp",
     "Référence Biblique/Ancien testament/6 - Premiers livres prophétiques/~syncthing~27 - Daniel.sync-conflict-20240904-181752-4D4KN2W.md.tmp",
-    "Lieux historiques/Royaumes/Mèdes.md",
-    "Lieux historiques/Royaumes/Perse.md",
-    "Personnages/Ancien testament/Ennemis d'Israel/Cyrus.md",
-    "Personnages/Ancien testament/Ennemis d'Israel/Darius.sync-conflict-20240904-181552-4D4KN2W.md",
     "Personnages/Ancien testament/Ennemis d'Israel/~syncthing~Darius.sync-conflict-20240904-181552-4D4KN2W.md.tmp",
-    "Définitions/Satrape.md",
-    "Rencontrer Jésus.md",
     "~syncthing~Daniel a ouvert les fenêtres.md.tmp",
-    "Grâce infinie.md",
-    "Grâce infinie.sync-conflict-20240830-093304-GNOYGME.md",
-    "Référence Biblique/Ancien testament/5 - Livres poétiques/19 - Psaumes.sync-conflict-20240830-093305-4D4KN2W.md",
-    "Lieux historiques/Régions géographiques/Samarie.sync-conflict-20240830-093310-4D4KN2W.md",
-    "Lieux historiques/Régions géographiques/Basan.sync-conflict-20240830-093310-4D4KN2W.md",
-    "Référence Biblique/Ancien testament/3 - Premiers livres historiques/9&10 - Samuel.sync-conflict-20240830-093306-4D4KN2W.md",
-    "Lieux historiques/Royaumes/Ammon.sync-conflict-20240830-093305-4D4KN2W.md",
-    "Référence Biblique/Ancien testament/6 - Premiers livres prophétiques/24 - Jérémie.sync-conflict-20240830-093311-4D4KN2W.md",
-    "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.sync-conflict-20240830-093305-4D4KN2W.md",
-    "Lieux historiques/Régions géographiques/Judée.sync-conflict-20240830-093306-4D4KN2W.md",
-    "Lieux historiques/Régions géographiques/Nil.sync-conflict-20240830-093311-4D4KN2W.md",
-    "Lieux historiques/Villes/Eqrôn.sync-conflict-20240830-093308-4D4KN2W.md",
-    "Personnages/Ancien testament/Ennemis d'Israel/Baal.sync-conflict-20240830-093309-4D4KN2W.md",
-    "Lieux historiques/Villes/Magdala.sync-conflict-20240830-093307-4D4KN2W.md",
-    "Lieux historiques/Régions géographiques/Jourdain.sync-conflict-20240830-093306-4D4KN2W.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/7&8 - Corinthiens.sync-conflict-20240830-093309-4D4KN2W.md",
     "Personnages/~syncthing~Shamma.sync-conflict-20240830-093306-4D4KN2W.md.tmp",
     "Référence Biblique/Ancien testament/3 - Premiers livres historiques/~syncthing~9&10 - Samuel.sync-conflict-20240830-093306-4D4KN2W.md.tmp",
     "Lieux historiques/Royaumes/~syncthing~Ethiopie.sync-conflict-20240830-093306-4D4KN2W.md.tmp",
     "Définitions/~syncthing~Parole de Dieu (Actes).sync-conflict-20240830-093306-4D4KN2W.md.tmp",
-    "Référence Biblique/Ancien testament/5 - Livres poétiques/~syncthing~19 - Psaumes.sync-conflict-20240830-093305-4D4KN2W.md.tmp",
-    "Lieux historiques/Régions géographiques/~syncthing~Judée.sync-conflict-20240830-093306-4D4KN2W.md.tmp",
-    "Lieux historiques/Régions géographiques/~syncthing~Samarie.sync-conflict-20240830-093310-4D4KN2W.md.tmp",
     "Lieux historiques/Images/Ethiopie.png",
     "Lieux historiques/Images/Mer morte.png",
     "Lieux historiques/Images/Elam.png",
-    "Lieux historiques/Images/Bande de Gaza.png",
-    "Lieux historiques/Images/Gaza.png",
-    "Lieux historiques/Images/Shaaraïm.png",
-    "Lieux historiques/Images/Eqron.png",
-    "Lieux historiques/Images/Bethléem.png",
-    "Lieux historiques/Images/Magdala.png",
-    "Lieux historiques/Images/Perse.png"
+    "Lieux historiques/Images/Bande de Gaza.png"
   ]
 }

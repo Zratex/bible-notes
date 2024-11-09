@@ -2,6 +2,52 @@ Actes des [[Apôtres]]
 
 Petite note sur un terme précis : [[Parole de Dieu (Actes)|Parole de Dieu]]
 ## Chapitre 2
+### Versets 14 à 36
+Intitulé **[[Simon Pierre|Pierre]] témoin de [[Jésus|Jésus-Christ]]** par [[Bible#^358f23|BDS]]
+
+14) Alors [[Simon Pierre|Pierre]] se leva entouré des [[Apôtres|Onze]] et, d’une voix forte, il dit à la foule :
+    Ecoutez-moi bien, vous qui habitez la [[Judée|Judée]] et vous tous qui séjournez à [[Jérusalem]] : comprenez ce qui se passe.
+15) Certains d’entre vous insinuent que ces hommes seraient ivres. Pas du tout ! Il est à peine neuf heures du matin !
+16) Mais maintenant se réalise ce qu’avait annoncé le prophète [[Joël]] :
+17) [[29 - Joël#Chapitre 3|Voici ce qui arrivera, dit Dieu, ╵dans les jours de la fin des temps :]]
+    [[29 - Joël#Chapitre 3|Je répandrai de mon Esprit ╵sur tout le monde.]]
+    [[29 - Joël#Chapitre 3|Vos fils, vos filles prophétiseront]]
+    [[29 - Joël#Chapitre 3|vos jeunes gens, par des visions,]]
+    [[29 - Joël#Chapitre 3|vos vieillards, par des songes,]]
+    [[29 - Joël#Chapitre 3|recevront des révélations.]]
+18) [[29 - Joël#Chapitre 3|Oui, sur mes serviteurs, ╵comme sur mes servantes,]]
+	[[29 - Joël#Chapitre 3|je répandrai de mon Esprit, ╵en ces jours-là :]]
+	[[29 - Joël#Chapitre 3|ils prophétiseront.]]
+19) [[29 - Joël#Chapitre 3|Je ferai des miracles ╵et là-haut, dans le ciel,]]
+	[[29 - Joël|et ici-bas sur terre, ╵des signes prodigieux :]]
+	[[29 - Joël#Chapitre 3|du sang, du feu ╵et des colonnes de fumée.]]
+20) [[29 - Joël#Chapitre 3|Et le soleil s’obscurcira,]]
+	[[29 - Joël#Chapitre 3|la lune deviendra de sang,]]
+	[[29 - Joël#Chapitre 3|avant la venue du jour du Seigneur,]]
+	[[29 - Joël#Chapitre 3|ce jour grand et glorieux.]]
+21) [[29 - Joël#Chapitre 3|Alors seront sauvés ╵tous ceux qui invoqueront le Seigneur.]]
+22) Ecoutez bien, [[Israël|Israélites]], ce que [[Simon Pierre|j]]’ai à vous dire. Vous le savez tous : [[Jésus]] de [[Nazareth]] – cet homme dont [[Dieu]] vous a montré qu’[[Dieu|il]] [[Jésus|l]]’approuvait en accomplissant, par son moyen, au milieu de vous des miracles, des signes et des actes extraordinaires –
+23) a été livré entre vos mains conformément à la décision que [[Dieu]] avait prise et au projet qu’[[Dieu|il]] avait établi d’avance. Et vous, vous [[Jésus|l]]’avez tué en le faisant crucifier par des hommes qui ne connaissent pas [[Dieu]].
+24) Mais [[Dieu]] a brisé les liens de la mort : [[Dieu|il]] [[Jésus|l]]’a ressuscité, car il était impossible que la mort [[Jésus|le]] retienne captif.
+25) En effet, [[David]] dit de lui :
+    [[19 - Psaumes#Chapitre 16|Je garde constamment ╵les yeux fixés sur le Seigneur,]]
+    [[19 - Psaumes#Chapitre 16|car il est à ma droite, ╵pour que je ne vacille pas.]]
+26) [[19 - Psaumes#Chapitre 16|Voilà pourquoi mon cœur ╵est dans la joie ╵et mes paroles ╵débordent d’allégresse.]]
+	[[19 - Psaumes|Même mon corps reposera ╵dans l’espérance ;]]
+27) [[19 - Psaumes|tu ne m’abandonneras pas ╵dans le séjour des morts,]]
+	[[19 - Psaumes#Chapitre 16|tu ne laisseras pas ╵un homme qui t’est dévoué ╵se décomposer dans la tombe.]]
+28) [[19 - Psaumes#Chapitre 16|Car tu m’as fait connaître ╵le chemin de la vie,]]
+	[[19 - Psaumes#Chapitre 16|et tu me combleras ╵de joie en ta présence.]]
+29) [[Simon Pierre|Mes]] frères, permettez-moi de vous parler franchement : le patriarche [[David]] est bel et bien mort et enterré. Son [[Sion|tombeau]] existe encore près d’ici aujourd’hui.
+30) Mais [[David|il]] était prophète et il savait que [[Dieu]] lui avait promis, sous la foi du serment, de faire asseoir sur son trône un de [[David]] descendants.
+31) Ainsi [[David|il]] a entrevu par avance la résurrection du [[Jésus|Messie]], et c’est d’elle qu’[[David|il]] parle en disant que [[Dieu]] ne l’abandonnera pas dans le séjour des morts et qu’[[Dieu|il]] ne laissera pas [[David|son]] corps se décomposer.
+32) [[Dieu]] a ressuscité ce [[Jésus]] dont [[Simon Pierre|je]] parle : nous en sommes tous témoins.
+33) Ensuite, [[Jésus|il]] a été élevé pour siéger à la droite de [[Dieu]]. Et maintenant, comme [[Dieu]] l’a promis, il a reçu du [[Dieu|Père]] l’[[Saint-Esprit|Esprit Saint]] et il l’a répandu sur nous. C’est là ce que vous voyez et entendez.
+34) En effet, [[David]], lui, n’est pas monté au ciel, mais il a dit :
+    [[19 - Psaumes#Chapitre 110|Le Seigneur a dit à mon Seigneur :]]
+    [[19 - Psaumes#Chapitre 110|Viens siéger à ma droite]] 
+35) [[19 - Psaumes#Chapitre 110|jusqu’à ce que j’aie mis ╵tes ennemis ╵à terre sous tes pieds.]]
+36) Voici donc ce que tout le peuple d’[[Israël]] doit savoir avec une entière certitude : [[Dieu]] a fait Seigneur et Messie ce [[Jésus]] que vous avez crucifié.
 ### Versets 37 à 47
 Intitulé **Les premiers croyants** par [[Bible#^358f23|BDS]]
 
@@ -106,3 +152,38 @@ Intitulé **L'appel du Macédonien** par [[Bible#^358f23|BDS]]
 8) Ils traversèrent donc la Mysie et descendirent au port de Troas.
 9) Là, [[Paul]] eut une vision au cours de la nuit : un Macédonien se tenait devant lui et le suppliait : Viens en Macédoine et secours-nous !
 10) A la suite de cette vision de [[Paul]], nous avons aussitôt cherché à nous rendre en Macédoine, car nous avions la certitude que [[Dieu]] lui-même nous appelait à y annoncer l’[[Note sur l'évangile|Evangile]].
+### Versets 13 à 40
+Intitulé **A Philippes** par [[Bible#^358f23|BDS]]
+
+13) Le jour du sabbat, nous nous sommes rendus hors de l’enceinte de la cité, au bord d’une rivière où nous supposions que les Juifs se réunissaient d’habitude pour la prière. Quelques femmes étaient rassemblées là. Nous nous sommes assis avec elles et nous leur avons parlé.
+14) Il y avait parmi elles une marchande d’étoffes de pourpre, nommée [[Lydie]], originaire de la ville de [[Thyatire]], une non-Juive qui adorait [[Dieu]]. Elle écoutait, et le [[Dieu|Seigneur]] ouvrit son cœur, de sorte qu’elle fut attentive à ce que disait [[Paul]].
+15) [[Lydie|Elle]] fut baptisée avec sa famille et ceux qui en dépendaient, puis elle nous invita en disant : Puisque vous avez jugé que j’ai foi au [[Jésus|Seigneur]], venez loger chez moi.
+    Et, avec insistance, elle nous pressa d’accepter.
+16) Un jour que nous nous rendions au lieu de prière, une esclave vint à notre rencontre. Elle avait en elle un esprit de divination, et ses prédictions procuraient de grands revenus à ses maîtres.
+17) Elle se mit à nous suivre, [[Paul]] et nous, en criant à tue-tête : Ces hommes-là sont des serviteurs du [[Dieu|Dieu très-haut]] : ils viennent vous annoncer comment être sauvés !
+18) Elle fit cela plusieurs jours de suite.
+    A la fin, [[Paul]], excédé, se retourna et dit à l’esprit : Je t’ordonne, au nom de [[Jésus|Jésus-Christ]], de sortir de cette femme !
+    A l’instant même, il la quitta.
+19) Lorsque les maîtres de l’esclave s’aperçurent que leurs espoirs de gains s’étaient évanouis, ils se saisirent de [[Paul]] et de [[Silas|Silas]] et les traînèrent sur la grand-place de la ville devant les autorités.
+20) Ils les présentèrent aux magistrats [[Romains|romains]] et portèrent plainte contre eux en ces termes : Ces gens-là sont des Juifs qui jettent le trouble dans notre ville.
+21) Ils cherchent à introduire ici des coutumes que nous, qui sommes [[Romains|Romains]], n’avons le droit ni d’accepter, ni de pratiquer !
+22) La foule se souleva contre eux. Alors, les magistrats leur firent arracher les vêtements et ordonnèrent qu’on les batte à coups de bâton.
+23) On les roua de coups et on les jeta en prison. Le gardien reçut l’ordre de les surveiller de près.
+24) Pour se conformer à la consigne, il les enferma dans le cachot le plus reculé et leur attacha les pieds dans des blocs de bois.
+25) Vers le milieu de la nuit, [[Paul]] et [[Silas|Silas]] priaient et chantaient les louanges de [[Dieu]]. Les autres prisonniers les écoutaient.
+26) Tout à coup, un violent tremblement de terre secoua la prison jusque dans ses fondations. Toutes les portes s’ouvrirent à l’instant même et les chaînes de tous les prisonniers se détachèrent.
+27) Le gardien se réveilla en sursaut et vit les portes de la prison grand ouvertes : alors il tira son épée et allait se tuer, car il croyait que ses prisonniers s’étaient enfuis.
+28) Mais [[Paul]] lui cria de toutes ses forces : Arrête ! Ne te fais pas de mal, nous sommes tous là.
+29) Le gardien demanda des torches, se précipita dans le cachot et, tremblant de peur, se jeta aux pieds de [[Paul]] et de [[Silas|Silas]].
+30) Puis il les fit sortir et leur demanda :
+    Messieurs, que dois-je faire pour être sauvé  ?
+31) – Crois au [[Jésus|Seigneur Jésus]], lui répondirent-ils, et tu seras sauvé ; il en est de même pour toi et pour les tiens.
+32) Et ils lui annoncèrent la [[Bible|Parole]] de [[Dieu]], à lui et à tous ceux qui vivaient dans sa maison.
+33) A l’heure même, en pleine nuit, le gardien les prit avec lui et lava leurs blessures. Il fut baptisé aussitôt après, lui et tous les siens.
+34) Puis il fit monter [[Paul]] et [[Silas|Silas]] dans sa maison, leur offrit un repas, et se réjouit, avec toute sa famille, d’avoir cru en [[Dieu]].
+35) Quand il fit jour, les magistrats envoyèrent les huissiers à la prison pour faire dire au gardien : Relâche ces hommes !
+36) Celui-ci courut annoncer la nouvelle à [[Paul]] : Les magistrats m’ont donné ordre de vous remettre en liberté. Vous pouvez donc sortir maintenant et aller en paix.
+37) Mais [[Paul]] dit aux huissiers : Comment ! Ils nous ont fait fouetter en public, sans jugement régulier, alors que nous sommes citoyens [[Romains|romains]], puis ils nous ont jetés en prison. Et maintenant, ils voudraient se débarrasser de nous en cachette. Il n’en est pas question ! Qu’ils viennent eux-mêmes nous remettre en liberté.
+38) Les huissiers rapportèrent ces paroles aux magistrats. Ceux-ci, en apprenant qu’ils avaient affaire à des citoyens [[Romains|romains]], furent pris de peur.
+39) Ils vinrent en personne leur présenter des excuses, leur rendirent la liberté et leur demandèrent de bien vouloir quitter la [[Philippes (ville)|ville]].
+40) A leur sortie de prison, [[Paul]] et [[Silas|Silas]] se rendirent chez [[Lydie]], où ils retrouvèrent tous les frères, ils les encouragèrent, puis ils reprirent la route.

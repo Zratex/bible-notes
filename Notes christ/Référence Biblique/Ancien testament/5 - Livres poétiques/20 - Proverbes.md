@@ -2,6 +2,7 @@ Composition du livre :
 - **Chapitres 1-9 :** Introduction de la , écrit par [[Salomon]]
 - **Chapitres 10 :** Leçons sur de l'expérience
 - **Chapitres 25-29 :** Entourage de [[Salomon]] et Ezéchias qui ont rédigés ça
+
 Cependant, ils ne sont pas pour autant regroupés par thématique. Et il faut du discernement pour les comprendre.
 ## Chapitre 1
 ### Versets 1 à 7
@@ -65,3 +66,62 @@ Intitulé **Le festin de la Sagesse** par [[Bible#^358f23|BDS]]
 4) « Approchez donc, ╵vous qui n’avez pas d’expérience ! » A ceux qui manquent de bon sens, elle déclare :
 5) « Venez et mangez de mon pain et buvez du vin que j’ai préparé.
 6) Vous qui êtes inexpérimentés détournez-vous de ce chemin et vous vivrez. Dirigez-vous sur la voie de l’intelligence.
+## Chapitre 19
+1) Mieux vaut un pauvre qui se conduit de façon intègre
+   qu’un homme aux paroles tordues, car celui-ci est un insensé.
+2) Dans un désir irréfléchi, il n’y a rien de bon
+   et précipiter ses pas fait commettre une faute.
+3) La sottise d’un homme cause son naufrage,
+   alors il s’en prend à l’[[Dieu|Eternel]].
+4) Si vous êtes riche, vos amis se multiplient,
+   mais le pauvre est abandonné par son compagnon.
+5) Le faux témoin ne restera pas impuni,
+   qui répand le mensonge n’échappera pas au châtiment.
+6) Beaucoup briguent la faveur d’un homme important,
+   et tous sont amis de qui fait des cadeaux.
+7) Le pauvre est détesté par tous ses frères,
+   à plus forte raison ses compagnons s’écartent-ils de lui.
+   En vain il les poursuit de ses paroles : ils ne sont déjà plus là.
+8) Acquérir du bon sens, c’est s’aimer soi-même,
+   cultiver le discernement fera trouver le bonheur.
+9) Le faux témoin ne restera pas impuni,
+   qui profère le mensonge périra.
+10) Il ne convient pas qu’un insensé mène une vie de plaisirs,
+    et moins encore qu’un esclave commande aux princes.
+11) La raison de l’homme lui fait retenir sa colère,
+    et sa gloire c’est de passer par-dessus l’offense.
+12) La colère du roi est pareille au rugissement d’un jeune lion,
+    mais sa faveur est comme la rosée sur l’herbe.
+13) Un fils insensé fait le malheur de son père,
+    et les récriminations d’une femme sont comme une gouttière qui ne cesse de couler.
+14) Un homme peut hériter maison et richesse de ses pères,
+    mais seul l’[[Dieu|Eternel]] peut lui donner une femme intelligente.
+15) La paresse plonge dans la torpeur,
+    et l’indolent souffrira de la faim.
+16) Suivre les préceptes, c’est veiller sur sa propre vie ;
+    ne pas veiller sur sa conduite, conduit à la mort.
+17) Qui a pitié du pauvre, prête à l’[[Dieu|Eternel]]
+    qui le lui revaudra.
+18) Corrige ton fils tant qu’il y a encore de l’espoir,
+    mais ne va pas jusqu’à désirer sa mort.
+19) L’homme qui se met dans une grande colère paiera une amende,
+    si tu l’en exemptes, tu l’incites à recommencer.
+20) Ecoute les conseils et accepte d’être repris et, finalement, tu deviendras [[Sagesse|sage]].
+21) Un homme forme de nombreux projets,
+    mais c’est le dessein de l’[[Dieu|Eternel]] qui se réalise.
+22) Ce qu’on apprécie chez un homme, c’est sa bonté,
+    et mieux vaut un pauvre qu’un menteur.
+23) Craindre l’[[Dieu|Eternel]] mène à la vie,
+    et, comblé, on passe même la nuit à l’abri du malheur.
+24) Le paresseux plonge sa main dans le plat,
+    mais il ne la ramène pas à sa bouche.
+25) Punis le moqueur, et celui qui est inexpérimenté acquerra de l’intelligence,
+    mais reprends simplement l’homme intelligent : il comprendra la leçon.
+26) Qui maltraite son père et chasse sa mère
+    est un fils qui se couvre de honte et d’opprobre.
+27) Mon fils, si tu cesses d’écouter l’instruction,
+    tu te détourneras des paroles de la connaissance.
+28) Qui se moque du droit est un témoin qui ne vaut rien ;
+    la bouche des méchants avale le mal.
+29) Les condamnations sont prêtes pour les moqueurs,
+    et les coups de bâton pour l’échine des insensés.
