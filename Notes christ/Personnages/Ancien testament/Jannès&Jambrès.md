@@ -1,0 +1,1 @@
+**Jannès** et **Jambrès** étaient les sorciers du [[Pharaon]] du temps des 10 plaies d'[[Egypte]]. Ils ont donc plusieurs fois fait face à [[Moïse]]

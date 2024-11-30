@@ -1,0 +1,1 @@
+Joseph, nommé **Barnabé** ou **Barnabas** serait le chrétien qui a introduit [[Paul]] auprès des autres [[Apôtres]]

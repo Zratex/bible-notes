@@ -1,3 +1,18 @@
+## Chapitre 4
+Intitulé **L’appel à la fidélité à l’[[Dieu|Eternel]]** par [[Bible#^358f23|BDS]]
+### Versets 15 à 24
+Intitulé **L'interdiction des idoles** par [[Bible#^358f23|BDS]]
+
+15) [[Israël|Vous]] prendrez bien garde à vous-mêmes, car [[Israël|vous]] n’avez vu aucune forme le jour où l’[[Dieu|Eternel]] vous a parlé au [[Mont Sinaï|mont Horeb]] du milieu du feu.
+16) N’allez pas vous corrompre en vous fabriquant des idoles, des figures ou des représentations quelconques, d’après le modèle d’un homme ou d’une femme,
+17) ou le modèle de quelque animal vivant sur la terre, celui d’un oiseau volant dans le ciel
+18) ou celui d’un animal qui se meut à ras de terre ou encore d’un poisson nageant dans les eaux plus bas que la terre.
+19) N’allez pas lever les yeux vers le ciel et regarder le soleil, la lune, les étoiles et tous les astres du ciel, pour vous laisser entraîner à [[Israël|vous]] prosterner devant eux et leur rendre un culte. L’[[Dieu|Eternel]], votre [[Dieu]], a laissé cela à tous les peuples qui sont sous tous les cieux.
+20) Mais vous, l’[[Dieu|Eternel]] est allé vous chercher, il vous a arrachés à cette fournaise de fer qu’était l’[[Egypte]] pour faire de vous son peuple, celui qui lui appartient, comme vous l’êtes à présent.
+21) L’[[Dieu|Eternel]] s’est mis en colère contre [[Moïse|moi]] à cause de [[Israël|vous]] et [[Dieu|il]] a déclaré avec serment que [[Moïse|je]] ne franchirais pas le [[Jourdain|Jourdain]] et que [[Moïse|je]] n’entrerais pas dans le bon pays que l’[[Dieu|Eternel]], votre [[Dieu]], vous donne à posséder.
+22) Car [[Moïse|je]] vais mourir dans cet endroit-ci sans passer le [[Jourdain]], mais vous, vous le franchirez et vous prendrez possession de ce bon pays.
+23) Gardez-vous d’oublier l’alliance que l’[[Dieu|Eternel]] votre [[Dieu]] a conclue avec [[Israël|vous]] et de [[Israël|vous]] fabriquer une idole représentant quoi que ce soit, contrairement aux ordres de l’[[Dieu|Eternel]] votre [[Dieu]].
+24) Car l’[[Dieu|Eternel]] votre [[Dieu]] est comme un feu qui consume, un [[Dieu]] qui ne tolère aucun rival.
 ## Chapitre 8
 Intitulé **L'éducation d'[[Israël]] au désert**
 
@@ -12,7 +27,26 @@ Intitulé **L'éducation d'[[Israël]] au désert**
 9) où tu ne mangeras pas parcimonieusement, un pays où tu ne manqueras de rien, dont les roches contiennent du fer, et où tu pourras extraire du cuivre des montagnes.
 10) Ainsi, tu jouiras de ces biens, tu mangeras à satiété, et tu béniras l’[[Dieu|Eternel]] ton [[Dieu]] pour le bon pays qu’il t’aura donné.
 
+## Chapitre 9
+Intitulé **[[Israël]] est un peuple rebelle** par [[Bible#^358f23|BDS]]
+### Versets 7 à 21
+Intitulé **Le veau d'or** par [[Bible#^358f23|BDS]]
 
+7) Rappelle-[[Israël|toi]] – et ne l’oublie jamais – combien [[Israël|tu]] as provoqué la colère de l’[[Dieu|Eternel]] ton [[Dieu]] dans le désert : depuis le jour où [[Israël|vous]] êtes sortis du pays d’[[Egypte]] jusqu’à votre arrivée en ce lieu-ci, vous n’avez cessé de lui désobéir.
+8) Souvenez-vous en particulier à quel point vous avez irrité l’[[Dieu|Eternel]] au [[Mont Sinaï|mont Horeb]] : [[Dieu|il]] s’est emporté contre vous au point de vouloir [[Dieu|vous]] exterminer.
+9) Quand [[Moïse|j]]’étais monté sur [[Mont Sinaï|la montagne]] pour recevoir les tablettes de pierre de l’alliance que l’[[Dieu|Eternel]] avait conclue avec vous, [[Moïse|je]] suis resté là-haut durant quarante jours et quarante nuits sans manger ni boire.
+10) L’[[Dieu|Eternel]] m’a remis les deux tablettes de pierre écrites du doigt de [[Dieu]]. Elles portaient toutes les paroles qu’[[Dieu|il]] vous avait adressées du milieu du feu sur [[Mont Sinaï|la montagne]] le jour où [[Israël|vous]] étiez tous assemblés.
+11) Au bout de quarante jours et quarante nuits, l’[[Dieu|Eternel]] [[Moïse|m]]’a remis les deux tablettes de pierre de l’alliance
+12) et [[Dieu|il]] [[Moïse|m]]’a dit : « Va, redescends vite de [[Mont Sinaï|cette montagne]], car [[Israël|ton peuple]] que [[Moïse|tu]] as conduit hors d’[[Egypte]] s’est corrompu ; [[Israël|ils]] se sont vite détournés de la voie que [[Dieu|je]] leur avais commandé de suivre. [[Israël|Ils]] se sont fabriqué une idole de métal fondu. »
+13) Puis [[Dieu|il]] a ajouté : « [[Dieu|J]]’ai observé [[Israël|ce peuple]] : c’est un peuple rebelle.
+14) Laisse-[[Dieu|moi]] faire : [[Dieu|je]] vais les détruire et [[Dieu|j]]’effacerai tout souvenir d’eux de dessous le ciel, mais [[Dieu|je]] ferai de [[Moïse|toi]] le père d’un peuple plus puissant et plus nombreux que celui-ci. »
+15) Alors, [[Moïse|je]] m’en suis retourné, [[Moïse|je]] suis redescendu de [[Mont Sinaï|la montagne]] qui était encore tout embrasée, tenant des deux mains les deux tablettes de l’alliance.
+16) [[Moïse|J]]’ai regardé et [[Moïse|j]]’ai constaté qu’en effet [[Israël|vous]] aviez commis un péché contre l’[[Dieu|Eternel]], votre [[Dieu]] : [[Israël|vous]] vous étiez fabriqué une idole de métal fondu en forme de veau, [[Israël|vous]] vous étiez vite détournés de la voie que l’[[Dieu|Eternel]] vous avait prescrite.
+17) Alors [[Moïse|j]]’ai pris les deux tablettes, et [[Moïse|je]] les ai jetées à terre des deux mains et les ai brisées sous vos yeux.
+18) Ensuite, [[Moïse|je]] me suis effondré devant l’[[Dieu|Eternel]] et suis resté comme la première fois sans manger ni boire durant quarante jours et quarante nuits à cause du grand péché que [[Israël|vous]] aviez commis en faisant ce que l’[[Dieu|Eternel]] juge mauvais et par lequel vous aviez provoqué sa colère.
+19) Car [[Moïse|je]] redoutais cette colère, cette fureur, dont l’[[Dieu|Eternel]] était animé contre vous au point de vouloir vous détruire. Mais cette fois encore, l’[[Dieu|Eternel]] [[Moïse|m]]’a exaucé.
+20) [[Dieu|Il]] était aussi très irrité contre [[Aaron]], au point de vouloir le détruire, et [[Moïse|j]]’ai aussi prié pour [[Aaron]].
+21) Quant à l’objet de [[Israël|votre]] péché, ce veau que [[Israël|vous]] aviez fabriqué, [[Moïse|je]] l’ai pris et [[Moïse|je]] l’ai jeté au feu, [[Moïse|je]] l’ai mis entièrement en pièces, puis [[Moïse|je]] l’ai broyé jusqu’à le réduire en poussière et [[Moïse|j]]’ai dispersé cette poussière dans le torrent qui descend de [[Mont Sinaï|la montagne]].
 ## Chapitre 11
 ### Versets 16 à 21
 Intitulé **Se garder de l'idolâtrie** par [[Bible#^358f23|BDS]]

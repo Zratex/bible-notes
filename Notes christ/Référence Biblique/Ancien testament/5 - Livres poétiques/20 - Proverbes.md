@@ -26,6 +26,33 @@ Intitulé **Pourquoi rechercher la [[Sagesse (note)]]** par [[Bible#^358f23|BDS]
 4) si tu la recherches comme de l’argent, si tu creuses pour la trouver comme pour découvrir des trésors,
 5) alors tu comprendras ce qu’est [[Sagesse (note)#Point de départ de la Sagesse|craindre]] l’[[Dieu|Eternel]], et tu apprendras à connaître [[Dieu]].
 6) Car l’[[Dieu|Eternel]] donne la sagesse, et ce sont ses paroles qui procurent la connaissance et l’intelligence.
+## Chapitre 3
+### Versets 1 à 12
+Intitulé **La confiance en l’[[Dieu|Eternel]]** par [[Bible#^358f23|BDS]]
+1) Mon fils, n’oublie pas l’éducation que je t’ai donnée
+   et que ton cœur retienne mes préceptes,
+2) car ils rallongeront tes jours et ajouteront des années à la durée de ta vie
+   et t’assureront le bonheur.
+3) Que l’amour et la fidélité ne te fassent jamais défaut ;
+   attache-les autour de ton cou, grave-les sur les tablettes de ton cœur,
+4) et tu obtiendras la faveur de [[Dieu]] et des hommes,
+   tu auras la réputation d’être un homme de bon sens.
+5) Mets ta confiance en l’[[Dieu|Eternel]] de tout ton cœur,
+   et ne te repose pas sur ta propre intelligence.
+6) Tiens compte de [[Dieu|lui]] pour tout ce que tu entreprends,
+   et [[Dieu|il]] te conduira sur le droit chemin.
+7) Ne te prends pas pour un sage,
+   crains l’[[Dieu|Eternel]] et détourne-toi du mal.
+8) Ce sera une bonne médecine qui t’assurera la santé du corps
+   et la vitalité de tout ton être.
+9) Honore l’[[Dieu|Eternel]] en lui donnant une part de tes biens
+   et en lui offrant les prémices de tous tes revenus.
+10) Alors tes greniers regorgeront de nourriture
+    et tes cuves déborderont de vin.
+11) Mon fils, si l’[[Dieu|Eternel]] te corrige, n’en fais pas fi,
+    s’[[Dieu|il]] te reprend, ne t’impatiente pas,
+12) car c’est celui qu’[[Dieu|il]] aime que l’[[Dieu|Eternel]] reprend,
+    agissant avec lui comme un père avec l’enfant qu’il chérit.
 ## Chapitre 4
 Intitulé **Une opération de séduction** par [[Bible#^358f23|BDS]]
 

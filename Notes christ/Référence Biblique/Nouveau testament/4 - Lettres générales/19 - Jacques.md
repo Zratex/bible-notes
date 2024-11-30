@@ -1,6 +1,7 @@
+Rédigé par [[Jacques (épistolier)]]
 ## Chapitre 1
 ### Salutations
-1) [[Jacques]], serviteur de [[Dieu]] et du [[Jésus|Seigneur Jésus-Christ]], salue les [[Jacob|douzes tribus]] dispersées du peuple de Dieu
+1) [[Jacques (apôtre)]], serviteur de [[Dieu]] et du [[Jésus|Seigneur Jésus-Christ]], salue les [[Jacob|douzes tribus]] dispersées du peuple de Dieu
 ### Versets 5 à 8
 Intitulé **La [[Sagesse (note)]] et la prière**
 

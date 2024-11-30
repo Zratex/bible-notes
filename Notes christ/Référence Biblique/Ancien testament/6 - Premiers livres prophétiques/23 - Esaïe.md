@@ -247,6 +247,70 @@ Intitulé **Le quatrième chant du Serviteur** par [[Bible#^358f23|BDS]]
     et s’est laissé compter ╵parmi les malfaiteurs,
     car [[Jésus|il]] a pris sur lui ╵les fautes d’un grand nombre,
     [[Jésus|il]] a intercédé ╵en faveur des coupables.
+## Chapitre 55
+Intitulé **L'offre et l'appel universels - Le festin gratuit** par [[Bible#^358f23|BDS]]
+
+1) Vous tous qui avez soif,
+   venez chercher de l’eau !
+   Et même vous ╵qui n’avez pas d’argent,
+   venez, achetez et mangez !
+   Venez acheter sans argent, ╵oui, sans paiement,
+   du vin, du lait  !
+2) Pourquoi dépensez-vous ╵votre argent pour payer
+   ce qui ne nourrit pas ?
+   Pourquoi travaillez-vous
+   pour une nourriture ╵qui ne rassasie pas ?
+   Ecoutez, oui, écoutez-[[Dieu|moi]],
+   alors vous mangerez ╵ce qui est bon,
+   vous vous délecterez ╵d’aliments savoureux.
+3) Tendez l’oreille, ╵venez à [[Dieu|moi]],
+   écoutez-moi ╵et vous vivrez.
+   Car [[Dieu|je]] conclurai avec vous ╵une alliance éternelle,
+   j’accomplirai pour vous ╵avec fidélité ╵les œuvres bienveillantes ╵que j’ai promises à [[David]].
+4) Voici, [[Dieu|j]]’ai fait de [[David|lui]] ╵un témoin pour les peuples,
+   un chef pour commander aux peuples.
+5) Oui, tu appelleras ╵une nation que tu ne connais pas ;
+   une nation qui ne te connaît pas ╵va accourir vers toi ;
+   c’est à cause de [[Dieu|moi,╵moi, l’Eternel]] ton [[Dieu]],
+   moi, le [[Dieu|Saint]] d’[[Israël]],
+   qui te couvre de gloire.
+6) Tournez-vous donc vers l’[[Dieu|Eternel]],
+   tant qu’on peut le trouver.
+   Adressez-vous à [[Dieu|lui]]
+   tant qu’[[Dieu|il]] est proche !
+7) Que le coupable ╵abandonne sa voie,
+   et l’homme malfaisant ╵ses mauvaises pensées !
+   Et qu’il revienne à l’[[Dieu|Eternel]]
+   qui aura compassion de lui,
+   à notre [[Dieu]]
+   qui lui accordera ╵un pardon généreux.
+8) Car vos pensées ╵ne sont pas [[Dieu|mes]] pensées,
+   et vos voies ne sont pas les voies ╵que [[Dieu|j]]’ai prescrites,
+   déclare l’[[Dieu|Eternel]] ;
+9) autant le ciel est élevé ╵au-dessus de la terre,
+   autant les voies que [[Dieu|je]] vous ai prescrites ╵sont élevées au-dessus de vos voies,
+   et autant mes pensées ╵sont élevées loin au-dessus des vôtres.
+10) Or, la pluie et la neige ╵qui descendent du ciel
+    n’y retournent jamais
+    sans avoir arrosé ╵et fécondé la terre,
+    sans avoir fait germer ╵les graines qui s’y trouvent,
+    sans fournir au semeur ╵le grain qu’il doit semer,
+    et sans donner du pain ╵à tous ceux qui le mangent.
+11) Il en sera de même ╵de la [[Bible|parole]] que [[Dieu|j]]’ai prononcée :
+    [[Bible|elle]] ne reviendra ╵jamais vers [[Dieu|moi]] à vide,
+    sans avoir accompli ╵ce que [[Dieu|je]] désirais
+    et sans avoir atteint le but
+    que [[Dieu|je]] [[Bible|lui]] ai fixé.
+12) Car vous sortirez pleins de joie,
+    vous serez conduits dans la paix.
+    Montagnes et collines
+    éclateront en cris de joie ╵devant vos pas.
+    Tous les arbres des champs ╵applaudiront.
+13) Où croissent les broussailles ╵poussera le cyprès,
+    et au lieu des orties ╵croîtra le myrte.
+    Ce sera un titre de gloire ╵pour l’[[Dieu|Eternel]]
+    et un signe perpétuel
+    qui ne disparaîtra jamais.
 ## Chapitre 58
 Intitulé **La gloire de Sion rachetée** par [[Bible#^358f23|BDS]], sous titré **Le vrai [[Jeûne]]**
 

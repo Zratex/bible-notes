@@ -184,6 +184,30 @@ Intitulé **[[Melchisédek]] bénit [[Abraham|Abram]]** par [[Bible#^358f23|BDS]
 22) [[Abraham|Abram]] lui répondit : Je jure à main levée vers l’[[Dieu|Eternel]], le [[Dieu]] très-haut qui a formé le ciel et la terre,
 23) que [[Abraham|je]] ne prendrai rien de ce qui t’appartient, pas même un fil ou une courroie de soulier, pour que tu ne puisses pas dire : « J’ai enrichi [[Abraham|Abram]]. »
 24) [[Abraham|Je]] ne veux rien si ce n’est ce qu’ont mangé les jeunes gens. De plus, la part des hommes qui m’ont accompagné, Aner, Eshkol et Mamré, eux, ils la prendront.
+## Chapitre 15
+Intitulé **L'alliance de [[Dieu]] avec [[Abraham|Abram]]** par [[Bible#^358f23|BDS]]
+
+1) Après ces événements, l’[[Dieu|Eternel]] s’adressa à [[Abraham|Abram]] dans une vision : Ne crains rien, [[Abraham|Abram]], lui dit l’[[Dieu|Eternel]], je suis ton bouclier protecteur, ta récompense sera très grande.
+2) [[Abraham|Abram]] répondit : [[Dieu|Eternel Dieu]], que me donnerais-tu ? Je n’ai pas d’enfant, et c’est [[Eliézer|Eliézer]] de [[Damas]] qui héritera tous mes biens.
+3) [[Dieu|Tu]] ne [[Abraham|m]]’as pas donné de descendance, poursuivit-il, et c’est un serviteur attaché à mon service qui sera mon héritier.
+4) Alors l’[[Dieu|Eternel]] lui parla en ces termes : Non, [[Eliézer|cet homme-là]] ne sera pas [[Abraham|ton]] héritier : c’est celui qui naîtra de toi qui héritera de toi.
+5) Puis [[Dieu]] le fit sortir de [[Abraham|sa]] tente et lui dit : Contemple le ciel et compte les étoiles, si tu en es capable. Et il ajouta : Tes descendants seront aussi nombreux qu’elles.
+6) [[Abraham|Abram]] fit confiance à l’[[Dieu|Eternel]] et, à cause de cela, l’[[Dieu|Eternel]] le déclara juste.
+7) [[Dieu|Il]] lui dit : Je suis l’[[Dieu|Eternel]] qui t’ai fait sortir d’Our des [[Chaldée|Chaldéens]] pour te donner ce pays en possession.
+8) – [[Seigneur|Seigneur Dieu]], répondit [[Abraham|Abram]], comment aurai-je la certitude que je le posséderai ?
+9) [[Dieu]] [[Abraham|lui]] dit : Va chercher une génisse, une chèvre et un bélier ayant chacun trois ans, une tourterelle et un jeune pigeon.
+10) [[Abraham|Abram]] alla prendre ces animaux, les coupa tous en deux par le milieu, excepté les oiseaux, et pour chacun d’eux disposa les deux moitiés face à face.
+11) Des oiseaux de proie fondirent sur les bêtes mortes, mais [[Abraham|Abram]] les chassa.
+12) Au moment où le soleil se couchait, une grande torpeur s’empara d’[[Abraham|Abram]] et, en même temps, l’angoisse le saisit dans une profonde obscurité.
+13) Le [[Dieu|Seigneur]] lui dit : Sache bien que tes descendants vivront en étrangers dans un pays qui ne leur appartiendra pas, on en fera des esclaves et on les opprimera pendant quatre cents ans.
+14) Mais [[Dieu|j]]’exécuterai mon jugement contre la nation qui les aura réduits en esclavage et ils quitteront le pays chargés de grandes richesses.
+15) Quant à [[Abraham|toi]], tu rejoindras en paix tes ancêtres, et tu seras enterré après une heureuse vieillesse.
+16) C’est seulement à la quatrième génération que tes descendants reviendront ici car, jusqu’à présent, les [[Amorrites|Amoréens]] n’ont pas encore mis le comble à leurs crimes.
+17) Lorsque le soleil fut couché et que l’obscurité fut totale, un tourbillon de fumée et une torche de feu passèrent soudain entre les animaux partagés.
+18) Ce jour-là, l’[[Dieu|Eternel]] fit alliance avec [[Abraham|Abram]] et lui dit : Je promets de donner à ta descendance tout ce pays, depuis le fleuve d’[[Egypte]] jusqu’au grand fleuve, l’[[Tigre & Euphrate|Euphrate]],
+19) le pays des Qéniens, des Qeniziens, des Qadmonéens,
+20) des [[Hittites|Hittites]], des Phéréziens, des Rephaïm,
+21) des [[Amorrites|Amoréens]], des [[Canaan|Cananéens]], des Guirgasiens et des Yebousiens.
 ## Chapitre 26
 ### Versets 1 à 11
 Intitulé **[[Isaac]] à [[Guérar]]**

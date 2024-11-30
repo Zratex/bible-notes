@@ -134,8 +134,8 @@ Intitulé **Le [[Dieu]] souverain est juste** par [[Bible#^358f23|BDS]]
 ### Versets 1 à 13
 Il n'y a pas d'intitulé, mais c'est bien la version [[Bible#^358f23|BDS]]
 
-1) Frères et sœurs, je souhaite de tout cœur que les [[Israël|Israélites]] soient sauvés, et c’est ce que je demande instamment à [[Dieu]] dans mes prières.
-2) Car je leur rends ce témoignage : [[Israël|ils]] ont un zèle ardent pour [[Dieu]], mais il leur manque le discernement.
+1) Frères et sœurs, [[Paul|je]] souhaite de tout cœur que les [[Israël|Israélites]] soient sauvés, et c’est ce que [[Paul|je]] demande instamment à [[Dieu]] dans mes prières.
+2) Car [[Paul|je]] leur rends ce témoignage : [[Israël|ils]] ont un zèle ardent pour [[Dieu]], mais il leur manque le discernement.
 3) En méconnaissant la manière dont [[Dieu]] déclare les hommes justes et en cherchant à être déclarés justes par leurs propres moyens, [[Israël|ils]] ne se sont pas soumis à [[Dieu]] en acceptant le moyen par lequel [[Dieu|il]] nous déclare justes.
 4) Car [[Jésus|Christ]] a mis fin au régime de la [[La Loi de Dieu|Loi]] pour que tous ceux qui croient soient déclarés justes.
 5) Voici, en effet, comment [[Moïse|Moïse]] définit la justice qui procède de la [[La Loi de Dieu|Loi]] : *Celui qui appliquera ces commandements vivra grâce à cela.*

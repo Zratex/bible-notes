@@ -24,7 +24,7 @@ Intitulé **Ministère de [[Jésus]] en [[Galilée]]** par [[Bible#^358f23|BDS]]
 16) Un jour, comme [[Jésus|il]] longeait le lac de [[Galilée]], il vit [[Simon Pierre|Simon]] et [[André]], son frère. Ils lançaient un filet dans le lac, car ils étaient pêcheurs.
 17) [[Jésus]] leur dit : **Suivez-moi et je ferai de vous des pêcheurs d’hommes.**
 18) Ils abandonnèrent aussitôt leurs filets et [[Jésus|le]] suivirent.
-19) Poursuivant son chemin, il vit, un peu plus loin, [[Jacques]], fils de [[Zébédée]], et [[Jean]] son frère. Eux aussi étaient dans leur bateau et réparaient les filets.
+19) Poursuivant son chemin, il vit, un peu plus loin, [[Jacques (apôtre)|Jacques]], fils de [[Zébédée]], et [[Jean]] son frère. Eux aussi étaient dans leur bateau et réparaient les filets.
 20) Aussitôt, [[Jésus|il]] les appela. Ils laissèrent [[Zébédée]], leur père, dans le bateau, avec ses ouvriers, et suivirent [[Jésus]].
 ## Chapitre 7
 ### Versets 1 à 23

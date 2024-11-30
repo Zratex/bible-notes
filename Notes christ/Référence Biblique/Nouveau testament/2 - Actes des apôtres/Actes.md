@@ -138,10 +138,128 @@ Intitulé **La prédication de Philippe et le don de l'Esprit en [[Samarie]]** p
 Après Simon :
 
 25) [[Simon Pierre|Pierre]] et [[Jean]] continuèrent à rendre témoignage à [[Jésus|Jésus-Christ]] en annonçant la [[Parole de Dieu (Actes)|Parole du Seigneur]], puis ils retournèrent à [[Jérusalem]], tout en annonçant l’[[Nouveau testament#^94270d|Evangile]] dans un grand nombre de villages samaritains.
+## Chapitre 13
+### Versets 13 à 43
+Intitulé **La prédication de [[Paul]] dans la synagogue d'[[Antioche de Pisidie]]** par [[Bible#^358f23|BDS]]
 
+13) [[Paul]] et ses compagnons reprirent la mer à [[Paphos|Paphos]] et arrivèrent à [[Pergé|Pergé]] en [[Pamphylie|Pamphylie]]. Là, [[Marc|Jean-Marc]] les abandonna et retourna à [[Jérusalem|Jérusalem]].
+14) Quant à eux, ils quittèrent [[Pergé|Pergé]] et continuèrent leur route jusqu’à [[Antioche de Pisidie|Antioche]] en [[Pisidie|Pisidie]]. Là, ils se rendirent à la synagogue le jour du sabbat et s’assirent.
+15) Après qu’on eut fait la lecture dans la [[La Loi de Dieu|Loi]] et les prophètes, les chefs de la synagogue leur firent dire : Frères, si vous avez quelques mots à adresser à la communauté, vous avez la parole.
+16) Alors [[Paul|Paul]] se leva ; d’un geste de la main il demanda le silence et dit :
+    [[Israël|Israélites]] et vous tous qui craignez [[Dieu]], écoutez-moi !
+17) Le [[Dieu]] de notre peuple d’[[Israël]] a choisi nos ancêtres. Il a fait grandir le peuple pendant son séjour en [[Egypte]]. Ensuite, en déployant sa puissance, [[Dieu|il]] [[Israël|l]]’en a fait sortir.
+18) Pendant quarante ans environ, [[Dieu|il]] [[Israël|l]]’a supporté dans le désert.
+19) Après avoir détruit sept peuplades dans le pays de [[Canaan|Canaan]], [[Dieu|il]] a donné leur territoire à son peuple.
+20) Tout cela a duré environ 450 ans.
+    Après cela, il a donné à nos ancêtres des chefs jusqu’à l’époque du prophète Samuel.
+21) Alors le peuple a demandé un roi et [[Dieu]] leur a donné [[Saül|Saül]], fils de Qish, de la tribu de [[Benjamin|Benjamin]]. Celui-ci a régné sur eux pendant quarante ans.
+22) Mais [[Dieu]] l’a rejeté et leur a choisi pour roi [[David]]. C’est à lui qu’il a rendu ce témoignage :
+    *En [[David]], fils d’[[Isaï|Isaï]], j’ai trouvé un homme qui correspond à mes désirs*, il accomplira toute ma volonté.
+23) Or, voici que [[Dieu]] vient d’accorder à [[Israël|Israël]] un [[Jésus|Sauveur]] parmi les descendants de [[David]], comme il l’avait promis, et ce [[Seigneur et non seulement sauveur|Sauveur]], c’est [[Jésus]].
+24) Avant sa venue, [[Jean Baptiste|Jean]] avait appelé tous les [[Israël|Israélites]] à se faire baptiser en signe d’un profond changement.
+25) Arrivé au terme de sa vie, [[Jean Baptiste|Jean]] disait encore : « Qui pensez-vous que je suis ? Je ne suis pas celui que vous attendiez ! Non ! [[Jésus|il]] vient après moi, et je ne mérite pas de dénouer ses sandales. »
+26) Mes frères, vous qui êtes les descendants d’[[Abraham|Abraham]] et vous qui craignez [[Dieu]] et qui êtes présents parmi nous, c’est à nous que [[Dieu]] a envoyé cette [[Jésus|Parole]] de salut.
+27) En effet, les habitants de [[Jérusalem|Jérusalem]] et leurs chefs n’ont compris ni qui était [[Jésus|Jésus]], ni les paroles des prophètes qui sont lues chaque jour de sabbat. Et voici qu’en condamnant [[Jésus|Jésus]], ils ont accompli ces prophéties.
+28) Ils n’ont trouvé chez [[Jésus|lui]] aucune raison de le condamner à mort, et pourtant, ils ont demandé à [[Pilate|Pilate]] de le faire exécuter.
+29) Après avoir réalisé tout ce que les [[Ancien Testament|Ecritures]] avaient prédit à [[Jésus|son]] sujet, ils l’ont descendu de la croix et l’ont déposé dans un tombeau.
+30) Mais [[Dieu]] [[Jésus|l]]’a ressuscité.
+31) Pendant de nombreux jours, [[Jésus|Jésus]] s’est montré à ceux qui étaient montés avec lui de la [[Galilée|Galilée]] jusqu’à [[Jérusalem|Jérusalem]] et qui sont maintenant ses témoins devant le peuple.
+32) Et nous, nous vous annonçons que la promesse que [[Dieu]] avait faite à nos ancêtres,
+33) [[Dieu|il]] l’a pleinement accomplie pour nous, qui sommes leurs descendants, en ressuscitant [[Jésus]], selon ce qui est écrit au Psaume deux :
+    *[[19 - Psaumes#Chapitre 2|Tu es mon Fils ;]]*
+    *[[19 - Psaumes#Chapitre 2|aujourd’hui, ╵je fais de toi mon enfant.]]*
+34) [[Dieu]] avait annoncé celui qui ne devait pas retourner à la pourriture. C’est ce qu’il avait dit en ces termes :
+    *[[23 - Esaïe#Chapitre 55|Je vous accorderai]]*
+    *[[23 - Esaïe#Chapitre 55|les bénédictions saintes et sûres ╵que j’ai promises à David.]]*
+35) Dans un autre passage, [[Dieu|il]] est dit encore :
+    *[[19 - Psaumes#Chapitre 16|Tu ne laisseras pas ╵un homme qui t’est dévoué ╵se décomposer dans la tombe.]]*
+36) Pourtant, [[David]], après avoir en son temps contribué à l’accomplissement du plan de [[Dieu]], est mort et a été enterré aux côtés de ses ancêtres. [[David|Il]] a donc connu la décomposition.
+37) Mais [[Jésus|celui]] que [[Dieu]] a ressuscité ne l’a pas connue.
+38) Sachez-le donc, mes frères, c’est grâce à [[Jésus|lui]] que le pardon des péchés vous est annoncé ;
+39) c’est par lui que tout homme qui croit est acquitté de toutes les fautes dont vous ne pouviez pas être acquittés par la [[La Loi de Dieu|Loi]] de [[Moïse|Moïse]].
+40) Veillez donc à ce qu’il n’arrive pas ce qu’ont dit les prophètes :
+41) *[[35 - Habakuk#Versets 5 à 11|Regardez, hommes pleins de mépris,]]*
+	*[[35 - Habakuk#Versets 5 à 11|soyez dans l’étonnement, ╵et disparaissez,]]*
+	*[[35 - Habakuk#Versets 5 à 11|car je vais accomplir ╵en votre temps une œuvre,]]*
+	*[[35 - Habakuk#Versets 5 à 11|une œuvre que vous ne croiriez pas ╵si l’on vous en parlait.]]*
+42) A la sortie, on leur demanda de reparler du même sujet le sabbat suivant.
+43) Quand l’assemblée se fut dispersée, beaucoup de Juifs et de non-Juifs convertis au judaïsme et qui adoraient [[Dieu]] suivirent [[Paul|Paul]] et [[Barnabas|Barnabas]]. Ceux-ci s’entretenaient avec eux et les encourageaient à rester attachés à la grâce de [[Dieu]].
+## Chapitre 14
+### Versets 1 à 7
+Intitulé **à [[Iconium]]** par [[Bible#^358f23|BDS]]
 
+1) A [[Iconium|Iconium]], [[Paul|Paul]] et [[Barnabas]] se rendirent aussi à la synagogue des Juifs et y parlèrent de telle sorte que beaucoup de Juifs et de non-Juifs devinrent croyants.
+2) Mais les Juifs qui avaient refusé de croire suscitèrent chez les non-Juifs de l’hostilité et de la malveillance à l’égard des frères.
+3) Néanmoins, [[Paul|Paul]] et [[Barnabas]] prolongèrent leur séjour dans cette ville ; ils parlaient avec assurance, car ils étaient confiants dans le [[Jésus|Seigneur]] et celui-ci confirmait la vérité du message de sa grâce, en leur donnant d’accomplir des signes miraculeux et des prodiges.
+4) La population de [[Iconium|la ville]] se partagea en deux camps : les uns prenaient parti pour les Juifs, les autres pour les apôtres.
+5) Les non-Juifs et les Juifs, avec leurs chefs, s’apprêtaient à maltraiter les apôtres et à les lapider,
+6) mais ceux-ci, dès qu’ils en furent informés, cherchèrent refuge dans les villes de la [[Lycaonie]] : [[Lystres|Lystres]], [[Derbé]] et les environs.
+7) Là aussi, ils annoncèrent l’[[Note sur l'évangile|Evangile]].
+### Versets 8 à 20
+Intitulé **à [[Lystres]]** par [[Bible#^358f23|BDS]]
 
+8) A [[Lystres]] se trouvait un homme paralysé des pieds : infirme de naissance, il n’avait jamais pu marcher.
+9) Il écoutait les paroles de [[Paul|Paul]]. L’apôtre fixa les yeux sur lui et, voyant qu’il avait la foi pour être sauvé,
+10) [[Paul|il]] lui commanda d’une voix forte : Lève-toi et tiens-toi droit sur tes pieds !
+    D’un bond, il fut debout et se mit à marcher.
+11) Quand ils virent ce que [[Paul|Paul]] avait fait, les nombreux assistants crièrent dans leur langue, le lycaonien : Les dieux ont pris forme humaine et ils sont descendus parmi nous.
+12) Ils appelaient [[Barnabas]] [[Zeus]], et [[Paul]] [[Hermès]] parce qu’[[Paul|il]] était le porte-parole.
+13) Le prêtre du dieu [[Zeus]], dont le temple se trouvait à l’entrée de [[Lystres|la ville]], fit amener devant les portes de la cité des taureaux ornés de guirlandes et de fleurs. Déjà il s’apprêtait, avec la foule, à les offrir en sacrifice.
+14) Quand les apôtres [[Barnabas]] et [[Paul|Paul]] l’apprirent, ils déchirèrent leurs vêtements en signe de consternation et se précipitèrent au milieu de la foule en s’écriant :
+15) Amis, que faites-vous là ? Nous ne sommes que des hommes, nous aussi, semblables à vous. Nous sommes venus vous annoncer une bonne nouvelle : c’est qu’il vous faut abandonner ces idoles inutiles pour vous tourner vers le [[Dieu]] vivant, qui a créé le ciel, la terre, la mer et tout ce qui s’y trouve.
+16) Dans les siècles passés, ce [[Dieu]] a laissé tous les peuples suivre leurs propres chemins.
+17) Pourtant, [[Dieu|il]] n’a jamais cessé de leur donner des témoignages de sa bonté, car [[Dieu|il]] vous envoie du ciel la pluie et des fruits abondants en leur saison. Oui, c’est [[Dieu|lui]] qui vous donne de la nourriture en abondance et comble votre cœur de joie.
+18) Même en leur parlant ainsi, ils eurent beaucoup de mal à dissuader la foule de leur offrir un sacrifice.
+19) Des Juifs arrivèrent d’[[Antioche de Pisidie|Antioche]] et d’[[Iconium|Iconium]] et ils parvinrent à retourner le peuple contre eux : ils lapidèrent [[Paul|Paul]], puis ils le traînèrent hors de [[Lystres|la ville]], croyant qu’il était mort.
+20) Mais quand les disciples se rassemblèrent autour de [[Paul|lui]], [[Paul|il]] se releva et rentra dans [[Lystres|la ville]]. Le lendemain, [[Paul|il]] partit avec [[Barnabas]] pour [[Derbé]].
+## Chapitre 15
+### Versets 1 à 35
+Intitulé **Controverse sur la circoncision des non-Juifs** par [[Bible#^358f23|BDS]]
 
+1) Quelques hommes venus de [[Royaume de Judée|Judée]] arrivèrent à [[Antioche|Antioche]]. Ils enseignaient les frères, en disant : Si vous ne vous faites pas circoncire comme [[Moïse]] l’a prescrit, vous ne pouvez pas être sauvés.
+2) Il en résulta un conflit et de vives discussions avec [[Paul|Paul]] et [[Barnabas|Barnabas]].
+   Finalement, il fut décidé que [[Paul|Paul]] et [[Barnabas|Barnabas]] monteraient à [[Jérusalem|Jérusalem]] avec quelques autres frères pour parler de ce problème avec les apôtres et les responsables de l’[[Eglise|Eglise]].
+3) L’[[Eglise|Eglise]] pourvut à leur voyage. Ils traversèrent la [[Phénécie|Phénicie]] et la [[Samarie|Samarie]], racontant comment les non-Juifs se tournaient vers [[Dieu]]. Et tous les frères en eurent beaucoup de joie.
+4) A leur arrivée à [[Jérusalem|Jérusalem]], ils furent accueillis par l’[[Eglise|Eglise]], les apôtres et les responsables ; ils leur rapportèrent tout ce que [[Dieu|Dieu]] avait fait avec eux.
+5) Mais quelques anciens membres du parti des pharisiens qui étaient devenus des croyants intervinrent pour soutenir qu’il fallait absolument circoncire les non-Juifs et leur ordonner d’observer la [[La Loi de Dieu|Loi]] de [[Moïse]].
+6) Les apôtres et les responsables de l’[[Eglise|Eglise]] se réunirent pour examiner la question.
+7) Après une longue discussion, [[Simon Pierre|Pierre]] se leva et leur dit :
+	Mes frères, comme vous le savez, il y a déjà longtemps que [[Dieu|Dieu]] m’a choisi parmi vous pour que j’annonce l’[[Note sur l'évangile|Evangile]] aux non-Juifs, pour qu’ils l’entendent et deviennent croyants.
+8) [[Dieu|Dieu]], qui lit dans le secret des cœurs, a témoigné qu’il les acceptait, en leur donnant lui-même le [[Saint-Esprit|Saint-Esprit]] comme il l’avait fait pour nous.
+9) Entre eux et nous, [[Dieu|il]] n’a fait aucune différence puisque c’est par la foi qu’il a purifié leur cœur.
+10) Pourquoi donc maintenant vouloir provoquer [[Dieu|Dieu]] en imposant à ces disciples un joug que ni nos ancêtres ni nous n’avons jamais eu la force de porter ?
+11) Non ! Voici au contraire ce que nous croyons : c’est par la grâce du [[Seigneur et non seulement sauveur|Seigneur]] [[Jésus|Jésus]] que nous sommes sauvés, nous Juifs, de la même manière qu’eux.
+12) Alors tout le monde se tut pour écouter [[Barnabas|Barnabas]] et [[Paul|Paul]] raconter les signes miraculeux et les prodiges que [[Dieu]] avait accomplis par eux parmi les non-Juifs.
+13) Quand ils eurent fini de parler, [[Jacques (épistolier)|Jacques]] prit la parole et dit :
+    Maintenant, mes frères, écoutez-moi !
+14) [[Simon|Simon]] vous a rappelé comment, dès le début, [[Dieu]] lui-même est intervenu pour se choisir parmi les non-Juifs un peuple qui lui appartienne.
+15) Cela concorde avec les paroles des prophètes puisqu’il est écrit :
+16) *[[30 - Amos#Versets 11 à 15|Après cela, dit le Seigneur, je reviendrai, ╵et je rebâtirai ╵la hutte de David ╵qui est tombée en ruine,]]*
+    *[[30 - Amos#Versets 11 à 15|et j’en relèverai les ruines, ╵je la redresserai]]*
+17) *[[30 - Amos#Versets 11 à 15|Alors, le reste des hommes se tournera vers le Seigneur,]]*
+    *[[30 - Amos#Versets 11 à 15|des gens de tous les autres peuples ╵appelés de mon nom ╵comme ma possession.]]*
+18) *[[30 - Amos#Versets 11 à 15|Le Seigneur le déclare, ╵lui qui réalise ces choses]]* ╵qu’il avait préparées ╵de toute éternité.
+19) Voici donc ce que [[Jacques (épistolier)|je]] propose, continua [[Jacques (épistolier)|Jacques]] : ne créons pas de difficultés aux non-Juifs qui se convertissent à [[Dieu]].
+20) Ecrivons-leur simplement de ne pas manger de viande provenant des sacrifices offerts aux idoles, de se garder de toute inconduite sexuelle, et de ne consommer ni viande d’animaux étouffés ni sang.
+21) En effet, depuis les temps anciens, il y a dans chaque ville des prédicateurs qui enseignent la [[La Loi de Dieu|Loi]] de [[Moïse]], et chaque [[Sabbat|sabbat]], on la lit dans les synagogues.
+22) Alors les apôtres et les responsables, avec toute l’[[Eglise]], décidèrent de choisir parmi eux quelques délégués et de les envoyer à [[Antioche|Antioche]] avec [[Paul|Paul]] et [[Barnabas|Barnabas]]. Ils choisirent donc [[Jude|Jude]], surnommé [[Jude|Barsabbas]], et [[Silas|Silas]]. Tous deux jouissaient d’une grande estime parmi les frères.
+23) Voici la lettre qu’ils leur remirent :
+    Les apôtres et les responsables de l’[[Eglise|Eglise]] adressent leurs salutations aux frères d’origine païenne qui habitent [[Antioche|Antioche]], la [[Syrie]] et la [[Cilicie|Cilicie]].
+24) Nous avons appris que certains frères venus de chez nous ont jeté le trouble parmi vous et vous ont désorientés par leurs paroles. Or, ils n’avaient reçu aucun mandat de notre part.
+25) C’est pourquoi nous avons décidé à l’unanimité de choisir des délégués et de vous les envoyer avec nos chers frères [[Barnabas|Barnabas]] et [[Paul|Paul]]
+26) qui ont risqué leur vie pour la cause de notre [[Seigneur et non seulement sauveur|Seigneur]] [[Jésus|Jésus-Christ]].
+27) Nous vous envoyons donc [[Jude|Jude]] et [[Silas|Silas]], qui vous confirmeront de vive voix ce que nous vous écrivons.
+28) Car il nous a semblé bon, au [[Saint-Esprit|Saint-Esprit]] et à nous-mêmes, de ne pas vous imposer d’autres obligations que celles qui sont strictement nécessaires :
+29) ne consommez pas de viandes provenant des sacrifices aux idoles, du sang, des animaux étouffés, et gardez-vous de toute inconduite sexuelle. Si vous évitez tout cela, vous agirez bien.
+    Recevez nos salutations les plus fraternelles.
+30) On laissa partir les délégués et ils se rendirent à [[Antioche|Antioche]]. Ils réunirent l’ensemble des croyants et leur remirent la lettre.
+31) On la lut et tous se réjouirent de l’encouragement qu’ils y trouvaient.
+32) Comme [[Jude|Jude]] et [[Silas|Silas]] étaient eux-mêmes prophètes, ils parlèrent longuement aux frères pour les encourager et les affermir dans la foi.
+33) Ils restèrent là un certain temps, puis les frères leur souhaitèrent bon voyage et les laissèrent retourner auprès de ceux qui les avaient envoyés.
+34) [[Silas|Silas]] cependant trouva bon de rester à [[Antioche|Antioche]], de sorte que [[Jude|Jude]] rentra seul à [[Jérusalem]].
+35) [[Paul|Paul]] et [[Barnabas|Barnabas]] restèrent à [[Antioche|Antioche]], continuant avec beaucoup d’autres à enseigner et à annoncer la [[Bible|Parole]] du [[Jésus|Seigneur]].
+
+> Le verset 34 est apparemment absent ce plusieurs manuscrits
 ## Chapitre 16
 ### Versets 1 à 12
 Intitulé **L'appel du Macédonien** par [[Bible#^358f23|BDS]]

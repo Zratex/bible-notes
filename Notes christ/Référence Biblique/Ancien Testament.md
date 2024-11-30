@@ -1,7 +1,7 @@
-Textes bibliques principalement tourné sur l'histoire d'[[Israël]] (par extension des juifs) et sa relation avec [[Dieu]], avant la naissance de [[Jésus]].
+Textes bibliques principalement tourné sur l'histoire d'[[Israël]] (par extension des juifs) et sa relation avec [[Dieu]], avant la naissance de [[Jésus]] sur Terre.
 -> Donc il précède le [[Nouveau testament]]
 
-A comme appellation "la loi et les prophéties" dans le [[Nouveau testament]]
+A comme appellation "la loi et les prophéties" ou "les Ecritures" dans le [[Nouveau testament]]
 ## Composition
 - [[Genèse]]
 - Textes de [[La Loi de Dieu|la Loi]] :
@@ -42,8 +42,8 @@ A comme appellation "la loi et les prophéties" dans le [[Nouveau testament]]
 	- [[32 - Jonas|Jonas]]
 	- Michée
 	- Nahum
-	- Habakuk
+	- [[35 - Habakuk|Habakuk]]
 	- Sophonie
 	- Aggée
-	- Zacharie
+	- [[38 - Zacharie|Zacharie]]
 	- Malachie

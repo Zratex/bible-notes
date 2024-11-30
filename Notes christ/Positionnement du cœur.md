@@ -16,11 +16,11 @@ Rechercher d'être vu, approuvé par les autres.
 
 ### Conséquence : temps difficiles
 Tout ça mène à des moment dit difficiles
-[[15&16 - Timothée#Versets 1 à 5|2 Timothée 3:1-5]] -> temps difficiles sont liés au cœur des Hommes.
+[[15&16 - Timothée#Versets 1 à 9|2 Timothée 3:1-5]] -> temps difficiles sont liés au cœur des Hommes.
 Exemple :
 - Réchauffement climatique : Possible de prendre des mesures pour, mais personne ne fait réellement d'actions parce que ce n'est pas profitable
 
-[[15&16 - Timothée#Versets 1 à 5|2 Timothée 3:5]] : risque de contagion du comportement
+[[15&16 - Timothée#Versets 1 à 9|2 Timothée 3:5]] : risque de contagion du comportement
 
 ## Cas de la dîme
 La dîme est une loi où l'on doit donner 10%. Tradition datant de [[Abraham]] l'ayant fait envers une figure de [[Jésus|Christ]]. C'est la première forme de loi.

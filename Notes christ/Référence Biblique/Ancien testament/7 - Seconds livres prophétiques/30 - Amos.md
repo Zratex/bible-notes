@@ -24,3 +24,32 @@ Intitulé **Luxe et insouciance** par [[Bible#^358f23|BDS]]
    Mais la destruction qui menace ╵tout le royaume de [[Joseph]] ╵ne vous affecte pas.
 7) C’est pourquoi vous irez en tête ╵des déportés,
    et c’en sera fini ╵des banquets des fêtards ╵vautrés sur leurs divans.
+## Chapitre 9
+### Versets 11 à 15
+Intitulé **Le temps du renouveau** par [[Bible#^358f23|BDS]]
+
+11) En ce jour-là, ╵[[Dieu|moi, je]] relèverai ╵la hutte de [[David]] ╵qui tombe en ruine,
+    [[Dieu|j]]’en boucherai les brèches
+    et [[Dieu|j]]’en relèverai les ruines.
+    [[Dieu|Je]] la rebâtirai ╵pour qu’elle soit comme autrefois,
+12) afin qu’ils entrent ╵en possession
+    de ce qui restera ╵des [[Edom|Edomites]], ╵et des autres peuples
+    appelés de mon nom ╵comme ma possession,
+    l’[[Dieu|Eternel]] le déclare, ╵lui qui réalisera tout cela.
+13) Voici venir des jours,
+    l’[[Dieu|Eternel]] le déclare,
+    où celui qui laboure ╵suivra de près le moissonneur,
+    et où le vendangeur ╵suivra celui qui sème,
+    le vin nouveau ruissellera ╵de toutes les montagnes,
+    de toutes les collines ╵il coulera à flots.
+14) [[Dieu|Je]] ramènerai les captifs ╵de mon peuple [[Israël]]
+    et ils rebâtiront ╵les villes dévastées,
+    et les habiteront.
+    Ils planteront des vignes
+    et en boiront le vin,
+    ils établiront des jardins
+    et ils en mangeront les fruits.
+15) [[Dieu|Je]] les planterai sur leur terre
+    et ils ne seront plus ╵arrachés à la terre
+    que [[Dieu|je]] leur ai donnée,
+    dit l’[[Dieu|Eternel]], ton [[Dieu]].

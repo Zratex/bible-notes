@@ -1,0 +1,1 @@
+Les **Amoréens** ou Amorrites sont un peuple nomade surtout localisé en [[Syrie]] à l'époque d'[[Abraham]], ils ont été fondateurs ou du moindre manière ont participé à pas mal de cités états de la [[Mésopothamie]] qui devinrent des royaumes importants, comme [[Babylone]]

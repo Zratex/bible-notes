@@ -1,1 +1,1 @@
-Fils de [[Adam]] et [[Eve]]
+Fils aîné de [[Adam]] et [[Eve]], il a tué par orgueil son frère [[Abel]]

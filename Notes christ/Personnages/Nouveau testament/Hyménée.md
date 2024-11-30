@@ -1,0 +1,1 @@
+Apparemment prédicateur pendant un temps à l'église d'[[Ephèse]] et Troas avec [[Philète]], mentionné par [[Paul]] dans [[15&16 - Timothée#Versets 14 à 26|2 Timothée 2:17]]

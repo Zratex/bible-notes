@@ -1,4 +1,23 @@
 Lettre de [[Paul]] envers l'[[Eglise]] de [[Galatie]]
+## Chapitre 1
+### Versets 6 à 10
+Intitulé **Un seul [[Note sur l'évangile|Evangile]]** par [[Bible#^358f23|BDS]]
+
+6) [[Paul|Je]] m’étonne de la rapidité avec laquelle vous abandonnez celui qui vous a appelés par la grâce de [[Jésus|Christ]], pour vous tourner vers un autre Evangile.
+7) Comme s’il pouvait y avoir un autre [[Note sur l'évangile|Evangile]] ! Mais il y a des gens qui sèment le trouble parmi vous et qui veulent renverser l’[[Note sur l'évangile|Evangile]] de [[Jésus|Christ]].
+8) Eh bien, si quelqu’un – même nous, même un ange du ciel – vous annonçait un [[Note sur l'évangile|Evangile]] différent de celui que nous vous avons annoncé, qu’il soit maudit  !
+9) [[Paul|Je]] l’ai déjà dit et je le répète maintenant : si quelqu’un vous prêche un autre [[Note sur l'évangile|Evangile]] que celui que vous avez reçu, qu’il soit maudit !
+10) Qu’en pensez-vous maintenant ? Est-ce la faveur des hommes que [[Paul|je]] recherche ou celle de [[Dieu]] ? Mon désir est-il de plaire aux hommes ? Si je cherchais encore à plaire aux hommes, je ne serais pas serviteur de [[Jésus|Christ]].
+## Chapitre 3
+### Versets 1 à 6
+Intitulé **Par la [[La Loi de Dieu|Loi]] ou par la foi ?** par [[Bible#^358f23|BDS]]
+
+1) O [[Galatie|Galates]] insensés ! Qui vous a envoûtés ainsi ? Pourtant, la mort de [[Jésus|Jésus-Christ]] sur la croix a été clairement dépeinte à vos yeux.
+2) [[Paul|Je]] ne vous poserai qu’une seule question : A quel titre avez-vous reçu le [[Saint-Esprit|Saint-Esprit]] ? Est-ce parce que vous avez accompli la [[La Loi de Dieu|Loi]], ou parce que vous avez accueilli avec foi l’[[Note sur l'évangile|Evangile]] que vous avez entendu ?
+3) Manquez-vous à ce point d’intelligence ? Après avoir commencé par l’[[Saint-Esprit|Esprit]] de [[Dieu]], est-ce en comptant sur les ressources de l’homme livré à lui-même que vous allez parvenir à la perfection ?
+4) Avez-vous fait tant d’expériences pour rien ? Si encore, c’était pour rien !
+5) Voyons ! Lorsque [[Dieu]] vous donne son [[Saint-Esprit|Esprit]] et qu’il accomplit parmi vous des miracles, le fait-il parce que vous obéissez à la [[La Loi de Dieu|Loi]] ou parce que vous accueillez avec foi l’[[Note sur l'évangile|Evangile]] que vous avez entendu,
+6) à la manière d’[[Abraham|Abraham]] dont l’[[Ancien Testament|Ecriture]] déclare : *[[Genèse#Chapitre 15|Il a eu confiance en Dieu et Dieu, en portant sa foi à son crédit, l’a déclaré juste]]* ?
 ## Chapitre 5
 ### Versets 13 à 26
 Intitulé **L'Esprit et l'homme livré à lui même** par [[Bible#^358f23|BDS]]

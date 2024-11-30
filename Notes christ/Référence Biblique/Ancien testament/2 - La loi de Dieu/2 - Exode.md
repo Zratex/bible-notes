@@ -37,6 +37,16 @@ Intitulé **La traversée de la mer** par [[Bible#^358f23|BDS]]
 
 13) [[Moïse]] leur répondit : N’ayez pas peur ! Tenez-vous là où vous êtes et regardez ! Vous verrez comment l’[[Dieu|Eternel]] vous délivrera en ce jour ; ces [[Egypte|Egyptiens]] que vous voyez aujourd’hui, vous ne les reverrez plus jamais.
 14) L’[[Dieu|Eternel]] combattra pour vous, et vous, tenez-vous tranquilles.
+## Chapitre 19
+### Versets 10 à 15
+Intitulé **La purification rituelle** par [[Bible#^358f23|BDS]]
+
+10) L’[[Dieu|Eternel]] dit à [[Moïse]] : Va trouver le peuple et demande-lui d’accomplir aujourd’hui et demain des rites de purification et de laver leurs vêtements.
+11) Qu’ils se tiennent prêts pour après-demain, car ce jour-là, [[Dieu|je]] descendrai sur le [[Mont Sinaï|mont Sinaï]] à la vue de tout le peuple.
+12) [[Moïse|Tu]] leur fixeras des limites autour de [[Mont Sinaï|la montagne]] et [[Moïse|tu]] leur donneras cet avertissement : « Gardez-vous bien de gravir [[Mont Sinaï|cette montagne]] et même de vous en approcher ; quiconque s’en approchera sera puni de mort.
+13) Si quelqu’un transgresse cet ordre, on ne le touchera pas, mais on le lapidera ou on le percera de flèches. Qu’il s’agisse d’une bête ou d’un homme, il ne restera pas en vie. C’est seulement lorsque la corne du bélier sonnera que certains monteront sur [[Mont Sinaï|la montagne]]. »
+14) [[Moïse]] redescendit de la montagne vers le peuple pour lui faire accomplir les rites de purification. Ils lavèrent aussi leurs vêtements.
+15) Puis [[Moïse|il]] leur dit : Tenez-vous prêts pour après-demain. Abstenez-vous d’ici-là de tout rapport sexuel.
 ## Chapitre 33
 ### Versets 12 à 23
 Intitulé **[[Moïse]] prie l'[[Dieu|Eternel]] d'accompagner son peuple** par [[Bible#^358f23|BDS]]

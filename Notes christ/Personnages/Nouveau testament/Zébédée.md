@@ -1,1 +1,1 @@
-Père de [[Jacques]] et [[Jean]]
+Père de [[Jacques (apôtre)]] et [[Jean]]

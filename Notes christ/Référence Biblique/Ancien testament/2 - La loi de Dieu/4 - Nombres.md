@@ -12,6 +12,26 @@ Intitulé **[[La nuée]] : signe de la présence de [[Dieu]]** par [[Bible#^358f
 21) Il arrivait même qu’[[La nuée|elle]] ne s’arrête que durant une nuit : lorsqu’elle s’élevait le matin, ils levaient le camp ; ou bien elle s’élevait après un jour et une nuit, aussitôt ils partaient.
 22) Qu’[[La nuée|elle]] demeure deux jours ou un mois ou plus longtemps encore sur le tabernacle, les Israélites restaient campés sans partir ; ils levaient seulement le camp lorsqu’elle s’élevait.
 23) C’est sur l’ordre de l’[[Dieu|Eternel]] qu’ils dressaient le camp et le levaient. Ainsi ils observaient ce que l’[[Dieu|Eternel]] indiquait, conformément aux instructions qu’il leur avait données par l’intermédiaire de [[Moïse]].
+## Chapitre 16
+Intitulé **Les nouvelles révoltes** par [[Bible#^358f23|BDS]]
+### Versets 1 à 15
+Intitulé **La révolte de Qoré** par [[Bible#^358f23|BDS]]
+
+1) [[Qoré|Qoré]], un [[Lévi|lévite]], fils de Yitsehar, de la famille des Qehatites, conspira avec trois [[Ruben|Rubénites]] : Datan, Abiram, fils d’Eliab, et On, fils de Péleth.
+2) Ils se soulevèrent contre [[Moïse|Moïse]] avec deux cent cinquante autres [[Israël|Israélites]], des chefs de la communauté, des membres du conseil, des hommes considérés.
+3) Ils s’attroupèrent autour de [[Moïse|Moïse]] et d’[[Aaron|Aaron]] et leur lancèrent : C’en est assez ! C’est la communauté tout entière qui est sainte et l’[[Dieu|Eternel]] est au milieu de nous tous. De quel droit vous mettez-vous au-dessus de la communauté de l’[[Dieu|Eternel]] ?
+4) En entendant ces reproches, [[Moïse|Moïse]] se jeta face contre terre.
+5) Puis [[Moïse|il]] s’adressa à [[Qoré|Qoré]] et à toute sa troupe en disant : Demain matin, l’[[Dieu|Eternel]] fera connaître celui qui lui appartient et qui est saint et peut venir en sa présence : il fera approcher de lui celui qu’il choisira.
+6) Voilà donc ce que vous ferez : Que [[Qoré|Qoré]] et tous ses partisans prennent des encensoirs,
+7) qu’ils les remplissent demain de charbons embrasés, et y répandent de l’encens devant l’[[Dieu|Eternel]]. C’est celui que l’[[Dieu|Eternel]] choisira, qui est saint. C’en est assez, descendants de [[Lévi|Lévi]] !
+8) Puis [[Moïse|Moïse]] ajouta à l’adresse de [[Qoré|Qoré]] : Ecoutez-moi bien, vous les [[Lévi|lévites]] !
+9) Ne vous suffit-il pas d’avoir été mis à part du reste de la communauté d’[[Israël|Israël]] par le [[Dieu|Dieu]] d’[[Israël]] qui vous permet de l’approcher pour faire le service du tabernacle de l’[[Dieu|Eternel]] et pour vous tenir devant la communauté en accomplissant un ministère en sa faveur ?
+10) Il vous permet, à [[Qoré|toi]] et à tous tes frères [[Lévi|lévites]], de vous approcher de lui, et vous réclamez en plus le sacerdoce !
+11) C’est pour cela que toi et toute ta troupe, vous vous liguez contre l’[[Dieu|Eternel]] ! Car en fait, qu’est [[Aaron|Aaron]] pour que vous protestiez contre lui ?
+12) Puis [[Moïse|Moïse]] envoya chercher Datan et Abiram, fils d’Eliab. Mais ceux-ci lui répondirent : Nous n’irons pas !
+13) Ne te suffit-il pas de nous avoir fait quitter un pays ruisselant de lait et de miel pour nous faire mourir au désert ? Faut-il encore que tu t’ériges en dictateur au-dessus de nous ?
+14) Ce n’est pas dans un pays ruisselant de lait et de miel que tu nous as conduits ! Ce ne sont pas des champs et des vignes que tu nous as donnés en possession ! Prends-tu tous ces gens-là pour des aveugles ? Non, nous n’irons pas !
+15) [[Moïse|Moïse]] entra dans une violente colère et il dit à l’[[Dieu|Eternel]] : N’accepte pas leur offrande ! [[Moïse|Je]] n’ai jamais rien pris de ce qui leur appartenait, pas même un âne, et je n’ai fait de tort à aucun d’eux.
 ## Chapitre 21
 ### Versets 4 à 9
 Intitulé **Le Serpent de Bronze** par [[Bible#^358f23|BDS]]
