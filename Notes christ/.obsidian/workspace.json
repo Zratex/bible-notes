@@ -11,14 +11,10 @@
             "id": "3662375e9ede6a53",
             "type": "leaf",
             "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Temps d'apostasie.md",
-                "mode": "source",
-                "source": false
-              },
-              "icon": "lucide-file",
-              "title": "Temps d'apostasie"
+              "type": "graph",
+              "state": {},
+              "icon": "lucide-git-fork",
+              "title": "Graph view"
             }
           }
         ]
@@ -52,7 +48,7 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "",
+                "query": "eliab",
                 "matchingCase": false,
                 "explainSearch": false,
                 "collapseAll": false,
@@ -176,37 +172,40 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "412ad4b021e16018",
+  "active": "3662375e9ede6a53",
   "lastOpenFiles": [
-    "Référence Biblique/Nouveau testament/4 - Lettres générales/18 - Hébreux.md",
     "Temps d'apostasie.md",
+    "Référence Biblique/Ancien testament/2 - La loi de Dieu/4 - Nombres.md",
+    "Personnages/Ancien testament/Datan.md",
+    "Personnages/Ancien testament/Abiram.md",
+    "Personnages/Ancien testament/Eliab (pallouite).md",
+    "Personnages/Ancien testament/Eliab (fils d'Isaï).md",
+    "Personnages/Ancien testament/Famille d'Abraham/Fils de Jacob/Petits-enfants de Jacob/Pallou.md",
+    "Personnages/Ancien testament/Famille d'Abraham/Fils de Jacob/Ruben.md",
+    "Personnages/Ancien testament/Famille d'Abraham/Fils de Jacob/Petits-enfants de Jacob",
+    "Personnages/Ancien testament/Famille d'Abraham/Léa.md",
+    "Personnages/Ancien testament/Famille d'Abraham/Jacob.md",
+    "Personnages/Ancien testament/Abinadab.md",
+    "Référence Biblique/Ancien testament/3 - Premiers livres historiques/9&10 - Samuel.md",
+    "Personnages/Ancien testament/Isaï.md",
+    "Personnages/Ancien testament/Qoré.md",
+    "Référence Biblique/Nouveau testament/5 - La fin/Apocalypse.md",
+    "Personnages/Ancien testament/Balaam.md",
+    "Personnages/Nouveau testament/Antipas.md",
+    "Lieux historiques/Villes/Pergame.md",
+    "Lieux historiques/Images/Pergame.PNG",
+    "Référence Biblique/Nouveau testament/4 - Lettres générales/20&21 - Pierre.md",
+    "Référence Biblique/Ancien testament/5 - Livres poétiques/20 - Proverbes.md",
+    "Personnages/Ancien testament/Noé.md",
+    "Dieu n'a pas changé.md",
+    "~syncthing~Dieu n'a pas changé.md.tmp",
+    "Référence Biblique/Nouveau testament/4 - Lettres générales/18 - Hébreux.md",
     "Référence Biblique/Ancien testament/2 - La loi de Dieu/5 - Deutéronome.md",
     "Référence Biblique/Ancien testament/7 - Seconds livres prophétiques/37 - Aggée.md",
     "Personnages/Ancien testament/Prophètes/Aggée.md",
-    "Référence Biblique/Ancien Testament.md",
-    "Personnages/Ancien testament/Caïn.md",
-    "Personnages/Abel.md",
-    "Définitions/Sion.md",
-    "Lieux historiques/Royaumes/Israël.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/6 - Romains.md",
-    "Lieux historiques/Royaumes/Egypte.md",
-    "Référence Biblique/Ancien testament/2 - La loi de Dieu/2 - Exode.md",
-    "Personnages/Ancien testament/Esaü.md",
-    "Personnages/Ancien testament/Famille d'Abraham/Jacob.md",
-    "Référence Biblique/Ancien testament/5 - Livres poétiques/20 - Proverbes.md",
-    "Personnages/Nouveau testament/Disciples de Jésus/Apôtres.md",
-    "Personnages/Nouveau testament/Disciples de Jésus/Thomas.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/9 - Galates.md",
-    "Référence Biblique/Ancien testament/1 - Le commencement/Genèse.md",
-    "Lieux historiques/Royaumes/Hittites.md",
     "Lieux historiques/Images/Hittites.png",
     "Lieux historiques/Images/Hittites.png.crdownload",
-    "Lieux historiques/Royaumes/Amorrites.md",
-    "Personnages/Ancien testament/Esdras.md",
-    "Personnages/Ancien testament/Eliézer.md",
     "~syncthing~Relation.md.tmp",
-    "Référence Biblique/Nouveau testament/2 - Actes des apôtres/Actes.md",
-    "Lieux historiques/Régions géographiques/Cilicie.md",
     "Lieux historiques/Images/Cilicia.png",
     "Lieux historiques/Images/Cilicia.png.crdownload",
     "Lieux historiques/Images/Thessalonique.PNG",
@@ -219,10 +218,7 @@
     "Lieux historiques/Images/Pamphylie.png",
     "Lieux historiques/Images/Pamphylie.png.crdownload",
     "Lieux historiques/Images/Paphos.PNG",
-    "Lieux historiques/Images/Antioche.PNG",
     "Lieux historiques/Images/Pisidie.png.crdownload",
-    "Personnages/Nouveau testament/Disciples de Jésus/~syncthing~André.sync-conflict-20241109-195717-4D4KN2W.md.tmp",
-    "~syncthing~Vie équilibré.sync-conflict-20241109-195712-4D4KN2W.md.tmp",
-    "Référence Biblique/Ancien testament/5 - Livres poétiques/~syncthing~19 - Psaumes.sync-conflict-20241109-195712-4D4KN2W.md.tmp"
+    "Personnages/Nouveau testament/Disciples de Jésus/~syncthing~André.sync-conflict-20241109-195717-4D4KN2W.md.tmp"
   ]
 }

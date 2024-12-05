@@ -15,9 +15,9 @@ Intitulé **[[La nuée]] : signe de la présence de [[Dieu]]** par [[Bible#^358f
 ## Chapitre 16
 Intitulé **Les nouvelles révoltes** par [[Bible#^358f23|BDS]]
 ### Versets 1 à 15
-Intitulé **La révolte de Qoré** par [[Bible#^358f23|BDS]]
+Intitulé **La révolte de [[Qoré]]** par [[Bible#^358f23|BDS]]
 
-1) [[Qoré|Qoré]], un [[Lévi|lévite]], fils de Yitsehar, de la famille des Qehatites, conspira avec trois [[Ruben|Rubénites]] : Datan, Abiram, fils d’Eliab, et On, fils de Péleth.
+1) [[Qoré|Qoré]], un [[Lévi|lévite]], fils de Yitsehar, de la famille des Qehatites, conspira avec trois [[Ruben|Rubénites]] : [[Datan]], [[Abiram|Abiram]], fils d’[[Eliab (pallouite)|Eliab]], et On, fils de Péleth.
 2) Ils se soulevèrent contre [[Moïse|Moïse]] avec deux cent cinquante autres [[Israël|Israélites]], des chefs de la communauté, des membres du conseil, des hommes considérés.
 3) Ils s’attroupèrent autour de [[Moïse|Moïse]] et d’[[Aaron|Aaron]] et leur lancèrent : C’en est assez ! C’est la communauté tout entière qui est sainte et l’[[Dieu|Eternel]] est au milieu de nous tous. De quel droit vous mettez-vous au-dessus de la communauté de l’[[Dieu|Eternel]] ?
 4) En entendant ces reproches, [[Moïse|Moïse]] se jeta face contre terre.
@@ -47,7 +47,7 @@ Intitulé **Le Serpent de Bronze** par [[Bible#^358f23|BDS]]
 Analyse du passage ici : [[La puissance de la croix#Meurtrissures|Puissance de la croix]]
 ## Chapitre 23
 ### Versets 13 à 26
-Intitulé **Balaam bénit [[Israël]] une deuxième fois** par [[Bible#^358f23|BDS]]
+Intitulé **[[Balaam]] bénit [[Israël]] une deuxième fois** par [[Bible#^358f23|BDS]]
 
 13) [[Balaq]] reprit : Viens donc avec moi à un autre endroit d’où tu pourras voir ce peuple, tu n’en apercevras qu’une partie et tu ne pourras pas le voir tout entier. Et maudis-le pour moi de cet endroit.
 14) Et [[Balaq]] le conduisit au champ des Guetteurs au sommet du [[Mont Nebo|Pisga]]. Là aussi, il construisit sept autels et offrit un taureau et un bélier sur chacun d’eux.

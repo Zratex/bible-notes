@@ -1,7 +1,7 @@
 Composition du livre :
 - **Chapitres 1-9 :** Introduction de la , écrit par [[Salomon]]
 - **Chapitres 10 :** Leçons sur de l'expérience
-- **Chapitres 25-29 :** Entourage de [[Salomon]] et Ezéchias qui ont rédigés ça
+- **Chapitres 25-29 :** Rédigés par l'entourage de [[Salomon]] et Ezéchias
 
 Cependant, ils ne sont pas pour autant regroupés par thématique. Et il faut du discernement pour les comprendre.
 ## Chapitre 1
@@ -152,3 +152,26 @@ Intitulé **Le festin de la Sagesse** par [[Bible#^358f23|BDS]]
     la bouche des méchants avale le mal.
 29) Les condamnations sont prêtes pour les moqueurs,
     et les coups de bâton pour l’échine des insensés.
+## Chapitre 26
+### Versets 1 à 12
+Intitulé **Le sot** par [[Bible#^358f23|BDS]]
+
+1) Etre honoré convient aussi peu à un insensé
+   que la neige en été ou la pluie pendant la moisson.
+2) Une malédiction injustifiée reste sans effet,
+   elle est comme le moineau qui s’enfuit ou l’hirondelle qui s’envole.
+3) Le fouet est fait pour le cheval, le mors pour l’âne,
+   et le bâton pour l’échine des insensés.
+4) Ne réponds pas à l’insensé selon sa sottise, de peur que tu finisses par lui ressembler.
+5) Réponds à l’insensé selon sa sottise
+   de peur qu’il se prenne pour un sage.
+6) Qui confie des messages à un sot se coupe les pieds et se prépare bien des déboires.
+7) Une maxime dans la bouche des insensés fait le même effet que les jambes inertes d’un estropié.
+8) Décerner des honneurs à un insensé, c’est attacher une pierre à une fronde.
+9) Une maxime dans la bouche des insensés est comme un rameau épineux brandi par un homme ivre.
+10) Qui embauche un sot ou un vagabond
+    est comme un archer qui blesse tout le monde.
+11) L’insensé retourne à ses sottises
+    comme le chien à ce qu’il a vomi.
+12) J’ai vu un homme qui se croit sage :
+    il y a plus à espérer d’un insensé que de lui.

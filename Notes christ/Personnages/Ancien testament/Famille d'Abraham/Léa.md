@@ -1,0 +1,1 @@
+Sœur de [[Rachel]], elle a engendrée les premiers enfants de [[Jacob]]

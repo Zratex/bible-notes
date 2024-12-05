@@ -56,7 +56,7 @@ Intitulé **[[Goliath]] défie l'armée d'[[Israël]]** par [[Bible#^358f23|BDS]
 Intitulé **[[David]] se rend au campement de l'armée [[Israël|israélite]]** par [[Bible#^358f23|BDS]]
 
 12) Or, [[David]] était fils d’un [[Ephratien|Ephratien]] de [[Bethléem|Bethléhem]] en [[Judée|Juda]] nommé [[Isaï]] et qui avait huit fils. Au temps de [[Saül]], [[Isaï]] était très âgé.
-13) [[Isaï|Ses]] trois fils aînés avaient suivi [[Saül]] à la guerre : l’aîné s’appelait [[Eliab]], le second [[Abinadab]] et le troisième [[Shamma]].
+13) [[Isaï|Ses]] trois fils aînés avaient suivi [[Saül]] à la guerre : l’aîné s’appelait [[Eliab (fils d'Isaï)|Eliab]], le second [[Abinadab]] et le troisième [[Shamma]].
 14) Quant à [[David]], c’était le plus jeune. Lorsque les trois aînés eurent suivi [[Saül]],
 15) [[David]] faisait le va-et-vient entre le camp de [[Saül]] et [[Bethléem|Bethléhem]] pour y garder les moutons de son [[Isaï|père]].
 16) Chaque matin et chaque soir, le [[Goliath|Philistin]] venait se présenter en face de l’armée d’[[Israël]] et cela depuis quarante jours.
@@ -71,9 +71,9 @@ Intitulé **[[David]] se rend au campement de l'armée [[Israël|israélite]]** 
 25) – L’avez-vous vu s’avancer contre nous ? dit l’un d’eux. [[Goliath|Il]] vient encore insulter [[Israël]]. Celui qui le tuera, recevra de grandes richesses de la part du [[Saül|roi]] qui lui donnera en plus sa propre fille en mariage et exonérera toute sa famille d’impôts.
 26) [[David]] demanda aux hommes qui se tenaient autour de lui : Qu’est-ce que l’on donnera à celui qui abattra ce [[Goliath|Philistin]] et qui lavera le peuple d’[[Israël]] de la honte qui lui est infligée ? Qu’est donc cet incirconcis de [[Goliath|Philistin]], pour oser insulter les bataillons du [[Dieu]] vivant ?
 27) On répéta à [[David]] ce qui était promis comme récompense à celui qui tuerait le [[Goliath|géant]].
-28) Lorsque [[David|son]] frère aîné [[Eliab]] l’entendit discuter avec les soldats, il se mit en colère contre lui et lui dit : Que viens-tu faire ici ? A qui as-tu laissé nos quelques moutons dans la steppe ? Je te connais bien, moi, petit prétentieux ! Je sais quelles mauvaises intentions tu as dans ton cœur ! Tu n’es venu que pour voir la bataille !
+28) Lorsque [[David|son]] frère aîné [[Eliab (fils d'Isaï)|Eliab]] l’entendit discuter avec les soldats, il se mit en colère contre lui et lui dit : Que viens-tu faire ici ? A qui as-tu laissé nos quelques moutons dans la steppe ? Je te connais bien, moi, petit prétentieux ! Je sais quelles mauvaises intentions tu as dans ton cœur ! Tu n’es venu que pour voir la bataille !
 29) [[David]] lui répondit : Eh ! Qu’est-ce que j’ai fait de mal ? Est-ce que je n’ai plus le droit de parler maintenant ?
-30) Puis, [[David|il]] tourna le dos à son [[Eliab|frère]] et alla se renseigner auprès d’un autre soldat, et on lui fit la même réponse que la première fois.
+30) Puis, [[David|il]] tourna le dos à son [[Eliab (fils d'Isaï)|frère]] et alla se renseigner auprès d’un autre soldat, et on lui fit la même réponse que la première fois.
 ### Versets 31 à 40
 Intitulé **[[David]] se propose pour relever le défi** par [[Bible#^358f23|BDS]]
 

@@ -6,10 +6,10 @@ Message apporté par José le 20/10/2024
 
 -> ces temps existent depuis longtemps, mais ils sont de plus en plus communs et de plus en plus difficile
 
-> Comment réagi l'église quand ces temps arrivent ?
+> Comment réagi l'[[Eglise]] quand ces temps arrivent ?
 
 [[13&14 Thessaloniciens#Versets 1 à 12|2 Thessaloniciens 2:1-6]] : **sans être en communion avec [[Dieu]]**, il nous sera impossible de dissocier [[Jésus]] de [[Satan]] à la fin des temps
-## L'apostasie dans les [[Eglise]]
+## L'apostasie dans les [[Eglise|Eglises]]
 [[25 - Jude#Versets 1 à 2|Jude 1:1-2]], [[25 - Jude#Versets 3 à 4|Jude 1:3-4]]
 [[25 - Jude#Versets 5 à 16|Jude 1:11]] : la voix de [[Caïn]] est une mauvaise voie. Il n'avait pas mis son cœur ni reconnu l'importance du sang de l'agneau (pour nous [[Jésus]]) dans son offrande.
 -> Il a surtout mis en avant ses efforts plutôt que son cœur et sa vie.
@@ -25,15 +25,18 @@ Message apporté par José le 20/10/2024
 > La voix de [[Caïn]] mène dans le feu
 
 [[18 - Hébreux#Versets 18 à 29|Hébreux 12:22-25]] : la voix d'[[Abel]] est l'acceptation du sacrifice et du disciple de [[Dieu]]
-
+## Exemples d'[[Apostasie]] dans la [[Bible]]
 ### Garnons de Balaam
-Compromis de séduction pour maudire le peuple de [[Dieu]], basé sur l'argent.
-`2 Pierre 2:14-16` : nous avons été submergés par chercher le gain de l'argent
-> L'argent est une bénédiction en fonction de comment on l'investit, autrement c'est de la **cupidité** soit de l'idolâtrie comme Balaam
+<u>Description :</u> c'est le compromis de séduction pour maudire le peuple de [[Dieu]], basé sur l'argent.
 
-`Apocalypse 2:14-18` : la voix de l'apostasie est séduisante. Donc quand nous avons les moyens et le confort, il faut d'autant plus garder notre cœur
-### Révolte de Coré
-Cette révolte est concrètement l'insoumission à [[Dieu]] : ils se sont perdus.
+[[20&21 - Pierre#Chapitre 2|2 Pierre 2:14-16]] : nous avons été submergés par chercher le gain de l'argent
+> L'argent est une ==bénédiction en fonction de comment on l'investit==, autrement c'est de la **cupidité** soit de l'idolâtrie comme [[Balaam]]
+
+[[Apocalypse#Versets 12 à 17|Apocalypse 2:14-18]] : la voix de l'[[Apostasie|apostasie]] est séduisante.
+Donc quand nous avons les **moyens et le confort, il faut d'autant plus garder notre cœur**
+### Révolte de [[Qoré|Coré]]
+<u>Description :</u> Cette révolte est concrètement l'insoumission à [[Dieu]] : ils se sont perdus.
+-> Plus d'informations sur l'origine de cette révolte : [[4 - Nombres#Versets 1 à 15|Nombres 16:1-15]]
 
 Alors qu'ils ont vu sa lumière et sa grandeur, ils ont quand même pas acceptés leur soumission, ils ont malgré tout fait leur révolte en commençant à essayer de renverser [[Moïse]] puis [[Aaron]]. Mais cela ne peut pas se faire car ce sont des autorités placés par [[Dieu]].
 

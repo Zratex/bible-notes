@@ -1,2 +1,2 @@
-Troisième fils de [[Isaï]], il a donc comme grand frère [[Eliab]] et [[Abinadab]], et est le grand frère de notamment [[David]].
+Troisième fils de [[Isaï]], il a donc comme grand frère [[Eliab (fils d'Isaï)]] et [[Abinadab]], et est le grand frère de notamment [[David]].
 Il a travaillé dans l'armée [[Israël|israélienne]] à l'époque de [[Saül]]

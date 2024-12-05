@@ -77,3 +77,28 @@ Intitulé **Vivre dans la [[Sagesse (note)#Point de départ de la Sagesse|craint
 25) mais la Parole du [[Dieu|Seigneur]] subsiste éternellement.
     Or, cette Parole, c’est l’[[Note sur l'évangile|Evangile]] qui vous a été annoncé.
 # 2 Pierre
+## Chapitre 2
+Intitulé **Les enseignants de mensonge** par [[Bible#^358f23|BDS]]
+
+1) Autrefois, il y a eu des prophètes de mensonge parmi le peuple d’[[Israël]] ; il en sera de même parmi vous. Ces enseignants de mensonge introduiront subtilement parmi vous des erreurs qui mènent à la perdition. Ils renieront le [[Jésus|Maître]] qui les a rachetés et attireront ainsi sur eux une perdition soudaine.
+2) Beaucoup de gens les suivront dans leur immoralité et, à cause d’eux, la voie de la vérité sera discréditée.
+3) Par amour de l’argent, ils vous exploiteront avec des histoires de leur propre invention. Mais il y a longtemps que leur condamnation est à l’œuvre et que la perdition les guette.
+4) En effet, [[Dieu|Dieu]] n’a pas épargné les anges qui ont péché  : [[Dieu|il]] les a précipités dans l’abîme où ils sont gardés pour le jugement, enchaînés dans les ténèbres.
+5) [[Dieu|Il]] n’a pas non plus épargné le monde ancien, lorsqu’il fit fondre le déluge sur ce monde qui n’avait aucun respect pour lui. [[Dieu|Il]] a néanmoins protégé huit personnes dont [[Noé|Noé]], qui appelait ses contemporains à mener une vie juste.
+6) [[Dieu|Il]] a condamné à la destruction les villes de [[Sodome|Sodome]] et de [[Gomorrhe|Gomorrhe]] en les réduisant en cendres, pour donner à ceux qui se révoltent contre [[Dieu|lui]] un exemple de ce qui leur arrivera.
+7) Il a délivré [[Loth|Loth]], cet homme juste qui était consterné par la conduite immorale des habitants débauchés de ces villes.
+8) Car, en les voyant vivre et en les entendant parler, cet homme juste qui vivait au milieu d’eux était tourmenté jour après jour dans son âme intègre, à cause de leurs agissements criminels.
+9) Ainsi le [[Jésus|Seigneur]] sait comment délivrer de l’épreuve les personnes pieuses, et réserver ceux qui font le mal pour le jour du jugement où ils seront châtiés.
+10) [[Dieu|Il]] punira tout particulièrement ceux qui, mus par la sensualité, vivent au gré de leurs désirs corrompus et méprisent l’autorité du [[Jésus|Seigneur]]. Imbus d’eux-mêmes et arrogants, ces enseignants de mensonge n’hésitent pas à insulter les êtres glorieux,
+11) alors que les anges eux-mêmes, qui leur sont pourtant bien supérieurs en force et en puissance, ne portent pas de jugement insultant contre ces êtres devant le [[Dieu|Seigneur]].
+12) Mais ces hommes-là agissent comme des animaux dépourvus de raison qui ne suivent que leurs instincts et sont tout juste bons à être capturés et tués, car ils se répandent en injures contre ce qu’ils ne connaissent pas. Aussi périront-ils comme des bêtes.
+13) Le mal qu’ils ont fait leur sera payé en retour. Ces hommes trouvent leur plaisir à se livrer à l’immoralité en plein jour. Ils salissent et déshonorent par leur présence les fêtes auxquelles ils participent avec vous en prenant un malin plaisir à vous tromper.
+14) Ils ont le regard chargé d’adultère et d’un besoin insatiable de pécher, ils prennent au piège les personnes mal affermies, ils n’ont plus rien à apprendre en ce qui concerne l’amour de l’argent : ils sont sous la malédiction divine.
+15) Ils ont abandonné le droit chemin et se sont égarés en marchant sur les traces de [[Balaam]], fils de Béor, qui a aimé l’argent mal acquis ;
+16) mais [[Balaam|il]] a été rappelé à l’ordre pour sa désobéissance. C’est une ânesse muette qui, se mettant à parler d’une voix humaine, a détourné le prophète de son projet insensé.
+17) Ces enseignants de mensonge sont comme des sources qui ne donnent pas d’eau, comme des nuages poussés par la tempête. [[Dieu|Dieu]] leur a réservé une place dans les ténèbres les plus profondes.
+18) Avec leurs discours grandiloquents mais creux, ils cherchent à appâter, par l’attrait des désirs sensuels et de l’immoralité ceux qui viennent à peine d’échapper du milieu des hommes vivant dans l’erreur.
+19) Ils leur promettent la liberté – alors qu’ils sont eux-mêmes esclaves des passions qui les mènent à la ruine ; car tout homme est esclave de ce qui a triomphé de lui.
+20) Si, après s’être arrachés aux influences corruptrices du monde par la connaissance qu’ils ont eue de notre [[Seigneur et non seulement sauveur|Seigneur et Sauveur]] [[Jésus|Jésus-Christ]], ils se laissent de nouveau prendre et dominer par elles, leur dernière condition est pire que la première.
+21) Il aurait mieux valu pour eux ne pas connaître le chemin d’une vie juste plutôt que de s’en détourner après l’avoir connu et d’abandonner le saint commandement qui leur avait été transmis.
+22) Ils confirment la vérité de ce proverbe : *[[20 - Proverbes#Versets 1 à 12|Le chien retourne à ce qu’il a vomi]]* ; en outre : « La truie à peine lavée se vautre de nouveau dans la boue ».

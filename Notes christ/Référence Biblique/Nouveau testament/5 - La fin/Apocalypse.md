@@ -1,6 +1,18 @@
 Dernier livre de la [[Bible]], il décrit les temps actuels, la fin des temps, et prophétise le retour de [[Jésus]].
 
 > Les passages qui seront en gras correspondent aux passages où [[Jésus]] (ou [[Dieu]] au travers de [[Jésus]]) parle
+
+## Chapitre 2
+Intitulé **Les lettres aux sept [[Eglise|églises]]** par [[Bible#^358f23|BDS]]
+### Versets 12 à 17
+Intitulé **A l'[[Eglise]] qui est à [[Pergame|Pergame]]** par [[Bible#^358f23|BDS]]
+
+12) **A l’ange de l’[[Eglise]] qui est à [[Pergame|Pergame]], écris : « Voici ce que dit celui qui tient l’épée aiguisée à double tranchant :**
+13) **Je sais que là où tu habites, [[Satan]] a [[Pergame|son trône]]. Mais tu me restes fermement attaché, tu n’as pas renié ta foi en moi, même aux jours où [[Antipas|Antipas]], mon témoin fidèle, a été mis à mort chez vous, là où habite [[Satan]].**
+14) **J’ai pourtant quelques reproches à te faire : tu as chez toi des gens attachés à la doctrine de [[Balaam]] qui avait appris au roi [[Balaq]] à tendre un piège aux [[Israël|Israélites]] pour les amener à pécher en mangeant des viandes provenant des sacrifices offerts aux idoles et en se livrant à la débauche.**
+15) **De même, tu as, toi aussi, des gens attachés à la doctrine des Nicolaïtes.**
+16) **Change donc, sinon je viens à toi sans tarder et je vais combattre ces gens-là avec l’épée qui sort de ma bouche.**
+17) **Que celui qui a des oreilles écoute ce que l’[[Saint-Esprit|Esprit]] dit aux [[Eglise|Eglises]]. Au vainqueur, je donnerai la manne cachée et une pierre blanche ; sur cette pierre est gravé un nom nouveau, que personne ne connaît sauf celui qui le reçoit. »**
 ## Chapitre 3
 ### Versets 7 à 13
 Intitulé **A l'[[Eglise]] qui est à [[Philadelphie|Philadelphie]]**
