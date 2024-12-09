@@ -56,7 +56,20 @@ Intitulé **La [[Sagesse (note)]] vient d'en haut** par [[Bible#^358f23|BDS]]
 16) Car là où règnent la jalousie et l’esprit de rivalité, là aussi habitent le désordre et toutes sortes de pratiques indignes.
 17) Au contraire, la [[Sagesse (note)]] qui vient d’en haut est en premier lieu pure ; de plus, elle aime la paix, elle est modérée et conciliante, pleine de compassion ; elle produit beaucoup de bons [[Fruit|fruits]], elle est sans parti pris et sans hypocrisie.
 18) Ceux qui travaillent à la paix sèment dans la paix une semence qui produira un [[Fruit]] conforme à ce qui est juste.
+## Chapitre 4
+### Versets 1 à 10
+Intitulé **Le danger des mauvais désirs** par [[Bible#^358f23|BDS]]
 
+1) D’où proviennent les conflits et les querelles entre vous ? N’est-ce pas des désirs égoïstes qui combattent sans cesse en vous ?
+2) Vous convoitez beaucoup de choses, mais vos désirs restent insatisfaits. Vous êtes meurtriers, vous vous consumez en jalousie, et vous ne pouvez rien obtenir. Vous bataillez et vous vous disputez. Vous n’avez pas ce que vous désirez parce que vous ne demandez pas à [[Dieu]].
+3) Ou bien, quand vous demandez, vous ne recevez pas, car vous demandez avec de mauvais motifs : vous voulez que l’objet de vos demandes serve à votre propre plaisir.
+4) Peuple adultère que vous êtes ! Ne savez-vous pas qu’aimer le monde, c’est haïr [[Dieu]] ? Si donc quelqu’un veut être l’ami du monde, il se fait l’ennemi de [[Dieu]].
+5) Prenez-vous pour des paroles en l’air ce que déclare l’[[Ancien Testament|Ecriture]]  ? – [[Dieu]] ne tolère aucun rival de l’[[Saint-Esprit|Esprit]] qu’il a fait habiter en nous,
+6) mais bien plus grande est la grâce qu’il nous accorde. – Voici donc ce que déclare l’[[Ancien Testament|Ecriture]] : *[[20 - Proverbes#Versets 27 à 35|Dieu s’oppose aux orgueilleux, mais il accorde sa grâce aux humbles]]*.
+7) Soumettez-vous donc à [[Dieu]], résistez au [[Satan|diable]], et [[Satan|il]] fuira loin de vous.
+8) Approchez-vous de [[Dieu]], et [[Dieu|il]] s’approchera de vous. Nettoyez vos mains, pécheurs, et purifiez votre cœur, vous qui avez le cœur partagé.
+9) Prenez conscience de votre misère et soyez dans le deuil ; pleurez ! Que votre rire se change en pleurs et votre gaieté en tristesse !
+10) Abaissez-vous devant le [[Seigneur et non seulement sauveur|Seigneur]], et [[Dieu|il]] vous relèvera.
 ## Chapitre 5
 ### Versets 7 à 11
 Intitulé **Le courage dans l'épreuve** par [[Bible#^358f23|BDS]]

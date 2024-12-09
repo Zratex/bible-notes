@@ -11,10 +11,14 @@
             "id": "3662375e9ede6a53",
             "type": "leaf",
             "state": {
-              "type": "graph",
-              "state": {},
-              "icon": "lucide-git-fork",
-              "title": "Graph view"
+              "type": "markdown",
+              "state": {
+                "file": "Orgueil et humilité.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "Orgueil et humilité"
             }
           }
         ]
@@ -174,6 +178,14 @@
   },
   "active": "3662375e9ede6a53",
   "lastOpenFiles": [
+    "Référence Biblique/Nouveau testament/4 - Lettres générales/19 - Jacques.md",
+    "Orgueil et humilité.md",
+    "Référence Biblique/Ancien testament/5 - Livres poétiques/20 - Proverbes.md",
+    "Relation.md",
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/11 - Philippiens.md",
+    "Personnages/Nouveau testament/Paul.md",
+    "Définitions/Sagesse.md",
+    "~syncthing~Orgueil et humilité.md.tmp",
     "Temps d'apostasie.md",
     "Référence Biblique/Ancien testament/2 - La loi de Dieu/4 - Nombres.md",
     "Personnages/Ancien testament/Datan.md",
@@ -195,14 +207,7 @@
     "Lieux historiques/Villes/Pergame.md",
     "Lieux historiques/Images/Pergame.PNG",
     "Référence Biblique/Nouveau testament/4 - Lettres générales/20&21 - Pierre.md",
-    "Référence Biblique/Ancien testament/5 - Livres poétiques/20 - Proverbes.md",
-    "Personnages/Ancien testament/Noé.md",
-    "Dieu n'a pas changé.md",
     "~syncthing~Dieu n'a pas changé.md.tmp",
-    "Référence Biblique/Nouveau testament/4 - Lettres générales/18 - Hébreux.md",
-    "Référence Biblique/Ancien testament/2 - La loi de Dieu/5 - Deutéronome.md",
-    "Référence Biblique/Ancien testament/7 - Seconds livres prophétiques/37 - Aggée.md",
-    "Personnages/Ancien testament/Prophètes/Aggée.md",
     "Lieux historiques/Images/Hittites.png",
     "Lieux historiques/Images/Hittites.png.crdownload",
     "~syncthing~Relation.md.tmp",
@@ -218,7 +223,6 @@
     "Lieux historiques/Images/Pamphylie.png",
     "Lieux historiques/Images/Pamphylie.png.crdownload",
     "Lieux historiques/Images/Paphos.PNG",
-    "Lieux historiques/Images/Pisidie.png.crdownload",
-    "Personnages/Nouveau testament/Disciples de Jésus/~syncthing~André.sync-conflict-20241109-195717-4D4KN2W.md.tmp"
+    "Lieux historiques/Images/Pisidie.png.crdownload"
   ]
 }

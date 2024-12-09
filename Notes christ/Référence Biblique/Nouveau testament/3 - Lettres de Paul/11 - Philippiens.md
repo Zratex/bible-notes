@@ -3,7 +3,7 @@ Lettre écrite par [[Paul]] envers les philippiens.
 ### Versets 1 à 11
 Intitulé **Aimer, à l'aide de [[Jésus|Christ]]** par [[Bible#^358f23|BDS]]
 
-1) N’avez-vous pas trouvé en [[Jésus|Christ]] un réconfort, dans l’amour un encouragement, par l’Esprit une communion entre vous  ? N’avez-vous pas de l’affection et de la bonté les uns pour les autres ?
+1) N’avez-vous pas trouvé en [[Jésus|Christ]] un réconfort, dans l’amour un encouragement, par l’[[Saint-Esprit|Esprit]] une communion entre vous  ? N’avez-vous pas de l’affection et de la bonté les uns pour les autres ?
 2) Rendez donc [[Paul|ma]] joie complète : tendez à vivre en accord les uns avec les autres. Et pour cela, ayez le même amour, une même pensée, et tendez au même but.
 3) Ne faites donc rien par esprit de rivalité, ou par un vain désir de vous mettre en avant ; au contraire, par humilité, considérez les autres comme plus importants que vous-mêmes ;
 4) et que chacun regarde, non ses propres qualités, mais celles des autres.

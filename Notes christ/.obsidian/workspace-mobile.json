@@ -20,6 +20,18 @@
             }
           },
           {
+            "id": "0c56e92edbc71d8e",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Orgueil et humilité.md",
+                "mode": "preview",
+                "source": false
+              }
+            }
+          },
+          {
             "id": "43dca84b42fdd00b",
             "type": "leaf",
             "state": {
@@ -39,7 +51,8 @@
               "state": {}
             }
           }
-        ]
+        ],
+        "currentTab": 1
       }
     ],
     "direction": "vertical"
@@ -105,7 +118,7 @@
         "state": {
           "type": "backlink",
           "state": {
-            "file": "Temps d'apostasie.md",
+            "file": "Orgueil et humilité.md",
             "collapseAll": false,
             "extraContext": false,
             "sortOrder": "alphabetical",
@@ -122,7 +135,7 @@
         "state": {
           "type": "outgoing-link",
           "state": {
-            "file": "Temps d'apostasie.md",
+            "file": "Orgueil et humilité.md",
             "linksCollapsed": false,
             "unlinkedCollapsed": true
           }
@@ -134,7 +147,7 @@
         "state": {
           "type": "outline",
           "state": {
-            "file": "Temps d'apostasie.md"
+            "file": "Orgueil et humilité.md"
           }
         }
       }
@@ -151,10 +164,28 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "0919473eb119eb1e",
+  "active": "0c56e92edbc71d8e",
   "lastOpenFiles": [
-    "Dieu n'a pas changé.md",
     "Temps d'apostasie.md",
+    "Référence Biblique/Nouveau testament/4 - Lettres générales/25 - Jude.md",
+    "Référence Biblique/Ancien testament/7 - Seconds livres prophétiques/38 - Zacharie.md",
+    "Référence Biblique/Ancien Testament.md",
+    "Personnages/Nouveau testament/Jude.md",
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/15&16 - Timothée.md",
+    "Lieux historiques/Villes/Antioche de Pisidie.md",
+    "Lieux historiques/Villes/Antioche.md",
+    "Lieux historiques/Royaumes/Assyrie.md",
+    "Lieux historiques/Royaumes/Syrie.md",
+    "Lieux historiques/Villes/Damas.md",
+    "Personnages/Ancien testament/Jannès&Jambrès.md",
+    "Référence Biblique/Ancien testament/2 - La loi de Dieu/2 - Exode.md",
+    "Personnages/Nouveau testament/Philète.md",
+    "Personnages/Nouveau testament/Hyménée.md",
+    "Lieux historiques/Villes/Ephèse.md",
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/10 - Ephésiens.md",
+    "Personnages/Nouveau testament/Paul.md",
+    "Orgueil et humilité.md",
+    "Dieu n'a pas changé.md",
     "Enok",
     "Lieux historiques/Régions géographiques/Mésopothamie.md",
     "Relation.md",
@@ -162,24 +193,6 @@
     "Église prépare toi.md",
     "Vie équilibré.md",
     "Daniel a ouvert les fenêtres.md",
-    "Résister à l'idolâtrie.md",
-    "Le buisson de la seconde chance.md",
-    "Personnages/Ancien testament/Famille d'Abraham/Isaac.md",
-    "Lieux historiques/Royaumes/Assyrie.md",
-    "Lieux historiques/Villes/Ninive.md",
-    "Référence Biblique/Ancien testament/7 - Seconds livres prophétiques/32 - Jonas.md",
-    "Fruit.md",
-    "Personnages/Ancien testament/Jonas.md",
-    "Référence Biblique/Ancien Testament.md",
-    "De l'espoir.md",
-    "2 coeurs 2 rois.md",
-    "La justice.md",
-    "Lieux historiques/Villes/Philadelphie.md",
-    "Référence Biblique/Nouveau testament/1 -Evangiles/4eme Evangile - Jean.sync-conflict-20241109-195717-4D4KN2W.md",
-    "Personnages/Nouveau testament/Silas.md",
-    "Lieux historiques/Villes/Philippes (ville).md",
-    "Personnages/Ancien testament/Prophètes/Esaïe.sync-conflict-20241109-195717-4D4KN2W.md",
-    "Personnages/Nouveau testament/Disciples de Jésus/André.sync-conflict-20241109-195717-4D4KN2W.md",
     "Lieux historiques/Images/Thyatire.png",
     "Lieux historiques/Images/Philadelphie.PNG",
     "Lieux historiques/Images/Philippe (ville).PNG",

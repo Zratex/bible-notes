@@ -53,6 +53,28 @@ Intitulé **La confiance en l’[[Dieu|Eternel]]** par [[Bible#^358f23|BDS]]
     s’[[Dieu|il]] te reprend, ne t’impatiente pas,
 12) car c’est celui qu’[[Dieu|il]] aime que l’[[Dieu|Eternel]] reprend,
     agissant avec lui comme un père avec l’enfant qu’il chérit.
+### Versets 27 à 35
+Intitulé **L'amour du prochain** par [[Bible#^358f23|BDS]]
+
+27) Si tu en as le moyen, ne refuse pas de faire du bien à celui qui est dans le besoin,
+28) ne dis pas à ton prochain :
+    « Va-t’en et reviens plus tard,
+    demain je te donnerai »,
+    alors que tu peux le faire tout de suite.
+29) Ne manigance rien de mal contre ton prochain,
+    alors qu’il vit sans défiance près de toi.
+30) Ne cherche pas querelle à quelqu’un sans raison
+    alors qu’il ne t’a fait aucun mal.
+31) N’envie pas les violents
+    et n’adopte aucun de leurs procédés,
+32) car l’[[Dieu|Eternel]] a en horreur les gens pervers,
+    mais [[Dieu|il]] réserve son intimité aux hommes droits.
+33) La malédiction de l’[[Dieu|Eternel]] pèse sur la maison du méchant,
+    mais [[Dieu|il]] bénit la demeure des justes.
+34) [[Dieu|Il]] se moque des moqueurs,
+    mais [[Dieu|il]] accorde sa faveur aux humbles.
+35) L’honneur sera la part des [[Sagesse|sages]],
+    mais les insensés porteront la honte.
 ## Chapitre 4
 Intitulé **Une opération de séduction** par [[Bible#^358f23|BDS]]
 
@@ -93,6 +115,73 @@ Intitulé **Le festin de la Sagesse** par [[Bible#^358f23|BDS]]
 4) « Approchez donc, ╵vous qui n’avez pas d’expérience ! » A ceux qui manquent de bon sens, elle déclare :
 5) « Venez et mangez de mon pain et buvez du vin que j’ai préparé.
 6) Vous qui êtes inexpérimentés détournez-vous de ce chemin et vous vivrez. Dirigez-vous sur la voie de l’intelligence.
+## Chapitre 16
+1) L’homme fait des projets,
+   mais celui qui a le dernier mot, c’est l’[[Dieu|Eternel]].
+2) Vous pouvez penser que tout ce que vous faites est bien,
+   mais c’est l’[[Dieu|Eternel]] qui apprécie vos motivations.
+3) Recommande tes œuvres à l’[[Dieu|Eternel]],
+   et tes projets se réaliseront.
+4) L’[[Dieu|Eternel]] a tout fait pour un but,
+   même le méchant pour le jour du malheur.
+5) Tout homme [[Orgueil et humilité|orgueilleux]] est en horreur à l’[[Dieu|Eternel]] ;
+   soyez-en certain : il ne restera pas impuni.
+6) La faute est expiée par la bonté et la fidélité
+   et, par crainte de l’[[Dieu|Eternel]], on se détourne du mal.
+7) Quand la conduite d’un homme est agréable à l’[[Dieu|Eternel]],
+   il lui concilie même ses ennemis.
+8) Mieux vaut le peu honnêtement obtenu
+   que de gros revenus mal acquis.
+9) L’homme projette de suivre tel chemin,
+   et [[Dieu]] dirige ses pas.
+10) Quand le roi se prononce, ses paroles ont valeur de déclaration divine :
+    que sa bouche n’aille donc pas à l’encontre du droit.
+11) L’[[Dieu|Eternel]] veut des balances et des plateaux justes,
+    et les poids, il en fait son affaire.
+12) Faire le mal est une chose abominable pour un roi,
+    car le pouvoir ne devient fort que s’il est juste.
+13) Ceux dont les paroles sont justes obtiennent la faveur du roi,
+    et il aime ceux qui parlent avec droiture.
+14) Quand un roi se met en colère, sa fureur est comme une messagère de mort,
+    mais l’homme sage saura l’apaiser.
+15) Quand le visage du roi s’éclaire, c’est un gage de vie,
+    et sa faveur est comme un nuage annonçant l’ondée printanière.
+16) Acquérir la [[Sagesse|sagesse]] vaut bien mieux que l’or pur,
+    et gagner en discernement est bien préférable à l’argent.
+17) Les hommes droits cheminent sur des routes qui évitent le mal,
+    qui surveille sa conduite préserve sa vie.
+18) L’[[Orgueil et humilité|orgueil]] précède la ruine ;
+    un esprit fier annonce la chute.
+19) Mieux vaut avoir un esprit humble et frayer avec les gens de condition modeste
+    que de partager le butin avec les [[Orgueil et humilité|orgueilleux]].
+20) Qui agit prudemment dans une affaire s’en trouvera bien.
+    Heureux celui qui met sa confiance en l’[[Dieu|Eternel]] !
+21) Qui a le cœur sage sera reconnu comme intelligent,
+    et les paroles aimables sont d’autant plus persuasives.
+22) Le discernement est une source de vie pour celui qui en est pourvu ;
+    les sots trouvent leur châtiment dans leur sottise même.
+23) Si le cœur d’un homme est pénétré de [[Sagesse|sagesse]],
+    il parlera de façon avisée, et ses paroles seront d’autant plus persuasives.
+24) D’aimables paroles sont comme un rayon de miel :
+    douces pour l’âme et bienfaisantes pour le corps.
+25) Bien des hommes pensent être sur le bon chemin,
+    et pourtant, ils se trouvent sur une voie qui, finalement, mène à la mort.
+26) La faim du travailleur est une bonne collaboratrice :
+    sa bouche le pousse à travailler.
+27) Le vaurien projette le malheur,
+    et ses paroles sont comme un feu dévorant.
+28) Le fourbe sème la discorde,
+    et qui colporte des rumeurs jette la brouille entre des amis.
+29) L’homme violent circonvient son prochain
+    et l’entraîne sur une mauvaise voie.
+30) Qui ferme les yeux pour méditer des desseins pervers
+    et qui serre les lèvres a déjà commis le mal.
+31) Les cheveux blancs sont une couronne honorifique :
+    elle s’obtient par une vie droite.
+32) Mieux vaut un homme lent à la colère qu’un bon guerrier,
+    mieux vaut savoir se dominer que de conquérir des villes.
+33) On jette le sort dans les pans du vêtement du prêtre,
+    mais c’est de l’[[Dieu|Eternel]] que dépend toute décision.
 ## Chapitre 19
 1) Mieux vaut un pauvre qui se conduit de façon intègre
    qu’un homme aux paroles tordues, car celui-ci est un insensé.
