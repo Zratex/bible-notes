@@ -38,6 +38,22 @@ Intitulé **[[Jésus]] et la tradition religieuse juive**
 Intitulé **Les riches et le royaume** par [[Bible#^358f23|BDS]]
 
 17) Comme il partait, un homme accourut, se jeta à genoux devant lui et lui demanda : Bon Maître, que dois-je faire pour obtenir la vie éternelle ?
+## Chapitre 10
+### Versets 35 à 45
+Intitulé **Grandeur et service** par [[Bible#^358f23|BDS]]
+
+35) Alors [[Jacques (apôtre)|Jacques]] et [[Jean|Jean]], les fils de [[Zébédée|Zébédée]], s’approchèrent de [[Jésus|Jésus]] et lui dirent : [[Jésus|Maître]], nous désirons que tu fasses pour nous ce que nous allons te demander.
+36) **– Que désirez-vous que [[Jésus|je]] fasse pour vous ?** leur demanda-t-[[Jésus|il]].
+37) Ils répondirent : Accorde-nous de siéger l’un à [[Jésus|ta]] droite et l’autre à [[Jésus|ta]] gauche lorsque [[Jésus|tu]] seras dans la gloire.
+38) Mais [[Jésus|Jésus]] leur dit : **Vous ne vous rendez pas compte de ce que vous demandez ! Pouvez-vous boire la coupe que [[Jésus|je]] vais boire, ou passer par le baptême que [[Jésus|j]]’aurai à subir ?**
+39) – Oui, lui répondirent-ils, nous le pouvons.
+    Alors [[Jésus|Jésus]] reprit : **Vous boirez en effet la coupe que [[Jésus|je]] vais boire, et vous subirez le baptême par lequel [[Jésus|je]] vais passer,**
+40) **mais quant à siéger à [[Jésus|ma]] droite ou à [[Jésus|ma]] gauche, il ne m’appartient pas de vous l’accorder : ces places reviendront à ceux pour qui elles ont été préparées.**
+41) En entendant cela, les [[Apôtres|dix autres]] s’indignèrent contre [[Jacques (apôtre)|Jacques]] et [[Jean|Jean]].
+42) Alors [[Jésus|Jésus]] les appela tous auprès de lui et leur dit : **Vous savez ce qui se passe dans les nations : ceux que l’on considère comme les chefs politiques dominent sur leurs peuples et les grands personnages font peser leur autorité sur eux.**
+43) **Il ne doit pas en être ainsi parmi vous. Au contraire : si quelqu’un veut être grand parmi vous, qu’il soit votre serviteur,**
+44) **et si quelqu’un veut être le premier parmi vous, qu’il soit l’esclave de tous.**
+45) **Car le [[Jésus|Fils]] de l’homme n’est pas venu pour se faire servir, mais pour servir et donner sa vie en rançon pour beaucoup.**
 ## Chapitre 12
 ### Versets 41 à 44
 Intitulé **La vraie générosité** par [[Bible#^358f23|BDS]]

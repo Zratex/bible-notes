@@ -1,0 +1,1 @@
+Vraisemblablement descendant d'[[Agag]], il est celui qui influa [[Assuérus]] sur la loi contre le peuple d'[[Israël]], avant de se confronter à [[Esther]]

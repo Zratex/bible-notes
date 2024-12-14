@@ -8,7 +8,7 @@ Intitulé **[[Mardochée]] demande à [[Esther]] d'intervenir** par [[Bible#^358
 4) Les servantes d’[[Esther]] et ses eunuques vinrent la mettre au courant, et l’impératrice en fut toute bouleversée. Elle envoya des vêtements à [[Mardochée]], pour qu’il s’habille correctement et enlève l’habit de toile de sac qu’il portait. Mais il les refusa.
 5) Alors Esther appela [[Hathac]], l’un des eunuques que l’empereur avait mis à son service, et le chargea de s’enquérir auprès de [[Mardochée]] de ce qui se passait et qui le poussait à agir ainsi.
 6) [[Hathac]] alla trouver [[Mardochée]] qui se tenait toujours sur la place publique, devant la porte du palais impérial.
-7) [[Mardochée]] l’informa de tout ce qui lui était arrivé et il lui dit notamment quelle quantité d’argent Haman avait promis de verser dans les coffres de l’empereur pour que l’on fasse périr tous les Juifs.
+7) [[Mardochée]] l’informa de tout ce qui lui était arrivé et il lui dit notamment quelle quantité d’argent [[Haman|Haman]] avait promis de verser dans les coffres de l’empereur pour que l’on fasse périr tous les Juifs.
 8) [[Mardochée|Il]] [[Hathac|lui]] remit aussi une copie du texte de l’édit d’extermination qui avait été publié dans [[Suse]] pour qu’il la montre à [[Esther]], l’informe de la situation et lui communique l’ordre de se rendre chez l’empereur afin d’implorer sa pitié et de le supplier en faveur de son peuple.
 9) [[Hathac]] revint et rapporta à [[Esther]] les paroles de [[Mardochée]].
 10) [[Esther|Celle-ci]] ordonna à [[Hathac]] de rapporter sa réponse à [[Mardochée]] :
@@ -19,3 +19,14 @@ Intitulé **[[Mardochée]] demande à [[Esther]] d'intervenir** par [[Bible#^358
 15) Alors [[Esther]] fit porter cette réponse à [[Mardochée]] :
 16) Va rassembler tous les Juifs qui se trouvent à [[Suse]]. [[Jeûne|Jeûnez]] pour [[Esther|moi]], sans manger ni boire pendant trois jours et trois nuits. [[Esther|J]]’observerai de [[Esther|mon]] côté le même [[Jeûne|jeûne]] avec mes servantes. Ensuite, je me rendrai chez l’empereur, malgré la loi. Si [[Esther|je]] dois mourir, [[Esther|je]] mourrai !
 17) [[Mardochée]] partit et fit ce qu’[[Esther]] lui avait commandé.
+## Chapitre 5
+### Versets 9 à 14
+Intitulé **[[Haman]] fait dresser une potence pour [[Mardochée]]** par [[Bible#^358f23|BDS]]
+
+9) [[Haman|Haman]] s’en retourna ce jour-là, joyeux et le cœur en fête. En passant devant la porte du palais impérial, il aperçut [[Mardochée|Mardochée]]. Celui-ci ne se leva pas et ne tremblait pas devant lui. Alors [[Haman|Haman]] fut rempli de fureur contre lui.
+10) Néanmoins, [[Haman|il]] se domina et rentra chez lui. Là, [[Haman|il]] fit venir ses amis et sa femme [[Zéresh|Zéresh]].
+11) [[Haman|Il]] leur décrivit longuement ses richesses prestigieuses, leur parla de ses nombreux fils et de tous les honneurs dont l’empereur l’avait comblé en l’élevant à un rang supérieur aux ministres et à tous les hauts fonctionnaires impériaux.
+12) – Et même, ajouta-t-il, l’impératrice [[Esther|Esther]] n’a invité personne d’autre que [[Haman|moi]] avec [[Assuérus|l’empereur]] au festin qu’[[Esther|elle]] a préparé. Et demain, c’est encore [[Haman|moi]] qui suis invité avec [[Assuérus|l’empereur]].
+13) Mais tout cela ne compte pour rien à [[Haman|mes]] yeux, aussi longtemps que [[Haman|je]] verrai ce Juif [[Mardochée|Mardochée]] assis à la porte du palais impérial.
+14) Sa femme [[Zéresh|Zéresh]] et tous ses amis lui dirent : Il n’y a qu’à faire dresser une potence haute de vingt-cinq mètres, et demain matin, tu parleras à [[Assuérus|l’empereur]] pour qu’on y pende [[Mardochée|Mardochée]]. Puis [[Haman|tu]] pourras aller gaiement au festin en compagnie de [[Assuérus|l’empereur]].
+    Cette proposition plut à [[Haman|Haman]], et il fit faire la potence.

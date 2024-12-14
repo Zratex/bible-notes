@@ -1,0 +1,1 @@
+Nom hébreux du roi [[Perse|perse]] identifié sous le nom de **Xerxès 1er**, soit le roi de l'époque d'[[Esther]]

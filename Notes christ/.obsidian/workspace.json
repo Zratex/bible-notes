@@ -4,11 +4,11 @@
     "type": "split",
     "children": [
       {
-        "id": "7fecb30d9b8e29dc",
+        "id": "6c3f07fcbf6d9418",
         "type": "tabs",
         "children": [
           {
-            "id": "3662375e9ede6a53",
+            "id": "38b83a7dea400970",
             "type": "leaf",
             "state": {
               "type": "markdown",
@@ -52,7 +52,7 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "eliab",
+                "query": "orgueil",
                 "matchingCase": false,
                 "explainSearch": false,
                 "collapseAll": false,
@@ -93,7 +93,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Vie équilibré.md",
+                "file": "Orgueil et humilité.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -103,7 +103,7 @@
                 "unlinkedCollapsed": true
               },
               "icon": "links-coming-in",
-              "title": "Backlinks for Vie équilibré"
+              "title": "Backlinks for Orgueil et humilité"
             }
           },
           {
@@ -112,12 +112,12 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "Vie équilibré.md",
+                "file": "Orgueil et humilité.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               },
               "icon": "links-going-out",
-              "title": "Outgoing links from Vie équilibré"
+              "title": "Outgoing links from Orgueil et humilité"
             }
           },
           {
@@ -139,10 +139,10 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "Vie équilibré.md"
+                "file": "Orgueil et humilité.md"
               },
               "icon": "lucide-list",
-              "title": "Outline of Vie équilibré"
+              "title": "Outline of Orgueil et humilité"
             }
           },
           {
@@ -176,53 +176,53 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "3662375e9ede6a53",
+  "active": "38b83a7dea400970",
   "lastOpenFiles": [
-    "Référence Biblique/Nouveau testament/4 - Lettres générales/19 - Jacques.md",
+    "Référence Biblique/Ancien testament/4 - Seconds livres historiques/16 - Esther.md",
+    "Personnages/Ancien testament/Chute de Judée/Esther.md",
+    "Personnages/Ancien testament/Ennemis d'Israel/Zéresh.md",
+    "Personnages/Ancien testament/Ennemis d'Israel/Haman.md",
+    "Personnages/Ancien testament/Ennemis d'Israel/Assuérus.md",
+    "Lieux historiques/Royaumes/Perse.md",
     "Orgueil et humilité.md",
-    "Référence Biblique/Ancien testament/5 - Livres poétiques/20 - Proverbes.md",
-    "Relation.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/11 - Philippiens.md",
-    "Personnages/Nouveau testament/Paul.md",
-    "Définitions/Sagesse.md",
-    "~syncthing~Orgueil et humilité.md.tmp",
+    "Référence Biblique/Nouveau testament/1 -Evangiles/2nd Evangile - Marc.md",
+    "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.md",
+    "Tentation (note).md",
+    "Église prépare toi.md",
+    "Vie équilibré.md",
     "Temps d'apostasie.md",
-    "Référence Biblique/Ancien testament/2 - La loi de Dieu/4 - Nombres.md",
-    "Personnages/Ancien testament/Datan.md",
-    "Personnages/Ancien testament/Abiram.md",
-    "Personnages/Ancien testament/Eliab (pallouite).md",
-    "Personnages/Ancien testament/Eliab (fils d'Isaï).md",
-    "Personnages/Ancien testament/Famille d'Abraham/Fils de Jacob/Petits-enfants de Jacob/Pallou.md",
-    "Personnages/Ancien testament/Famille d'Abraham/Fils de Jacob/Ruben.md",
+    "S'aimer pour aimer.md",
+    "Résister à l'idolâtrie.md",
+    "Référence Biblique/Nouveau testament/4 - Lettres générales/25 - Jude.md",
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/13&14 Thessaloniciens.md",
+    "Rencontrer Jésus.md",
+    "Prophète de l'espérance.md",
+    "Personnages/Nouveau testament/Silas.md",
+    "Personnages/Nouveau testament/Philète.md",
+    "Personnages/Nouveau testament/Marc.md",
+    "Personnages/Nouveau testament/Lydie.md",
+    "Personnages/Ancien testament/Prophètes/Aggée.md",
+    "Personnages/Ancien testament/Noé.md",
+    "Personnages/Ancien testament/Jannès&Jambrès.md",
     "Personnages/Ancien testament/Famille d'Abraham/Fils de Jacob/Petits-enfants de Jacob",
-    "Personnages/Ancien testament/Famille d'Abraham/Léa.md",
-    "Personnages/Ancien testament/Famille d'Abraham/Jacob.md",
-    "Personnages/Ancien testament/Abinadab.md",
-    "Référence Biblique/Ancien testament/3 - Premiers livres historiques/9&10 - Samuel.md",
-    "Personnages/Ancien testament/Isaï.md",
-    "Personnages/Ancien testament/Qoré.md",
-    "Référence Biblique/Nouveau testament/5 - La fin/Apocalypse.md",
-    "Personnages/Ancien testament/Balaam.md",
-    "Personnages/Nouveau testament/Antipas.md",
-    "Lieux historiques/Villes/Pergame.md",
-    "Lieux historiques/Images/Pergame.PNG",
-    "Référence Biblique/Nouveau testament/4 - Lettres générales/20&21 - Pierre.md",
-    "~syncthing~Dieu n'a pas changé.md.tmp",
-    "Lieux historiques/Images/Hittites.png",
-    "Lieux historiques/Images/Hittites.png.crdownload",
-    "~syncthing~Relation.md.tmp",
-    "Lieux historiques/Images/Cilicia.png",
-    "Lieux historiques/Images/Cilicia.png.crdownload",
+    "Lieux historiques/Images/Thyatire.png",
     "Lieux historiques/Images/Thessalonique.PNG",
-    "Définitions/Divinités étrangères",
-    "Lieux historiques/Images/Lycaonie.png",
-    "Lieux historiques/Images/Lycaonie.png.crdownload",
-    "Lieux historiques/Images/Lystres.PNG",
-    "Lieux historiques/Images/Iconium.PNG",
+    "Lieux historiques/Images/Pisidie.png",
+    "Lieux historiques/Images/Philippe (ville).PNG",
+    "Lieux historiques/Images/Philadelphie.PNG",
+    "Lieux historiques/Images/Petra build.png",
     "Lieux historiques/Images/Pergé.PNG",
-    "Lieux historiques/Images/Pamphylie.png",
-    "Lieux historiques/Images/Pamphylie.png.crdownload",
+    "Lieux historiques/Images/Pergame.PNG",
     "Lieux historiques/Images/Paphos.PNG",
-    "Lieux historiques/Images/Pisidie.png.crdownload"
+    "Lieux historiques/Images/Pamphylie.png",
+    "Définitions/Divinités étrangères",
+    "Lieux historiques/Images/Nil.png.crdownload",
+    "Lieux historiques/Images/Ethiopie.png.crdownload",
+    "~syncthing~Chipeur.md.tmp",
+    "~syncthing~Influence.md.tmp",
+    "~syncthing~Me voici envoie moi.md.tmp",
+    "Lieux historiques/Images/Mer morte.png.0.pdnSave",
+    "Lieux historiques/Images/Elam.png.crdownload",
+    "~syncthing~Vie victorieuse en Christ.md.tmp"
   ]
 }
