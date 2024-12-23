@@ -1,1 +1,1 @@
-Région englobant l'actuel [[Israël]] (et [[Palestine]]), l'Ouest de la Jordanie, le Liban et l'Ouest de la [[Syrie]].
+Région englobant l'actuel [[Israël]] (et [[Palestine]]), l'Ouest de la Jordanie, le [[Phénécie|Liban]] et l'Ouest de la [[Syrie]].

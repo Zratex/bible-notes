@@ -33,3 +33,24 @@ Intitulé **La réponse inattendue de [[Dieu]]** par [[Bible#^358f23|BDS]]
 11) Puis il change d’avis ╵et il passe plus loin.
     Il se charge de crimes,
     lui qui voue sa force à son dieu.
+## Chapitre 2
+### Versets 1 à 4
+Intitulé **Le juste vivra grâce à sa foi** par [[Bible#^358f23|BDS]]
+
+1) Je me tiendrai ╵à mon poste de garde,
+   je resterai debout ╵sur le fort du guetteur
+   et je guetterai pour savoir ╵ce que [[Dieu]] me dira,
+   ce que je répondrai ╵à ma protestation.
+2) Et l’[[Dieu|Eternel]] me répondit :
+   Ecris cette révélation,
+   et grave-la sur les tablettes,
+   de sorte que chaque lecteur ╵la lise couramment.
+3) Car c’est une révélation ╵qui porte sur un temps fixé,
+   qui parle de la fin
+   et n’est pas mensongère.
+   Si l’[[Dieu|Eternel]] paraît tarder, ╵attends-le patiemment,
+   car [[Dieu|il]] vient sûrement,
+   [[Dieu|il]] ne tardera pas.
+4) Si quelqu’un flanche,
+   il n’est pas droit de cœur
+   mais le juste vivra ╵grâce à sa foi.
