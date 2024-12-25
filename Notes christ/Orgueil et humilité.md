@@ -8,15 +8,15 @@ Il est possible de changer notre orgueil au travers de l'humilité. Ce sont des 
 ## Symptômes de l'orgueil
 Voici une liste de certains comportements qui relèvent de l'orgueil, ainsi que ce que dit la [[Bible]] à ce propos
 ### Être premier
-[[2nd Evangile - Marc#Versets 35 à 45|Marc 10:35-45]] : [[Jésus]] nous permet de briller, mais pas pour être d'être au devant de cette lumière.
+[[2nd Evangile - Marc#Versets 35 à 45|Marc 10:35-45]] : [[Jésus]] nous permet de briller, mais pas pour être au devant de cette lumière.
 Ici il parle des grands en tant que dirigeants.
 > Exemple des groupes de louange
 ### Le goût des honneurs
 [[16 - Esther#Versets 9 à 14|Esther 5:11-14]] : [[Haman]] flex sur sa position alors que ce sont des honneurs qui ne reviennent pas de lui mais à l'empereur [[Assuérus]].
-Cette façon d'être produit de mauvais fruits
+Cette façon d'être, produit de mauvais fruits
 ### Course aux titres
-`1 Rois 1:5` : auto-proclamé car il se pense capable sur l'aspect spirituel (ce qui est de l'orgueil)
-Est ce que la gloire de [[Dieu]] reviens toujours à lui
+[[11&12 - Rois#Versets 1 à 10|1 Rois 1:5]] : [[Abiatar]] s'est auto-proclamé car il se pense capable sur l'aspect spirituel de prendre ce rôle (ce qui est de l'orgueil)
+> Est ce que la gloire de [[Dieu]] reviens toujours à [[Dieu]], et pas à nous même ?
 ### Goût des compliments
 `Matthieu 6:2-4` : nous devons accepter notre place sans flex, une fois que nous sommes sur que [[Dieu]] nous a réservé une place au ciel
 ### Méconnaissance de ses faiblesses et échecs

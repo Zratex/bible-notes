@@ -1,0 +1,1 @@
+Vraisemblablement la sœur de [[David]] (check `1 Samuel 26:6`, `2 Samuel 2:13-18`, `2 Samuel 19:13`, `2 Samuel 20:10`, `2 Samuel 23` et `2 Samuel 17:25`), Tserouya (ou **Tsrouyah**) eut plusieurs fils dont notamment [[Joab]] 

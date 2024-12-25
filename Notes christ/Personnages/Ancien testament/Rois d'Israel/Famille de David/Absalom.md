@@ -1,0 +1,1 @@
+Troisième fils de [[David]], il était réputé pour être l'un des hommes les plus beau d'[[Israël]]

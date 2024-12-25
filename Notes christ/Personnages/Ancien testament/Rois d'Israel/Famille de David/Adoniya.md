@@ -1,0 +1,1 @@
+Quatrième fils de [[David]] avec [[Haggith]] comme mère, il a prétendu le trône d'[[Israël]] dans [[11&12 - Rois#Chapitre 1|1 Rois 1:1-10]]
