@@ -18,10 +18,10 @@ Cette façon d'être, produit de mauvais fruits
 [[11&12 - Rois#Versets 1 à 10|1 Rois 1:5]] : [[Abiatar]] s'est auto-proclamé car il se pense capable sur l'aspect spirituel de prendre ce rôle (ce qui est de l'orgueil)
 > Est ce que la gloire de [[Dieu]] reviens toujours à [[Dieu]], et pas à nous même ?
 ### Goût des compliments
-`Matthieu 6:2-4` : nous devons accepter notre place sans flex, une fois que nous sommes sur que [[Dieu]] nous a réservé une place au ciel
+[[1er Evangile - Matthieu#Versets 1 à 18|Matthieu 6:2-4]] : nous devons accepter notre place sans flex, une fois que nous sommes sur que [[Dieu]] nous a réservé une place au ciel
 ### Méconnaissance de ses faiblesses et échecs
-`Matthieu 26:31-36` : [[Simon Pierre|Pierre]] avait un niveau d'orgueil similaire à [[Judas]] en ne voulant pas accepter l'ordre de [[Dieu]]
-> Ou on accepte ou on refuse l'ordre, mais le discuter est une marche d'orgueil
+[[1er Evangile - Matthieu#Versets 30 à 35|Matthieu 26:31-35]] : [[Simon Pierre|Pierre]] avait un niveau d'orgueil similaire à [[Judas]] en ne voulant pas accepter l'ordre de [[Dieu]]
+> Ou on accepte ou on refuse l'ordre, mais **discuter l'ordre de [[Dieu]] est une marche d'orgueil**
 
 Nous ne sommes pas le centre, mais c'est [[Dieu]] qui est au centre
 ### Refus de montrer ses échecs
