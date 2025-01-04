@@ -79,6 +79,21 @@ Comme décrit dans la note [[Parabole des vierges]], il est ici question de la r
 
 27) Mes brebis ==écoutent ma voix==, [[Jésus|je]] les connais et elles me suivent.
 28) Je leur donne la vie éternelle : jamais elles ne périront et personne ne pourra les arracher de ma main.
+## Chapitre 12
+### Versets 1 à 11
+Intitulé **[[Jésus]] chez le ressuscité**
+
+1) Six jours avant la Pâque, [[Jésus|Jésus]] se rendit à [[Béthanie|Béthanie]] où habitait [[Lazare|Lazare]], qu’il avait ressuscité.
+2) On prépara là un festin en [[Jésus|son]] honneur. [[Marthe|Marthe]] s’occupait du service, et [[Lazare|Lazare]] avait pris place à table avec [[Jésus|Jésus]].
+3) [[Marie de Béthanie|Marie]] prit alors un demi-litre de nard pur, un parfum très cher : [[Marie de Béthanie|elle]] le répandit sur les pieds de [[Jésus|Jésus]] et les essuya avec [[Marie de Béthanie|ses]] cheveux. Toute la maison fut remplie de l’odeur de ce parfum.
+4) [[Judas|Judas Iscariot]], l’un des disciples de [[Jésus|Jésus]], celui qui allait le trahir, dit :
+5) Pourquoi n’a-t-on pas vendu ce parfum ? On en aurait tiré au moins trois cents pièces d’argent qu’on aurait pu donner aux pauvres !
+6) S’[[Judas|il]] parlait ainsi, ce n’était pas parce qu’[[Judas|il]] se souciait des pauvres ; mais [[Judas|il]] était voleur et, comme c’était [[Judas|lui]] qui gérait la bourse commune, [[Judas|il]] gardait pour lui ce qu’on y mettait.
+7) Mais [[Jésus|Jésus]] intervint : **Laisse-[[Marie de Béthanie|la]] faire ! C’est pour le jour de [[Jésus|mon]] enterrement qu’[[Marie de Béthanie|elle]] a réservé ce parfum.**
+8) **Des pauvres, vous en aurez toujours autour de vous ! Tandis que [[Jésus|moi]], vous ne m’aurez pas toujours avec vous.**
+9) Entre-temps, on apprit que [[Jésus|Jésus]] était à [[Béthanie|Béthanie]]. Les gens s’y rendirent en foule, non seulement à cause de [[Jésus|Jésus]], mais aussi pour voir [[Lazare|Lazare]] qu’il avait ressuscité.
+10) Alors les chefs des prêtres décidèrent aussi de faire mourir [[Lazare|Lazare]]
+11) Car, à cause de [[Lazare|lui]], beaucoup se détournaient d’eux pour croire en [[Jésus|Jésus]].
 ## Chapitre 14
 ### Versets 1 à 14
 Intitulé **Le chemin, la vérité, la vie** par [[Bible#^358f23|BDS]]

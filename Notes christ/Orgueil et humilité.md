@@ -25,10 +25,12 @@ Cette façon d'être, produit de mauvais fruits
 
 Nous ne sommes pas le centre, mais c'est [[Dieu]] qui est au centre
 ### Refus de montrer ses échecs
-`Jean 12:4-8` : s'arranger comme ça c'est cacher son orgueil et ses faiblesses. Sans en parler les autres ne peuvent pas prier pour nous
+[[4eme Evangile - Jean#Versets 1 à 11|Jean 12:4-8]] : s'arranger comme ça c'est cacher son orgueil et ses faiblesses.
+> Sans en parler les autres ne peuvent pas prier pour nous
 ### Difficultés dans le travail d'équipe
-`1 Corinthiens 1:10-15` : ce n'est pas parce que l'organisation de frères et sœurs de l'[[Eglise]] est de cette façon doit être obligatoirement partout.
-En revanche, pour pouvoir correctement réaliser l'œuvre de [[Dieu]], on doit s'adapter aux autres pour correctement travailler en équipe
+[[7&8 - Corinthiens#Versets 10 à 17|1 Corinthiens 1:10-15]] : ce n'est pas parce que l'organisation de frères et sœurs de l'Eglise est de cette façon qu'elle doit être obligatoirement la même partout.
+
+En revanche, pour pouvoir correctement réaliser l'œuvre de [[Dieu]], on doit **s'adapter aux autres** pour correctement travailler en équipe
 ### Compétition
 `1 Samuel 18:5-10` : l'orgueil irrite, puis suscite à flouter la vérité, ou de mettre un rideau sur certaines choses, et cela développe de la jalousie
 > Il ne faut pas non plus continuer à regarder à ce qui nous fait chuter, mais aussi aux bénédictions que nous a déjà donné [[Dieu]]
