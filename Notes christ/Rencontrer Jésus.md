@@ -7,7 +7,7 @@ Rencontre de Zachée : il a fait ce qu'il a pu pour voir et entendre [[Jésus]] 
 
 Rencontre de la Samaritaine : elle voulait rencontrer personne, mais elle est tombée sur [[Jésus]]
 `Jean 4:13-15` : sa vie a été transformé alors que ce n'était pas prévu
--> de sa honte elle est désormais partie parler à l'évangile `Jean 4:29`
+-> de sa honte elle est désormais partie parler de l'[[Note sur l'évangile|Evangile]] `Jean 4:29`
 
 Rencontre de la femme perdant du sang : elle a essayé d'atteindre [[Jésus]] peu importe la manière. Il l'a guéri grâce à sa foi.
 

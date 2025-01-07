@@ -26,7 +26,7 @@ Cette façon d'être, produit de mauvais fruits
 Nous ne sommes pas le centre, mais c'est [[Dieu]] qui est au centre
 ### Refus de montrer ses échecs
 [[4eme Evangile - Jean#Versets 1 à 11|Jean 12:4-8]] : s'arranger comme ça c'est cacher son orgueil et ses faiblesses.
-> Sans en parler les autres ne peuvent pas prier pour nous
+> Sans en parler, les autres ne peuvent pas prier pour nous
 ### Difficultés dans le travail d'équipe
 [[7&8 - Corinthiens#Versets 10 à 17|1 Corinthiens 1:10-15]] : ce n'est pas parce que l'organisation de frères et sœurs de l'Eglise est de cette façon qu'elle doit être obligatoirement la même partout.
 
