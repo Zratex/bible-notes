@@ -57,6 +57,31 @@ Intitulé **L'inefficacité de la [[La Loi de Dieu|Loi]] et l'efficacité du sac
 17) Puis [[Dieu|il]] ajoute :
     *[[Dieu|Je]] ne tiendrai plus compte ni de leurs péchés, ni de leurs fautes.*
 18) Or, lorsque les péchés ont été pardonnés, il n’est plus nécessaire de présenter une offrande pour les ôter.
+### Versets 19 à 39
+Intitulé **Ne pas abandonner son assurance** par [[Bible#^358f23|BDS]]
+
+19) Ainsi donc, frères et sœurs, nous avons une pleine liberté pour entrer dans le lieu très saint, grâce au sang du sacrifice de [[Jésus|Jésus]].
+20) [[Jésus|Il]] nous en a ouvert le chemin, un chemin nouveau et vivant à travers le rideau du sanctuaire, c’est-à-dire à travers son propre corps.
+21) Ainsi, nous avons un grand-prêtre éminent placé à la tête de la maison de [[Dieu|Dieu]].
+22) Approchons-nous donc de [[Dieu]] avec un cœur sincère, avec la pleine assurance que donne la foi, le cœur purifié de toute mauvaise conscience, et le corps lavé d’une eau pure.
+23) Restons fermement attachés à l’espérance que nous reconnaissons comme vraie, sans fléchir, car celui qui nous a fait les promesses est fidèle.
+24) Et veillons les uns sur les autres pour nous encourager mutuellement à l’amour et à la pratique du bien.
+25) Ne délaissons pas nos réunions, comme certains en ont pris l’habitude. Au contraire, encourageons-nous mutuellement, et cela d’autant plus que vous voyez se rapprocher le jour du Seigneur.
+26) En effet, si, après avoir reçu la connaissance de la vérité, nous vivons délibérément dans le péché, il ne reste plus pour nous de sacrifice pour les péchés.
+27) La seule perspective est alors l’attente terrifiante du jugement et du feu ardent qui embrasera ceux qui se révoltent contre [[Dieu|Dieu]].
+28) Celui qui désobéit à la [[La Loi de Dieu|Loi]] de [[Moïse|Moïse]] est *[[5 - Deutéronome#Chapitre 17|mis à mort sans pitié, sur la déposition de deux ou trois témoins]]*.
+29) A votre avis, si quelqu’un couvre de mépris le [[Jésus|Fils]] de [[Dieu|Dieu]], s’il considère comme sans valeur le sang de l’alliance, par lequel il a été purifié, s’il outrage le [[Saint-Esprit|Saint-Esprit]], qui nous transmet la grâce divine, ne pensez-vous pas qu’il mérite un châtiment plus sévère encore ?
+30) Nous connaissons bien celui qui a déclaré : *[[5 - Deutéronome#Versets 26 à 42|C’est à moi qu’il appartient de faire justice ; c’est moi qui rendrai à chacun son dû, et encore : Le Seigneur jugera son peuple]]*.
+31) Il est terrible de tomber entre les mains du [[Dieu|Dieu vivant]] !
+32) Rappelez-vous au contraire les premiers temps où, après avoir été éclairés par [[Dieu|Dieu]], vous avez enduré les souffrances d’un rude combat.
+33) Car tantôt vous avez été exposés publiquement aux injures et aux mauvais traitements, tantôt vous vous êtes rendus solidaires de ceux qui étaient traités de cette manière-là.
+34) Oui, vous avez pris part à la souffrance des prisonniers et vous avez accepté avec joie d’être dépouillés de vos biens, car vous vous saviez en possession de richesses plus précieuses, et qui durent toujours.
+35) N’abandonnez donc pas votre assurance : une grande récompense lui appartient.
+36) Car il vous faut de la persévérance, afin qu’après avoir accompli la volonté de [[Dieu|Dieu]] vous obteniez ce qu’il a promis.
+37) *[[23 - Esaïe#Versets 20 et 21|Encore un peu de temps, un tout petit peu de temps]]*, et *[[35 - Habakuk#Versets 1 à 4|celui qui doit venir viendra, ╵il ne tardera pas.]]*
+38) *[[35 - Habakuk#Versets 1 à 4|Celui qui est juste à mes yeux ╵vivra par la foi,]]*
+    *[[35 - Habakuk#Versets 1 à 4|mais s’il retourne en arrière, ╵je ne prends pas plaisir en lui.]]*
+39) Quant à nous, nous ne sommes pas de ceux qui retournent en arrière pour aller se perdre, mais de ceux qui ont la foi pour être sauvés.
 ## Chapitre 11
 Intitulé **Foi et endurance - la foi des témoins de l'ancienne alliance** par [[Bible#^358f23|BDS]]
 

@@ -15,11 +15,11 @@ Il faut donc Changer d'espace si l'on veut communiquer avec lui
 [[Adam]] et [[Eve]] ont perdus la communion personnelle avec [[Dieu]]
 > Perdre la source de vie à mener la mort
 
-[[Satan]] a mis le doute sur la parole de Dieu, ce qui nous a éloigné de la source.
+[[Satan]] a mis le doute sur la parole de [[Dieu]], ce qui nous a éloigné de la source.
 C'est pourquoi nous devons donc chercher d'avoir une relation avec lui car rien d'autre peux nous satisfaire.
 
 `Jean 1:1-4` ici on parle de [[Jésus]]
-`Colossiens 1-16-17` tout existe grâce à la [[Bible|parole de Dieu]], personnifié en [[Jésus]]
+`Colossiens 1:16-17` tout existe grâce à la [[Bible|parole de Dieu]], personnifié en [[Jésus]]
 -> `Jean 1:14` et `Jean 1:17`
 > Donc [[Jésus]] est le cadeau accessible à tous
 

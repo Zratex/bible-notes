@@ -9,10 +9,10 @@ Intitulé **Introduction : la [[Immuabilité de la parole|parole]] de [[Dieu]] e
 5) La lumière brille dans les ténèbres et les ténèbres ne l’ont pas étouffée.
 6) Un homme parut, envoyé par [[Dieu]] ; il s’appelait [[Jean]].
 7) Il vint pour être un témoin de la lumière, afin que tous les hommes croient par [[Jean|lui]].
-8) Il n’était pas [[Jean|lui-même]] la lumière, mais sa mission était d’être le témoin de la lumière.
+8) [[Jean|Il]] n’était pas [[Jean|lui-même]] la lumière, mais sa mission était d’être le témoin de la lumière.
 9) Celle-ci était la véritable lumière, celle qui, en venant dans le monde, éclaire tout être humain.
 10) [[Jésus|Celui qui est la Parole]] était déjà dans le monde, puisque [[Dieu]] a créé le monde par [[Jésus|lui]], et pourtant, le monde ne l’a pas reconnu. 
-11) Il est venu chez lui, et les siens ne l’ont pas accueilli.
+11) [[Jésus|Il]] est venu chez lui, et les siens ne l’ont pas accueilli.
 12) Certains pourtant l’ont accueilli ; ils ont cru en [[Jésus|lui]]. A tous ceux-là, il a accordé le privilège de devenir enfants de [[Dieu]].
 13) Ce n’est pas par une naissance naturelle, ni sous l’impulsion d’un désir, ou encore par la volonté d’un homme, qu’ils le sont devenus ; mais c’est de [[Dieu]] qu’ils sont nés.
 14) [[Jésus|Celui qui est la Parole]] est devenu homme et il a vécu parmi nous. Nous avons contemplé sa gloire, la gloire du [[Jésus|Fils]] unique envoyé par son [[Dieu|Père]] : plénitude de grâce et de vérité !
@@ -54,23 +54,23 @@ Intitulé **Les premiers Disciples** par [[Bible#^358f23|BDS]]
 35) Le lendemain, [[Jean Baptiste|Jean]] était de nouveau là, avec deux de ses disciples.
 36) Il vit [[Jésus]] qui passait, et il dit : Voici l’Agneau de [[Dieu]] !
 37) Les deux disciples entendirent les paroles de [[Jean Baptiste|Jean]] et se mirent à suivre [[Jésus]].
-38) [[Jésus|Celui-ci]] se retourna, vit qu’ils le suivaient et leur demanda : Que désirez-vous ?
+38) [[Jésus|Celui-ci]] se retourna, vit qu’ils le suivaient et leur demanda : **Que désirez-vous ?**
     – Rabbi – c’est-à-dire Maître – , lui dirent-ils, où habites-tu ?
-39)  – Venez, leur répondit-[[Jésus|il]], et vous le verrez. Ils l’accompagnèrent donc et virent où il habitait. Il était environ quatre heures de l’après-midi. Ils passèrent le reste de la journée avec lui.
+39) **– Venez**, leur répondit-[[Jésus|il]], **et vous le verrez.** Ils l’accompagnèrent donc et virent où il habitait. Il était environ quatre heures de l’après-midi. Ils passèrent le reste de la journée avec lui.
 40) [[André]], le frère de [[Simon Pierre]], était l’un de ces deux hommes qui, sur la déclaration de [[Jean Baptiste|Jean]], s’étaient mis à suivre [[Jésus]].
 41) [[André|Il]] alla tout d’abord voir son frère [[Simon Pierre|Simon]] et lui dit : Nous avons trouvé le [[Jésus|Messie]] (ce qui se traduit par [[Jésus|Christ]]).
-42) Et [[André|il]] le conduisit auprès de [[Jésus]]. [[Jésus]] le regarda attentivement et lui dit : Tu es [[Simon Pierre|Simon]], fils de Jonas. Eh bien, on t’appellera Céphas – ce qui veut dire Pierre.
-43) Le lendemain, [[Jésus]] décida de retourner en [[Lieux historiques/Régions géographiques/Galilée|Galilée]]. Il rencontra [[Philippe]] et lui dit : Suis-moi !
+42) Et [[André|il]] le conduisit auprès de [[Jésus]]. [[Jésus]] le regarda attentivement et lui dit : **Tu es [[Simon Pierre|Simon]], fils de Jonas. Eh bien, on t’appellera Céphas – ce qui veut dire Pierre.**
+43) Le lendemain, [[Jésus]] décida de retourner en [[Lieux historiques/Régions géographiques/Galilée|Galilée]]. Il rencontra [[Philippe]] et lui dit : **Suis-moi !**
 44) [[Philippe]] était originaire de [[Bethsaïda]], la ville d’[[André]] et de [[Simon Pierre|Pierre]].
 45) [[Philippe]], à son tour, alla voir [[Nathanaël]] et lui dit : Nous avons trouvé celui dont [[Moïse]] a parlé dans la [[La Loi de Dieu|Loi]] et que les prophètes ont annoncé : c’est [[Jésus]], le fils de [[Joseph de Nazareth|Joseph]], de la ville de [[Nazareth]].
 46) – De [[Nazareth]] ? répondit [[Nathanaël]]. Que peut-il venir de bon de [[Nazareth]] ?
     – Viens et vois toi-même ! répondit [[Philippe]].
-47) [[Jésus]] vit [[Nathanaël]] s’avancer vers lui. Alors il dit : Voilà un véritable [[Israël|Israélite]], un homme d’une parfaite droiture.
+47) [[Jésus]] vit [[Nathanaël]] s’avancer vers lui. Alors il dit : **Voilà un véritable [[Israël|Israélite]], un homme d’une parfaite droiture.**
 48) – D’où me connais-[[Jésus|tu]] ? lui demanda [[Nathanaël]].
-    – Avant même que [[Philippe]] t’appelle, lui répondit [[Jésus]], lorsque tu étais sous le figuier, je t’ai vu.
+    **– Avant même que [[Philippe]] t’appelle**, lui répondit [[Jésus]], **lorsque tu étais sous le figuier, je t’ai vu.**
 49) – Maître, s’écria [[Nathanaël]], tu es le [[Jésus|Fils]] de [[Dieu]], tu es le Roi d’[[Israël]] !
-50) – [[Nathanaël|Tu]] crois, lui répondit [[Jésus]], parce que je t’ai dit que je t’ai vu sous le figuier ? Tu verras de bien plus grandes choses encore.
-51) Et [[Jésus|il]] ajouta : Oui, je vous l’assure, vous verrez le ciel ouvert et les anges de [[Dieu]] monter et descendre entre ciel et terre par l’intermédiaire du [[Jésus|Fils]] de l’homme.
+50) **– [[Nathanaël|Tu]] crois**, lui répondit [[Jésus]], **parce que je t’ai dit que je t’ai vu sous le figuier ? Tu verras de bien plus grandes choses encore.**
+51) Et [[Jésus|il]] ajouta : **Oui, je vous l’assure, vous verrez le ciel ouvert et les anges de [[Dieu]] monter et descendre entre ciel et terre par l’intermédiaire du [[Jésus|Fils]] de l’homme.**
 ## Chapitre 10
 ### Versets 22 à 42
 Intitulé **Fils de [[Dieu]] ou blasphémateur ?** par [[Bible#^358f23|BDS]]
@@ -79,6 +79,21 @@ Comme décrit dans la note [[Parabole des vierges]], il est ici question de la r
 
 27) Mes brebis ==écoutent ma voix==, [[Jésus|je]] les connais et elles me suivent.
 28) Je leur donne la vie éternelle : jamais elles ne périront et personne ne pourra les arracher de ma main.
+## Chapitre 12
+### Versets 1 à 11
+Intitulé **[[Jésus]] chez le ressuscité**
+
+1) Six jours avant la Pâque, [[Jésus|Jésus]] se rendit à [[Béthanie|Béthanie]] où habitait [[Lazare|Lazare]], qu’il avait ressuscité.
+2) On prépara là un festin en [[Jésus|son]] honneur. [[Marthe|Marthe]] s’occupait du service, et [[Lazare|Lazare]] avait pris place à table avec [[Jésus|Jésus]].
+3) [[Marie de Béthanie|Marie]] prit alors un demi-litre de nard pur, un parfum très cher : [[Marie de Béthanie|elle]] le répandit sur les pieds de [[Jésus|Jésus]] et les essuya avec [[Marie de Béthanie|ses]] cheveux. Toute la maison fut remplie de l’odeur de ce parfum.
+4) [[Judas|Judas Iscariot]], l’un des disciples de [[Jésus|Jésus]], celui qui allait le trahir, dit :
+5) Pourquoi n’a-t-on pas vendu ce parfum ? On en aurait tiré au moins trois cents pièces d’argent qu’on aurait pu donner aux pauvres !
+6) S’[[Judas|il]] parlait ainsi, ce n’était pas parce qu’[[Judas|il]] se souciait des pauvres ; mais [[Judas|il]] était voleur et, comme c’était [[Judas|lui]] qui gérait la bourse commune, [[Judas|il]] gardait pour lui ce qu’on y mettait.
+7) Mais [[Jésus|Jésus]] intervint : **Laisse-[[Marie de Béthanie|la]] faire ! C’est pour le jour de [[Jésus|mon]] enterrement qu’[[Marie de Béthanie|elle]] a réservé ce parfum.**
+8) **Des pauvres, vous en aurez toujours autour de vous ! Tandis que [[Jésus|moi]], vous ne m’aurez pas toujours avec vous.**
+9) Entre-temps, on apprit que [[Jésus|Jésus]] était à [[Béthanie|Béthanie]]. Les gens s’y rendirent en foule, non seulement à cause de [[Jésus|Jésus]], mais aussi pour voir [[Lazare|Lazare]] qu’il avait ressuscité.
+10) Alors les chefs des prêtres décidèrent aussi de faire mourir [[Lazare|Lazare]]
+11) Car, à cause de [[Lazare|lui]], beaucoup se détournaient d’eux pour croire en [[Jésus|Jésus]].
 ## Chapitre 14
 ### Versets 1 à 14
 Intitulé **Le chemin, la vérité, la vie** par [[Bible#^358f23|BDS]]
@@ -160,6 +175,6 @@ Intitulé **La mort de [[Jésus]]** par [[Bible#^358f23|BDS]]
 32) Les [[Romains|soldats]] vinrent donc et brisèrent les jambes au premier des criminels crucifiés avec [[Jésus]], puis à l’autre.
 33) Quand ils arrivèrent à [[Jésus]], ils constatèrent qu’[[Jésus|il]] était déjà mort et ils ne lui brisèrent pas les jambes.
 34) L’un des [[Romains|soldats]] lui enfonça sa lance dans le côté, et aussitôt il en sortit du sang et de l’eau.
-35) Celui qui rapporte ces faits, les a vus de ses propres yeux et son témoignage est vrai. Il sait parfaitement qu’il dit la vérité pour que, vous aussi, vous croyiez.
+35) [[Jean|Celui]] qui rapporte ces faits, les a vus de ses propres yeux et son témoignage est vrai. [[Jean|Il]] sait parfaitement qu’il dit la vérité pour que, vous aussi, vous croyiez.
 36) En effet, tout cela est arrivé pour que se réalise cette parole de l’[[Ancien Testament|Ecriture]] : *Aucun de ses os ne sera brisé*.
 37) De plus, un autre [[Ancien Testament|texte]] déclare : *Ils tourneront leurs regards vers celui qu’ils ont transpercé.*

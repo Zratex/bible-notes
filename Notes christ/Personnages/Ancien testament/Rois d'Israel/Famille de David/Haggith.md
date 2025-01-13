@@ -1,0 +1,1 @@
+Une des femmes de [[David]], elle est la mère de [[Adoniya]]

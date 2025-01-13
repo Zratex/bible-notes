@@ -25,8 +25,20 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Orgueil et humilité.md",
+                "file": "Lieux historiques/Royaumes/Royaume de Judée.md",
                 "mode": "preview",
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "ce011568f17a5a83",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Orgueil et humilité.md",
+                "mode": "source",
                 "source": false
               }
             }
@@ -52,7 +64,7 @@
             }
           }
         ],
-        "currentTab": 1
+        "currentTab": 2
       }
     ],
     "direction": "vertical"
@@ -118,7 +130,7 @@
         "state": {
           "type": "backlink",
           "state": {
-            "file": "Orgueil et humilité.md",
+            "file": "Temps d'apostasie.md",
             "collapseAll": false,
             "extraContext": false,
             "sortOrder": "alphabetical",
@@ -135,7 +147,7 @@
         "state": {
           "type": "outgoing-link",
           "state": {
-            "file": "Orgueil et humilité.md",
+            "file": "Temps d'apostasie.md",
             "linksCollapsed": false,
             "unlinkedCollapsed": true
           }
@@ -147,7 +159,7 @@
         "state": {
           "type": "outline",
           "state": {
-            "file": "Orgueil et humilité.md"
+            "file": "Temps d'apostasie.md"
           }
         }
       }
@@ -164,8 +176,17 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "0c56e92edbc71d8e",
+  "active": "af457e3e436e4eae",
   "lastOpenFiles": [
+    "Celui qui doit venir.md",
+    "Lieux historiques/Royaumes/Royaume de Judée.md",
+    "Lieux historiques/Royaumes/Israël.md",
+    "Lieux historiques/Villes/Bethléem.md",
+    "Référence Biblique/Ancien testament/5 - Livres poétiques/20 - Proverbes.md",
+    "Référence Biblique/Nouveau testament/4 - Lettres générales/19 - Jacques.md",
+    "Orgueil et humilité.md",
+    "Personnages/Jésus.md",
+    "Généalogie.md",
     "Temps d'apostasie.md",
     "Référence Biblique/Nouveau testament/4 - Lettres générales/25 - Jude.md",
     "Référence Biblique/Ancien testament/7 - Seconds livres prophétiques/38 - Zacharie.md",
@@ -183,16 +204,7 @@
     "Personnages/Nouveau testament/Hyménée.md",
     "Lieux historiques/Villes/Ephèse.md",
     "Référence Biblique/Nouveau testament/3 - Lettres de Paul/10 - Ephésiens.md",
-    "Personnages/Nouveau testament/Paul.md",
-    "Orgueil et humilité.md",
-    "Dieu n'a pas changé.md",
     "Enok",
-    "Lieux historiques/Régions géographiques/Mésopothamie.md",
-    "Relation.md",
-    "S'aimer pour aimer.md",
-    "Église prépare toi.md",
-    "Vie équilibré.md",
-    "Daniel a ouvert les fenêtres.md",
     "Lieux historiques/Images/Thyatire.png",
     "Lieux historiques/Images/Philadelphie.PNG",
     "Lieux historiques/Images/Philippe (ville).PNG",

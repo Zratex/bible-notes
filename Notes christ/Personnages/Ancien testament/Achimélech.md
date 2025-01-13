@@ -1,0 +1,1 @@
+Ancien grand prêtre de `Nob`, père de [[Abiatar]], il est celui qui a donné du pain alors qu'il n'avait pas le droit à [[David]] pendant son exil de la face de [[Saül]]

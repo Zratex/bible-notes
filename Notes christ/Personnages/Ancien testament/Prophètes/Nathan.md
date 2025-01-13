@@ -1,0 +1,1 @@
+Vraisemblablement l'un des prophète principaux de la cour de [[David]]

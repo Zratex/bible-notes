@@ -1,0 +1,1 @@
+Eyn-Roguel (ou **En-rogel**, ou bien **Ein-Roguel**) est un point d'eau, donc désormais un puis près de [[Jérusalem]]. Sa localisation précise est inconnue

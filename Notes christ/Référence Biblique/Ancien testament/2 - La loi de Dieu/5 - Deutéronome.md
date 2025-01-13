@@ -57,6 +57,20 @@ Intitulé **Se garder de l'idolâtrie** par [[Bible#^358f23|BDS]]
 19) Vous les enseignerez à vos enfants et vous leur en parlerez, chez vous dans votre maison et quand vous marcherez sur la route, quand vous vous coucherez et quand vous vous lèverez.
 20) Vous les inscrirez sur les poteaux de votre maison et sur les montants de vos portes.
 21) Alors vos jours et ceux de vos enfants dans le pays que l’[[Dieu|Eternel]] a promis par serment de donner à vos ancêtres dureront aussi longtemps que le ciel restera au-dessus de la terre.
+## Chapitre 17
+1) Tu n’offriras pas à l’[[Dieu|Eternel]] ton [[Dieu|Dieu]] un animal – bœuf ou mouton – ayant quelque défaut ou malformation. Ce serait une abomination aux yeux de l’[[Dieu|Eternel]] ton [[Dieu]].
+2) Il se peut que vous trouviez parmi vous, dans l’une des villes que l’[[Dieu|Eternel]] votre [[Dieu]] va vous donner, un homme ou une femme qui fasse ce que l’[[Dieu|Eternel]] votre [[Dieu]] considère comme mal et qui transgresse son alliance,
+3) en allant rendre un culte à d’autres dieux et se prosterner devant eux, devant le soleil, la lune ou toute la multitude des étoiles, contrairement à ce que j’ai ordonné.
+4) Dès que le fait vous aura été rapporté et que vous en aurez connaissance, vous ferez une enquête minutieuse. Si la chose est vraie, s’il est établi qu’une telle abomination a été commise en [[Israël|Israël]],
+5) vous amènerez aux portes de la ville celui ou celle qui s’est rendu coupable de cette mauvaise action, et vous l’exécuterez par lapidation.
+6) C’est seulement sur la déposition de deux ou de trois témoins qu’on le mettra à mort, les déclarations d’un seul témoin ne suffiront pas pour cela.
+7) Les témoins seront les premiers à lui jeter des pierres pour le mettre à mort, et le reste du peuple interviendra ensuite. Ainsi, vous ferez disparaître le mal du milieu de vous.
+8) S’il se présente une affaire de meurtre, de litige, de coups et blessures ou quelque autre affaire qu’il est trop difficile au tribunal local de traiter, vous vous rendrez au lieu que l’[[Dieu|Eternel]] votre [[Dieu]] aura choisi
+9) et vous irez trouver les prêtres-[[Lévi|lévites]] et le juge qui sera alors en fonction. Vous les consulterez, et ils rendront pour vous leur verdict.
+10) Alors vous vous conformerez au verdict qu’ils auront rendu dans le lieu que l’[[Dieu|Eternel]] aura choisi, et vous aurez soin de suivre pleinement leurs instructions.
+11) Vous agirez selon les instructions qu’ils vous auront données et selon le verdict qu’ils auront rendu sans vous en écarter ni dans un sens ni dans l’autre.
+12) Si quelqu’un refuse par [[Orgueil et humilité|orgueil]] d’écouter le prêtre qui se tient là au service de l’[[Dieu|Eternel]] votre [[Dieu]], ou le juge, cet homme sera puni de mort. Vous ferez disparaître ainsi le mal du milieu d’[[Israël|Israël]].
+13) En l’apprenant, tout le peuple sera saisi de crainte et personne d’autre n’osera plus agir avec tant d’[[Orgueil et humilité|orgueil]].
 ## Chapitre 18
 ### Versets 14 à 22
 Intitulé **Les prophètes** par [[Bible#^358f23|BDS]]
@@ -115,3 +129,60 @@ Intitulé **La vie et la mort** par [[Bible#^358f23|BDS]]
 18) [[Moïse|je]] vous préviens dès aujourd’hui que vous périrez à coup sûr. Vous ne vivrez pas longtemps dans le pays au-delà du [[Jourdain]] où vous vous rendez pour en prendre possession.
 19) [[Moïse|Je]] prends aujourd’hui le ciel et la terre à témoins : je vous offre le choix entre la vie et la mort, entre la bénédiction et la malédiction. Choisissez donc la vie, afin que vous viviez, vous et vos descendants.
 20) Choisissez d’aimer l’[[Dieu|Eternel]] votre [[Dieu]], de lui obéir et de lui rester attachés, car c’est lui qui vous fait vivre et qui pourra vous accorder de passer de nombreux jours dans le pays que l’[[Dieu|Eternel]] a promis par serment de donner à vos ancêtres [[Abraham]], [[Isaac]] et [[Jacob]].
+## Chapitre 32
+### Versets 26 à 42
+Intitulé **Contre les ennemis du peuple de l’Eternel** par [[Bible#^358f23|BDS]]
+
+26) Je voulais tout d’abord ╵les réduire à néant
+    et faire disparaître ╵jusqu’à leur souvenir ╵du milieu des humains.
+27) Mais ce que je craignais ╵c’est que les ennemis ╵y trouvent l’occasion ╵de venir m’insulter,
+    et que leurs adversaires ╵se méprennent et disent :
+    “C’est par notre puissance ╵que nous avons vaincu”,
+    et non : “C’est l’[[Dieu|Eternel]] ╵qui a fait tout cela !” »
+28) Car voilà bien un peuple ╵dont les projets avortent ;
+    ils n’ont pas de bon sens.
+29) S’ils en avaient un peu, ╵ils auraient bien compris,
+    ils auraient réfléchi ╵à ce qui les attend.
+30) Comment est-il possible ╵qu’un guerrier à lui seul ╵en poursuive un millier,
+    ou que deux seulement ╵en fassent fuir dix mille,
+    si [[Dieu|Dieu]], qui fut toujours ╵leur rocher protecteur, ╵ne les avait vendus,
+    si l’[[Dieu|Eternel]] n’avait ╵livré son peuple à d’autres ?
+31) Car leur rocher n’est pas ╵comme notre rocher.
+    Même nos ennemis ╵devront le reconnaître.
+32) Ils sont comme une vigne ╵transplantée de [[Sodome|Sodome]],
+    ce sont des plantations ╵qui viennent de [[Gomorrhe|Gomorrhe]].
+    Ils ne font que produire ╵des raisins vénéneux,
+    leurs grappes sont amères.
+33) Leur vin est un venin ╵craché par des serpents,
+    c’est un poison mortel ╵craché par des vipères.
+34) Mais je tiens en réserve,
+    scellé dans mes trésors, ╵de quoi faire justice.
+35) C’est à moi qu’il revient ╵de leur payer leur dû
+    au moment où leur pied ╵viendra à trébucher,
+    car le jour de leur ruine ╵se rapproche à grands pas,
+    le sort prévu pour eux ╵se hâte de venir.
+36) Car voici : l’[[Dieu|Eternel]] ╵rend justice à son peuple,
+    et [[Dieu|il]] a compassion ╵de nous ses serviteurs
+    quand [[Dieu|il]] constatera ╵qu’ils sont à bout de forces,
+    qu’il n’y a plus chez eux ╵ni esclave, ni libre.
+37) Alors [[Dieu|il]] s’écriera : ╵« Où donc sont leurs faux dieux ?
+    Où donc est le rocher ╵auquel ils se confiaient ?
+38) Et ces dieux qui mangeaient ╵la graisse des victimes,
+    et qui buvaient le vin ╵offert en libation ?
+    A présent qu’ils se lèvent ╵et viennent vous aider !
+    Qu’ils soient votre refuge !
+39) Reconnaissez-le donc : ╵C’est [[Dieu|moi]] seul qui suis [[Dieu|Dieu]],
+    il n’y en a pas d’autre !
+    C’est [[Dieu|moi]] qui fais mourir ╵et [[Dieu|moi]] seul qui fais vivre,
+    c’est [[Dieu|moi]] qui ai blessé, ╵c’est [[Dieu|moi]] qui guérirai,
+    et de ma main, ╵nul ne peut délivrer.
+40) La main levée au ciel, [[Dieu|j]]’atteste
+    et [[Dieu|je]] déclare : ╵Aussi vrai que [[Dieu|je]] vis ╵à perpétuité,
+41) voici : [[Dieu|j]]’aiguiserai ╵la lame de l’épée,
+    et [[Dieu|ma]] main brandira ╵l’arme du jugement,
+    [[Dieu|je]] ferai rendre compte ╵à tous mes ennemis,
+    [[Dieu|je]] paierai de retour ╵tous ceux qui me haïssent.
+42) [[Dieu|J]]’enivrerai mes flèches ╵du sang des adversaires,
+    mon épée pourfendra ╵la chair de ses victimes
+    et la tête des chefs ╵des peuples ennemis.
+    [[Dieu|Je]] verserai le sang ╵des blessés, des captifs. »

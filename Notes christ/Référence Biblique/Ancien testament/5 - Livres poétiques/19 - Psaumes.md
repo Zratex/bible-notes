@@ -1,3 +1,4 @@
+Les psaumes 113 à 118 sont les psaumes chantés au repas de la Pâque.
 ## Chapitre 2
 Intitulé **L'intronisation du Roi** par [[Bible#^358f23|BDS]]
 

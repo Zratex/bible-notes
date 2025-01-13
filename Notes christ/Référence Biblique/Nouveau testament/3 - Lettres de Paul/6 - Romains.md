@@ -74,7 +74,7 @@ Intitulé **Vivre conduits par l'[[Saint-Esprit|Esprit]]**
 8) Les hommes livrés à eux-mêmes sont incapables de plaire à [[Dieu]].
 9) Vous, au contraire, vous n’êtes pas livrés à vous-mêmes, mais vous dépendez de l’[[Saint-Esprit|Esprit]], puisque l’[[Saint-Esprit|Esprit]] de [[Dieu]] habite en vous. Si quelqu’un n’a pas l’[[Saint-Esprit|Esprit]] de [[Jésus|Christ]], il ne lui appartient pas.
 10) Or, si [[Jésus|Christ]] est en vous, votre corps reste mortel à cause du péché, mais l’[[Saint-Esprit|Esprit]] est source de vie, parce que vous avez été déclarés justes.
-11) Et si l’[[Saint-Esprit|Esprit]] de celui qui a ressuscité [[Jésus]] habite en vous, celui qui a ressuscité [[Jésus|Christ]] rendra aussi la vie à votre corps mortel par son Esprit qui habite en vous.
+11) Et si l’[[Saint-Esprit|Esprit]] de celui qui a ressuscité [[Jésus]] habite en vous, celui qui a ressuscité [[Jésus|Christ]] rendra aussi la vie à votre corps mortel par son [[Saint-Esprit|Esprit]] qui habite en vous.
 12) Ainsi donc, frères et sœurs, si nous avons une obligation, ce n’est pas celle de vivre à la manière de l’homme livré à lui-même.
 13) Car, si vous vivez à la manière de l’homme livré à lui-même, vous mourrez, mais si, par l’[[Saint-Esprit|Esprit]], vous faites mourir les actes mauvais que vous accomplissez dans votre corps, vous vivrez.
 14) Car ceux qui sont conduits par l’[[Saint-Esprit|Esprit]] de [[Dieu]] sont fils de [[Dieu]].

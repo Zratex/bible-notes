@@ -1,0 +1,1 @@
+**Marthe de [[Béthanie]]** est la sœur de [[Lazare]] et [[Marie de Béthanie]]

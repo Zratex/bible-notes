@@ -1,0 +1,1 @@
+Tsadoq (ou **Sadoq**) semble avoir été choisi par [[David]] pour être officier de [[Abiatar]]

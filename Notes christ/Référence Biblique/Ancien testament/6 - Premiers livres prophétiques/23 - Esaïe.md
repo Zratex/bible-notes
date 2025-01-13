@@ -76,6 +76,18 @@ Intitulé **Contre [[Babylone]]** par [[Bible#^358f23|BDS]]
     et les chacals ╵viendront hurler dans ses palais.
     Son heure approche,
     et ses jours ne seront pas prolongés.
+## Chapitre 26
+### Versets 20 et 21
+Intitulé **Grâce et restauration** par [[Bible#^358f23|BDS]]
+
+20) Va, ô mon peuple, ╵et entre dans ta chambre,
+    sur toi ferme la porte,
+    cache-toi un instant,
+    le temps que passe la colère.
+21) Car l’[[Dieu|Eternel]] ╵va sortir de sa résidence
+    pour faire payer leurs péchés ╵aux habitants du monde,
+    et, ce jour-là, la terre ╵mettra à jour le sang ╵versé sur elle
+    et ne cachera plus ╵les victimes qu’elle dissimulait.
 ## Chapitre 29
 ### Versets 13 et 14
 Intitulé **De surprise en surprise** par la version [[Bible#^358f23|BDS]]
@@ -146,6 +158,46 @@ Intitulé **L'anéantissement d'[[Edom]]** par [[Bible#^358f23|BDS]]
     il les y couvera ╵et les fera éclore sous son ombre.
     Là, les vautours ╵se rassembleront tous,
     chacun avec son compagnon.
+## Chapitre 35
+1) Que le pays désert ╵et que la terre aride ╵se réjouissent !
+   Que la steppe jubile ╵et se mette à fleurir ╵comme les lis !
+2) Que les fleurs y abondent ╵et que sa joie éclate :
+   qu’elle pousse des cris de joie !
+   La gloire du [[Phénécie|Liban]],
+   la splendeur du [[Mont Carmel|Carmel]] ╵et celle du Saron ╵lui sont données.
+   Là, on verra la gloire ╵de l’[[Dieu|Eternel]]
+   et la splendeur de notre [[Dieu|Dieu]].
+3) Fortifiez les mains défaillantes,
+   affermissez ╵les genoux chancelants.
+4) A ceux qui sont troublés
+   dites-leur : Soyez forts, ╵n’ayez aucune crainte,
+   votre [[Dieu]] va venir
+   pour la rétribution,
+   [[Dieu]] va régler ses comptes.
+   [[Dieu|Il]] va venir lui-même ╵pour vous sauver.
+5) Ce jour-là s’ouvriront ╵les oreilles des sourds
+   et les yeux des aveugles.
+6) Et alors le boiteux ╵bondira comme un cerf,
+   et le muet criera de joie,
+   car des eaux jailliront ╵dans le désert
+   et, dans la steppe, ╵des torrents couleront.
+7) La terre desséchée ╵se changera en lac,
+   et la terre altérée ╵en sources jaillissantes.
+   Des roseaux et des joncs croîtront
+   dans le repaire ╵où gîtaient les chacals.
+8) A travers le pays ╵passera un chemin frayé, ╵une route que l’on appellera ╵la route sainte.
+   Aucun impur n’y passera,
+   car c’est lui, l’[[Dieu|Eternel]], ╵qui marchera sur cette route.
+   Les insensés ne viendront pas ╵s’y égarer.
+9) Là il n’y aura pas de lion,
+   et les bêtes féroces ╵n’y auront pas accès :
+   on n’en trouvera pas.
+   C’est le peuple sauvé ╵qui marchera sur cette voie.
+10) Oui, ceux que l’[[Dieu|Eternel]] ╵aura libérés reviendront,
+    ils iront à [[Sion|Sion]] ╵avec des cris de joie.
+    Un bonheur éternel ╵couronnera leur tête,
+    ils auront en partage ╵la joie et l’allégresse,
+    tristesse et plaintes s’enfuiront.
 ## Chapitre 52
 ### Versets 7 à 12
 Intitulé **[[Dieu]] délivre** par la version [[Bible#^358f23|BDS]]
@@ -407,3 +459,58 @@ Pour les versets 7 et 8 qui vont suivre, il y a une référence par [[Bible#^358
 
 7) Leurs pieds courent au mal, et ils ont hâte de verser le sang innocent. Leurs pensées sont sans cesse orientées vers le mal, dévastation et destruction jalonnent leur parcours.
 8) Ils ne connaissent pas le chemin de la paix, et le droit est absent des routes qu’ils empruntent. Les sentiers qu’ils se tracent sont des voies tortueuses : quiconque s’y engage ╵ne connaît pas la paix.
+## Chapitre 61
+Intitulé **Messager d’une bonne nouvelle** par [[Bible#^358f23|BDS]]
+
+1) L’[[Saint-Esprit|Esprit]] de l’[[Dieu|Eternel]], ╵du [[Seigneur et non seulement sauveur|Seigneur]], est sur moi
+   car l’[[Dieu|Eternel]] m’a oint
+   pour annoncer aux humiliés ╵une bonne nouvelle.
+   Oui, [[Dieu|il]] m’a envoyé ╵afin de panser ceux ╵qui ont le cœur brisé,
+   d’annoncer aux captifs ╵leur délivrance
+   et à ceux qui sont prisonniers ╵leur mise en liberté,
+2) afin de proclamer, ╵pour l’[[Dieu|Eternel]] ╵une année de faveur
+   et un jour de rétribution ╵pour notre [[Dieu]],
+   afin de consoler ╵tous ceux qui mènent deuil,
+3) et d’apporter à ceux ╵qui, dans [[Sion|Sion]], sont endeuillés,
+   la splendeur au lieu de la cendre,
+   pour mettre sur leur tête ╵l’huile de l’allégresse ╵au lieu du deuil,
+   et pour les vêtir d’habits de louange ╵au lieu d’un esprit abattu,
+   afin qu’on les appelle ╵« Les chênes de justice,
+   la plantation de l’[[Dieu|Eternel]]
+   qui manifestent sa splendeur ».
+4) Car ils rebâtiront ╵les ruines d’autrefois
+   et ils relèveront ╵ce qui a été dévasté ╵par le passé.
+   Oui, ils restaureront ╵les villes ravagées,
+   les habitats détruits ╵depuis bien des générations.
+5) Des étrangers ╵viendront s’y établir,
+   ils feront paître vos troupeaux.
+   Ces gens seront vos laboureurs
+   et ils cultiveront ╵vos vergers et vos vignes.
+6) Mais vous, on vous appellera ╵« Prêtres de l’[[Dieu|Eternel]] » ;
+   on dira que vous êtes ╵servants de notre [[Dieu]].
+   Vous jouirez ╵des trésors des nations
+   et vous mettrez votre fierté ╵dans ce qui fait leur gloire.
+7) Au lieu de votre honte,
+   vous aurez double honneur,
+   et au lieu de l’opprobre,
+   vous pousserez des cris de joie ╵à cause de la part ╵que vous aurez.
+   Car, dans votre pays, ╵vous recevrez ╵un patrimoine double.
+   Il y aura pour vous ╵une joie éternelle.
+8) Moi, l’[[Dieu|Eternel]], ╵moi, j’aime la droiture.
+   [[Dieu|Je]] déteste le vol ╵avec sa perfidie.
+   [[Dieu|Je]] les rétribuerai ╵avec fidélité
+   et [[Dieu|je]] conclurai avec eux ╵une alliance éternelle.
+9) Leurs descendants seront connus ╵chez les nations,
+   et leur progéniture ╵parmi les peuples.
+   Tous ceux qui les verront ╵reconnaîtront en eux
+   une postérité ╵bénie par l’[[Dieu|Eternel]].
+10) Je serai plein de joie, ╵l’[[Dieu|Eternel]] en sera la source.
+    J’exulterai ╵à cause de mon [[Dieu]],
+    parce qu’[[Dieu|il]] m’aura revêtu ╵des habits du salut
+    et qu’[[Dieu|il]] m’aura enveloppé ╵du manteau de justice,
+    tout comme le marié ╵se pare d’un turban ╵tout comme un prêtre,
+    et comme la mariée ╵s’orne de ses bijoux.
+11) Comme la terre ╵fait pousser les graines germées
+    et comme le jardin ╵fait germer ses semences,
+    ainsi le [[Seigneur et non seulement sauveur|Seigneur]], l’[[Dieu|Eternel]], ╵va faire germer la justice ╵et la louange
+    aux yeux de tous les peuples.

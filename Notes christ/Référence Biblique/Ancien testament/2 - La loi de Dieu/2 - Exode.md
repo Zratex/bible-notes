@@ -1,3 +1,20 @@
+## Chapitre 6
+### Versets 1 à 13
+Intitulé **[[Dieu]] annonce son intervention** par [[Bible#^358f23|BDS]]
+
+1) L’[[Dieu|Eternel]] dit à [[Moïse]] : Maintenant, tu vas voir ce que je vais faire au [[Pharaon|pharaon]]. Sous l’emprise d’une main puissante, non seulement il laissera partir [[Israël|le peuple]], mais il le chassera lui-même de son pays.
+2) Puis [[Dieu|Dieu]] ajouta : Je suis l’[[Dieu|Eternel]].
+3) [[Dieu|Je]] me suis révélé à [[Abraham|Abraham]], à [[Isaac|Isaac]] et à [[Jacob|Jacob]] comme le [[Dieu|Dieu tout-puissant]], mais [[Dieu|je]] n’ai pas été connu par eux sous mon nom : l’[[Dieu|Eternel]].
+4) [[Dieu|Je]] me suis engagé par mon alliance avec eux à leur donner le pays de [[Canaan|Canaan]], ce pays où ils étaient étrangers et où ils ont mené une vie errante.
+5) De plus, [[Dieu|j]]’ai entendu les gémissements des [[Israël|Israélites]] réduits à l’esclavage par les [[Egypte|Egyptiens]], et [[Dieu|je]] me suis souvenu de mon alliance.
+6) C’est pourquoi dis-leur de ma part : « [[Dieu|Je]] suis l’[[Dieu|Eternel]] ! [[Dieu|Je]] vous soustrairai aux corvées auxquelles les [[Egypte|Egyptiens]] vous soumettent : [[Dieu|je]] vous libérerai de l’esclavage qu’[[Egypte|ils]] vous imposent, et [[Dieu|je]] vous délivrerai par la force de mon bras et en exerçant de terribles jugements.
+7) [[Dieu|Je]] vous prendrai pour mon peuple, et [[Dieu|je]] serai votre [[Dieu|Dieu]]. Ainsi vous saurez que [[Dieu|je]] suis l’[[Dieu|Eternel]] votre [[Dieu|Dieu]] qui vous affranchis des corvées que les [[Egypte|Egyptiens]] vous imposent.
+8) Puis [[Dieu|je]] vous ferai entrer dans [[Canaan|le pays]] que [[Dieu|j]]’ai juré de donner à [[Abraham|Abraham]], à [[Isaac|Isaac]] et à [[Jacob|Jacob]] ; [[Dieu|je]] vous [[Canaan|le]] donnerai pour qu’il vous appartienne, [[Dieu|moi]], l’[[Dieu|Eternel]]. »
+9) [[Moïse|Moïse]] répéta ces paroles aux [[Israël|Israélites]], mais [[Israël|ils]] ne [[Moïse|l]]’écoutèrent pas parce qu’[[Israël|ils]] étaient démoralisés, à cause de leur dur esclavage.
+10) L’[[Dieu|Eternel]] parla à [[Moïse|Moïse]] et lui dit :
+11) Va demander au [[Pharaon|pharaon]], roi d’[[Egypte|Egypte]], de laisser partir les [[Israël|Israélites]] de son pays.
+12) Mais [[Moïse|Moïse]] [[Dieu|lui]] répondit : Même les [[Israël|Israélites]] ne [[Moïse|m]]’ont pas écouté. Comment le [[Pharaon|pharaon]] [[Moïse|m]]’écouterait-il, [[Moïse|moi]] qui n’ai pas la parole facile ?
+13) L’[[Dieu|Eternel]] parla à [[Moïse|Moïse]] et à [[Aaron|Aaron]] et leur ordonna d’aller trouver les [[Israël|Israélites]] et le [[Pharaon|pharaon]], roi d’[[Egypte|Egypte]], pour faire sortir les [[Israël|Israélites]] d’[[Egypte|Egypte]].
 ## Chapitre 9
 ### Versets 13 à 35
 Intitulé **Septième fléau : la grêle** par [[Bible#^358f23|BDS]]

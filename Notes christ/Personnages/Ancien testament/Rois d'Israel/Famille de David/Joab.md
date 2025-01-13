@@ -1,0 +1,1 @@
+Joab (ou **Yoav**) est le fils de [[Tserouya]], donc neveu de [[David]].

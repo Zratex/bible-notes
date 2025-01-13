@@ -58,6 +58,35 @@ Intitulé **Le neuf et l’ancien** par [[Bible#^358f23|BDS]]
 37) **De même, personne ne met dans de vieilles outres du vin nouveau, sinon le vin nouveau les fait éclater, il se répand, et les outres sont perdues.**
 38) **Non, il faut mettre le vin nouveau dans des outres neuves.**
 39) **Bien sûr, quand on a bu du vin vieux, on n’en désire pas du nouveau ; en effet, on se dit : le vieux est meilleur.**
+## Chapitre 7
+### Versets 18 à 35
+Intitulé **[[Jésus]] et [[Jean Baptiste]]** par [[Bible#^358f23|BDS]]
+Ce passage fait écho à `Matthieu 11:2-11` et `Matthieu 11:16-19`
+
+18) [[Jean Baptiste|Jean]] fut informé par ses disciples de tout ce qui se passait. Il appela alors deux d’entre eux
+19) et les envoya auprès du [[Seigneur et non seulement sauveur|Seigneur]] pour demander : Es-tu celui qui devait venir, ou bien devons-nous en attendre un autre ?
+20) Ces hommes se présentèrent à [[Jésus|Jésus]] et lui dirent : C’est [[Jean Baptiste|Jean-Baptiste]] qui nous envoie. Voici ce qu’[[Jean Baptiste|il]] te fait demander : « Es-[[Jésus|tu]] celui qui devait venir, ou bien devons-nous en attendre un autre ? »
+21) Or, au moment où ils arrivaient, [[Jésus|Jésus]] guérit plusieurs personnes de diverses maladies et infirmités. [[Jésus|Il]] délivra des gens qui étaient sous l’emprise d’esprits mauvais et rendit la vue à plusieurs aveugles.
+22) [[Jésus|Il]] répondit alors aux envoyés : **Retournez auprès de [[Jean Baptiste|Jean]] et racontez-lui ce que vous avez vu et entendu : *[[23 - Esaïe#Chapitre 35|les aveugles voient, les paralysés marchent normalement, les lépreux sont purifiés, les sourds entendent, les morts ressuscitent]]*, *[[23 - Esaïe#Chapitre 61|la Bonne Nouvelle est annoncée aux pauvres]]*.**
+23) **Heureux celui qui ne perdra pas la foi à cause de [[Jésus|moi]] !**
+24) Après le départ des messagers de [[Jean Baptiste|Jean]], [[Jésus|Jésus]] saisit cette occasion pour parler de [[Jean Baptiste|Jean]] à la foule : **Qu’êtes-vous allés voir au désert ? Un roseau agité çà et là par le vent ?**
+25) **Qui donc êtes-vous allés voir ? Un homme habillé avec élégance ? Ceux qui portent des habits somptueux et qui vivent dans le luxe habitent les palais royaux.**
+26) **Mais qu’êtes-vous donc allés voir au désert ? Un prophète  ? Oui, assurément, et même bien plus qu’un prophète, c’est [[Jésus|moi]] qui vous le dis.**
+27) **Car c’est celui dont il est écrit :**
+    ***[[39 - Malachie#Versets 1 à 5|J’enverrai mon messager devant toi,]]***
+    ***[[39 - Malachie#Versets 1 à 5|il te préparera le chemin.]]***
+28) **[[Jésus|Je]] vous l’assure : parmi tous les hommes qui sont nés d’une femme, il n’y en a pas de plus grand que [[Jean Baptiste|Jean]]. Et pourtant, le plus petit dans le royaume de [[Dieu|Dieu]] est plus grand que lui.**
+29) Tous les gens du peuple et tous les collecteurs d’impôts qui ont écouté le message de [[Jean Baptiste|Jean]] et se sont fait baptiser par [[Jean Baptiste|lui]] ont reconnu que [[Dieu]] est juste.
+30) Mais les pharisiens et les enseignants de la [[La Loi de Dieu|Loi]], qui ont refusé de se faire baptiser par [[Jean Baptiste|lui]], ont rejeté la volonté de [[Dieu]] à leur égard.
+31) **A qui donc pourrais-[[Jésus|je]] comparer les gens de notre temps ? A qui ressemblent-ils ?**
+32) **Ils sont comme des enfants assis sur la place du marché qui se crient les uns aux autres :**
+    **Quand nous avons joué de la flûte,**
+    **vous n’avez pas dansé !**
+    **Et quand nous avons chanté des airs de deuil,**
+    **vous ne vous êtes pas mis à pleurer !**
+33) **En effet, [[Jean Baptiste|Jean-Baptiste]] est venu, [[Jean Baptiste|il]] ne mangeait pas de pain, [[Jean Baptiste|il]] ne buvait pas de vin. Qu’avez-vous dit alors ? « [[Jean Baptiste|Il]] a un démon en lui ! ».**
+34) **[[Jésus|Le Fils de l'homme]] est venu, [[Jésus|il]] mange et boit, et vous vous écriez : « Cet homme ne pense qu’à faire bonne chère et à boire du vin, [[Jésus|il]] est l’ami des collecteurs d’impôts et des pécheurs notoires. »**
+35) **Cependant, la [[Sagesse|sagesse]] de [[Dieu]] est reconnue comme telle par ceux qui la reçoivent.**
 ## Chapitre 9
 ### Versets 18 à 22
 Intitulé **Qui est vraiment [[Jésus]] ?** par [[Bible#^358f23|BDS]]

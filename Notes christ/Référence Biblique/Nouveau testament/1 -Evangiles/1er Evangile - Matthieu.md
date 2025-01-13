@@ -29,7 +29,7 @@ Intitulé **Les béatitudes** par [[Bible#^358f23|BDS]]
 11) **Heureux serez-vous quand les hommes vous insulteront et vous persécuteront, lorsqu’ils répandront toutes sortes de calomnies sur votre compte à cause de [[Jésus|moi]].**
 12) **Oui, réjouissez-vous alors et soyez heureux, car une magnifique récompense vous attend dans les cieux. Car vous serez ainsi comme les prophètes d’autrefois : eux aussi ont été persécutés avant vous de la même manière.**
 ## Chapitre 6
-Seconde partie de ce qui est appelé le "serment sur la montage " par [[Jésus]]
+Seconde partie de ce qui est appelé le "serment sur la montage" par [[Jésus]]
 ### Versets 1 à 18
 Intitulé **Contre l'hypocrisie religieuse** par [[Bible#^358f23|BDS]]
 
@@ -167,15 +167,27 @@ Intitulé **La parabole des dix jeunes filles** par [[Bible#^358f23|BDS]].
 12) Il leur répondit : « Vraiment, je vous l’assure : je ne sais pas qui vous êtes. »
 13) C’est pourquoi, ajouta [[Jésus]], tenez-vous en éveil, car vous ne savez ni le jour, ni l’heure de ma venue.
 ## Chapitre 26
+### Versets 30 à 35
+Intitulé **[[Jésus]] annonce le reniement de [[Simon Pierre|Pierre]]** par [[Bible#^358f23|BDS]]
+
+30) Après cela, ils chantèrent les [[19 - Psaumes|psaumes de la Pâque]]. Ensuite, ils sortirent pour se rendre au mont des Oliviers.
+31) [[Jésus|Jésus]] leur dit alors : **Cette nuit, ce qui m’arrivera vous ébranlera tous dans votre foi. En effet, il est écrit :**
+    ***[[38 - Zacharie#Versets 7 à 9|Je frapperai le berger,]]***
+    ***[[38 - Zacharie#Versets 7 à 9|et les brebis du troupeau seront dispersées.]]***
+32) **Néanmoins, quand [[Jésus|je]] serai ressuscité, [[Jésus|je]] vous précéderai en [[Galilée|Galilée]].**
+33) [[Simon Pierre|Pierre]] prit la parole et [[Jésus|lui]] dit : Même si tous les autres sont ébranlés à cause de ce qui [[Jésus|t]]’arrivera, [[Simon Pierre|moi je]] ne le serai pas !
+34) [[Jésus|Jésus]] reprit : **Vraiment, [[Jésus|je]] [[Simon Pierre|te]] l’assure : cette nuit même, avant que le coq ait chanté, [[Simon Pierre|tu]] [[Jésus|m]]’auras renié trois fois.**
+35) [[Simon Pierre|Pierre]] réaffirma : Même s’il [[Simon Pierre|me]] fallait mourir avec [[Jésus|toi]], [[Simon Pierre|je]] ne [[Jésus|te]] renierai pas.
+    Et tous les disciples dirent la même chose.
 ### Versets 47 à 56
 Intitulé **L'arrestation de [[Jésus]]** par [[Bible#^358f23|BDS]]
 
 47) [[Jésus|Il]] n’avait pas fini de parler que [[Judas]], l’un des [[Apôtres|Douze]], survint, accompagné d’une troupe nombreuse armée d’épées et de gourdins. Cette troupe était envoyée par les chefs des prêtres et les responsables du peuple.
-48) [[Judas|Le traître]] avait convenu avec eux d’un signe en disant : Celui que [[Judas|j]]d’embrasserai, c’est [[Jésus|lui]], saisissez-vous de lui.
+48) [[Judas|Le traître]] avait convenu avec eux d’un signe en disant : Celui que [[Judas|j]]’embrasserai, c’est [[Jésus|lui]], saisissez-vous de lui.
 49) Aussitôt, [[Judas|il]] se dirigea vers [[Jésus]] et lui dit : Bonsoir, Maître !
     Et il l’embrassa.
-50) **– Mon ami**, lui dit [[Jésus]], **ce que tu es venu faire ici, fais-le !**
-Alors les autres s’avancèrent et, mettant la main sur [[Jésus]], ils se saisirent de [[Jésus|lui]].
+50) **– Mon ami**, lui dit [[Jésus]], **ce que tu es venu faire ici, fais-le !**
+	Alors les autres s’avancèrent et, mettant la main sur [[Jésus]], ils se saisirent de [[Jésus|lui]].
 51) A ce moment, l’un des compagnons de [[Jésus]] porta la main à son épée, la dégaina, en frappa le serviteur du grand-prêtre et lui emporta l’oreille.
 52) [[Jésus]] lui dit : **Remets ton épée à sa place, car tous ceux qui se serviront de l’épée mourront par l’épée.**
 53) **Penses-tu donc que [[Jésus|je]] ne pourrais pas faire appel à mon [[Dieu|Père]] ? A l’instant même, il enverrait des dizaines de milliers d’anges à mon secours.**
