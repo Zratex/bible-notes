@@ -27,13 +27,13 @@ Intitulé **Prière de [[Paul]] et hymne à [[Jésus|Jésus-Christ]]** par [[Bib
     du [[Dieu]] que nul ne voit,
     [[Jésus|il]] est le Premier-né
     de toute création.
-16) Car c’est en lui
+16) Car c’est en [[Jésus|lui]]
     qu’ont été créées toutes choses
     dans les cieux comme sur la terre,
     les visibles, les invisibles,
     les Trônes et les Seigneuries,
     les Autorités, les Puissances.
-    C’est par lui et pour lui
+    C’est par [[Jésus|lui]] et pour [[Jésus|lui]]
     que [[Dieu]] a tout créé.
 17) [[Jésus|Il]] est lui-même
     bien avant toutes choses

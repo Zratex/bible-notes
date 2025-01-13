@@ -175,6 +175,6 @@ Intitulé **La mort de [[Jésus]]** par [[Bible#^358f23|BDS]]
 32) Les [[Romains|soldats]] vinrent donc et brisèrent les jambes au premier des criminels crucifiés avec [[Jésus]], puis à l’autre.
 33) Quand ils arrivèrent à [[Jésus]], ils constatèrent qu’[[Jésus|il]] était déjà mort et ils ne lui brisèrent pas les jambes.
 34) L’un des [[Romains|soldats]] lui enfonça sa lance dans le côté, et aussitôt il en sortit du sang et de l’eau.
-35) Celui qui rapporte ces faits, les a vus de ses propres yeux et son témoignage est vrai. Il sait parfaitement qu’il dit la vérité pour que, vous aussi, vous croyiez.
+35) [[Jean|Celui]] qui rapporte ces faits, les a vus de ses propres yeux et son témoignage est vrai. [[Jean|Il]] sait parfaitement qu’il dit la vérité pour que, vous aussi, vous croyiez.
 36) En effet, tout cela est arrivé pour que se réalise cette parole de l’[[Ancien Testament|Ecriture]] : *Aucun de ses os ne sera brisé*.
 37) De plus, un autre [[Ancien Testament|texte]] déclare : *Ils tourneront leurs regards vers celui qu’ils ont transpercé.*
