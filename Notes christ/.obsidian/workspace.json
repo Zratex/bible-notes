@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Référence Biblique/Nouveau testament/1 -Evangiles/4eme Evangile - Jean.md",
+                "file": "Vie dans la famille de Dieu.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "4eme Evangile - Jean"
+              "title": "Vie dans la famille de Dieu"
             }
           },
           {
@@ -35,8 +35,7 @@
               "title": "Notes sur l'Evangile de Jean"
             }
           }
-        ],
-        "currentTab": 1
+        ]
       }
     ],
     "direction": "vertical"
@@ -92,8 +91,7 @@
       }
     ],
     "direction": "horizontal",
-    "width": 301.5,
-    "collapsed": true
+    "width": 301.5
   },
   "right": {
     "id": "50537cc040e6bffb",
@@ -192,13 +190,15 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "100fe8c927336a35",
+  "active": "412ad4b021e16018",
   "lastOpenFiles": [
-    "Notes perso/Relation.md",
+    "Vie de famille de Dieu 2.md",
+    "Vie dans la famille de Dieu.md",
+    "Référence Biblique/Nouveau testament/1 -Evangiles/4eme Evangile - Jean.md",
     "Notes perso/Notes sur l'Evangile de Jean.md",
+    "Notes perso/Relation.md",
     "Notes perso",
     "Référence Biblique/Ancien Testament.md",
-    "Référence Biblique/Nouveau testament/1 -Evangiles/4eme Evangile - Jean.md",
     "Référence Biblique/Ancien testament/1 - Le commencement/Genèse.md",
     "Immuabilité de la parole.md",
     "Rencontrer Jésus.md",
@@ -219,8 +219,6 @@
     "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.md",
     "2 coeurs 2 rois.sync-conflict-20250105-085340-GNOYGME.md",
     "Attitude du vainqueur.md",
-    "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.sync-conflict-20250105-085339-4D4KN2W.md",
-    "Orgueil et humilité.md",
     "Personnages/Ancien testament/Rois d'Israel/Famille de David",
     "~syncthing~Orgueil et humilité.md.tmp",
     "Personnages/Ancien testament/Famille d'Abraham/Fils de Jacob/Petits-enfants de Jacob",
