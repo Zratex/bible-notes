@@ -1,9 +1,32 @@
 Livres rédigés par [[Jean]], [[Nouveau testament#^94270d|Evangile]] non inclus. Il rédigea 3 livres
 # 1 Jean
+## Chapitre 2
+### Versets 12 à 14
+Intitulé **Enfants, pères et jeunes gens** par [[Bible#^358f23|BDS]]
+
+12) [[Jean|Je]] vous écris ceci, enfants : vos péchés vous sont pardonnés grâce à [[Jésus|Jésus-Christ]].
+13) [[Jean|Je]] vous écris ceci, pères : vous connaissez celui qui est dès le commencement. [[Jean|Je]] vous écris ceci, jeunes gens : vous avez vaincu le diable.
+14) [[Jean|Je]] vous le confirme, enfants : vous connaissez le [[Dieu|Père]]. [[Jean|Je]] vous le confirme, pères : vous connaissez celui qui est dès le commencement. [[Jean|Je]] vous le confirme, jeunes gens : vous êtes forts, la [[Bible|Parole]] de [[Dieu]] demeure en vous et vous avez vaincu le diable.
+### Versets 15 à 28
+Intitulé **Face au monde mauvais et aux antichrists** par [[Bible#^358f23|BDS]]
+
+15) N’aimez pas le monde ni rien de ce qui fait partie de ce monde. Si quelqu’un aime le monde, l’amour pour le [[Dieu|Père]] n’est pas en lui.
+16) En effet, tout ce qui fait partie du monde : les mauvais désirs qui animent l’homme livré à lui-même, la soif de posséder ce qui attire les regards, et l’[[Orgueil et humilité|orgueil]] qu’inspirent les biens matériels, tout cela ne vient pas du [[Dieu|Père]], mais du monde.
+17) Or le monde passe avec tous ses attraits, mais celui qui accomplit la volonté de [[Dieu]] demeure éternellement.
+18) Mes enfants, c’est la dernière heure. Vous avez appris qu’un « anti-Christ » doit venir. Or, dès à présent, beaucoup d’antichrists sont là. Voilà pourquoi nous savons que nous sommes entrés dans la dernière heure.
+19) Ces adversaires de [[Jésus|Christ]] sont sortis de chez nous mais, en réalité, ils n’étaient pas des nôtres. Car, s’ils avaient été des nôtres, ils seraient restés avec nous. Mais ils nous ont quittés pour qu’il soit parfaitement clair que tous ne sont pas des nôtres.
+20) Vous, au contraire, vous avez été oints du [[Saint-Esprit]] par celui qui est saint, et vous avez tous la connaissance.
+21) Si [[Jean|je]] vous écris, ce n’est pas parce que vous ne connaissez pas la vérité, mais parce que vous la connaissez, et qu’aucun mensonge ne vient de la vérité.
+22) Alors qui est le menteur ? C’est celui qui nie que [[Jésus|Jésus]] est [[Jésus|Christ]]. Et « l’anti-Christ », c’est celui qui refuse de reconnaître le [[Dieu|Père]] et le [[Jésus|Fils]].
+23) Tout homme qui nie que [[Jésus|Jésus]] est le Fils de [[Dieu]] ne connaît pas non plus le [[Dieu|Père]]. Celui qui reconnaît que [[Jésus|Jésus]] est le Fils de [[Dieu|Dieu]] connaît aussi le [[Dieu|Père]].
+24) C’est pourquoi, tenez-vous soigneusement à l’enseignement que vous avez reçu dès le commencement. Si ce que vous avez entendu dès le commencement demeure en vous, vous demeurerez aussi unis au [[Jésus|Fils]] et au [[Dieu|Père]].
+25) Et voici la promesse qu’il vous a faite : la vie éternelle.
+26) C’est au sujet de ceux qui vous entraînent dans l’erreur que [[Jean|je]] vous écris ces choses.
+27) Quant à vous, l’[[Saint-Esprit|Esprit]] dont vous avez été oints par [[Jésus|Christ]] demeure en vous. Vous n’avez donc pas besoin que l’on vous instruise, car cet [[Saint-Esprit|Esprit]] dont vous avez été oints vous enseigne tout. Il est véridique, il ne ment pas. Restez donc attachés à cet enseignement tel que vous l’avez reçu de l’[[Saint-Esprit|Esprit]].
+28) Mes enfants, demeurez attachés à [[Jésus|Christ]] pour qu’au moment où il paraîtra, nous soyons remplis d’assurance et que nous ne nous trouvions pas tout honteux loin de lui au moment de sa venue.
 ## Chapitre 4
 ### Versets 7 à 21
 Intitulé **[[Dieu]] est amour - Aimer parce que [[Dieu]] nous a aimés le premiuer** par [[Bible#^358f23|BDS]]
-
 7) Mes chers amis, aimons-nous les uns les autres, car l’amour vient de [[Dieu]]. Celui qui aime est né de [[Dieu]] et il connaît [[Dieu]].
 8) Qui n’aime pas n’a pas connu [[Dieu]], car [[Dieu]] est amour.
 9) Voici comment [[Dieu]] a manifesté son amour pour nous : il a envoyé son [[Jésus|Fils]] unique dans le monde pour que, par [[Jésus|lui]], nous ayons la vie.
@@ -42,10 +65,12 @@ Intitulé **Croire au [[Jésus|Fils]] de [[Dieu]]** par [[Bible#^358f23|BDS]]
 Intitulé **Le Chrétien et le péché** par [[Bible#^358f23|BDS]]
 #### Versets 19 et 20
 Etudié dans [[Les tentations#1 - impiété|L'impiété]]
+
 19) Nous savons que nous sommes de [[Dieu]], alors que le monde entier est sous la coupe du [[Satan|diable]].
 20) Mais nous savons aussi que le [[Jésus|Fils de Dieu]] est venu et qu’il nous a donné l’intelligence pour que nous connaissions le [[Dieu]] véritable. Ainsi, nous sommes unis au [[Dieu]] véritable, de par notre union à son Fils [[Jésus|Jésus-Christ]]. Ce Fils est lui-même le [[Dieu]] véritable et la vie éternelle.
 #### Verset 21
 Intitulé **Recommandation finale** par [[Bible#^358f23|BDS]], c'est la conclusion du premier livre de [[Jean]] :
+
 21) Mes chers enfants, gardez-vous des idoles.
 # 2 Jean
 # 3 Jean

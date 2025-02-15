@@ -42,7 +42,22 @@ Intitulé **Faire fructifier son salut** par [[Bible#^358f23|BDS]]
 16) en portant la [[Bible|Parole]] de vie. Ainsi, lorsque viendra le jour de [[Jésus|Christ]], vous serez mon titre de gloire : je n’aurai pas couru pour rien et [[Paul|ma]] peine n’aura pas été inutile.
 17) Et même si [[Paul|je]] dois m’offrir comme une libation pour accompagner le sacrifice que vous offrez à [[Dieu]], c’est-à-dire le service de votre foi, [[Paul|je]] m’en réjouis et [[Paul|je me]] réjouis avec vous tous.
 18) Vous aussi, de la même manière, réjouissez-vous, et réjouissez-vous avec [[Paul|moi]].
+## Chapitre 3
+### Versets 1 à 12
+Intitulé **L’important, c’est [[Jésus|Christ]]** par [[Bible#^358f23|BDS]]
 
+1) Enfin, mes frères et sœurs, réjouissez-vous de tout ce que le [[Jésus|Seigneur]] est pour vous. Il ne [[Paul|m]]’en coûte pas de [[Paul|me]] répéter en vous écrivant et, pour vous, cela ne peut que contribuer à votre sécurité.
+2) Prenez garde aux mauvais ouvriers, à ces hommes ignobles qui vous poussent à mutiler votre corps.
+3) En réalité, c’est nous qui sommes circoncis de la vraie circoncision puisque nous rendons notre culte à [[Dieu]] par son [[Saint-Esprit|Esprit]] et que nous mettons toute notre fierté en [[Jésus|Jésus-Christ]] – au lieu de placer notre confiance dans ce que l’homme produit par lui-même.
+4) Et pourtant, [[Paul|je]] pourrais, moi aussi, placer ma confiance dans ce qui vient de l’homme. Si quelqu’un croit pouvoir se confier en ce qui vient de l’homme, je le puis bien davantage :
+5) [[Paul|j]]’ai été circoncis le huitième jour, [[Paul|je]] suis [[Israël|Israélite]] de naissance, de la tribu de [[Benjamin|Benjamin]], de pur sang hébreu. Pour ce qui concerne le respect de la [[La Loi de Dieu|Loi]], [[Paul|je]] faisais partie des pharisiens.
+6) Quant à [[Paul|mon]] zèle, il [[Paul|m]]’a conduit à persécuter l’[[Eglise|Eglise]]. Face aux exigences de la [[La Loi de Dieu|Loi]], [[Paul|j]]’étais sans reproche.
+7) Toutes ces choses constituaient, à [[Paul|mes]] yeux, un gain, mais à cause de [[Jésus|Christ]], [[Paul|je]] les considère désormais comme une perte.
+8) Oui, [[Paul|je]] considère toutes choses comme une perte à cause de ce bien suprême : la connaissance de [[Jésus|Jésus-Christ]] mon [[Seigneur|Seigneur]]. A cause de lui, [[Paul|j]]’ai accepté de perdre tout cela, oui, [[Paul|je]] le considère comme bon à être mis au rebut, afin de gagner [[Jésus|Christ]].
+9) [[Paul|Mon]] désir est d’être trouvé en [[Jésus|lui]], non pas avec une justice que [[Paul|j]]’aurais moi-même acquise en obéissant à la [[La Loi de Dieu|Loi]] mais avec la justice qui vient de la foi en [[Jésus|Christ]] et que [[Dieu]] accorde à ceux qui croient.
+10) C’est ainsi que [[Paul|je]] pourrai connaître [[Jésus|Christ]], c’est-à-dire expérimenter la puissance de sa résurrection et avoir part à ses souffrances, en devenant semblable à [[Jésus|lui]] jusque dans sa mort,
+11) afin de parvenir, quoi qu’il arrive, à la résurrection.
+12) Non, certes, [[Paul|je]] ne suis pas encore parvenu au but, [[Paul|je]] n’ai pas atteint la perfection, mais [[Paul|je]] continue à courir pour tâcher de saisir le prix. Car [[Jésus|Jésus-Christ]] s’est saisi de moi.
 ## Chapitre 4
 ### Verset 1
 Version [[Bible#^358f23|BDS]] :

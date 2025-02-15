@@ -94,6 +94,31 @@ Intitulé **[[Jésus]] chez le ressuscité**
 9) Entre-temps, on apprit que [[Jésus|Jésus]] était à [[Béthanie|Béthanie]]. Les gens s’y rendirent en foule, non seulement à cause de [[Jésus|Jésus]], mais aussi pour voir [[Lazare|Lazare]] qu’il avait ressuscité.
 10) Alors les chefs des prêtres décidèrent aussi de faire mourir [[Lazare|Lazare]]
 11) Car, à cause de [[Lazare|lui]], beaucoup se détournaient d’eux pour croire en [[Jésus|Jésus]].
+## Chapitre 13
+### Versets 1 à 20
+Intitulé **Les adieux du maître - [[Jésus]] lave les pieds de ses disciples** par [[Bible#^358f23|BDS]]
+
+1) C’était juste avant la fête de la Pâque. [[Jésus]] savait que l’heure était venue pour lui de quitter ce monde pour s’en aller auprès du [[Dieu|Père]]. C’est pourquoi [[Jésus|il]] donna aux siens, qu’[[Jésus|il]] aimait et qui étaient dans le monde, une marque suprême de son amour pour eux.
+2) C’était au cours du repas. Déjà le [[Satan|diable]] avait semé dans le cœur de [[Judas|Judas]], fils de [[Judas|Simon Iscariot]], le projet de trahir son [[Jésus|Maître]] et de le livrer.
+3) [[Jésus|Jésus]] savait que le [[Dieu|Père]] avait tout remis entre ses mains, qu’il était venu d’auprès de [[Dieu]] et qu’il allait retourner auprès de lui.
+4) [[Jésus|Il]] se leva de table pendant le dîner, posa son vêtement et prit une serviette de lin qu’il se noua autour de la taille.
+5) Ensuite, [[Jésus|il]] versa de l’eau dans une bassine et commença à laver les pieds de ses disciples, puis à les essuyer avec la serviette qu’[[Jésus|il]] s’était nouée autour de la taille.
+6) Quand vint le tour de [[Simon Pierre|Simon Pierre]], celui-ci protesta : [[Jésus|Toi, Seigneur, tu]] veux me laver les pieds ?
+7) [[Jésus|Jésus]] lui répondit : **Ce que je fais, [[Simon Pierre|tu]] ne le comprends pas pour l’instant, [[Simon Pierre|tu]] le comprendras plus tard.**
+8) Mais [[Simon Pierre|Pierre]] lui répliqua : Non ! [[Jésus|Tu]] ne me laveras pas les pieds ! Sûrement pas !
+	[[Jésus|Jésus]] lui répondit : **Si je ne [[Simon Pierre|te]] lave pas, il n’y a plus rien de commun entre [[Simon Pierre|toi]] et [[Jésus|moi]].**
+9) – Dans ce cas, lui dit [[Simon Pierre|Simon Pierre]], ne me lave pas seulement les pieds, mais aussi les mains et la tête.
+10) [[Jésus|Jésus]] lui dit : **Celui qui s’est baigné est entièrement pur, il lui suffit de se laver les pieds. Or vous, vous êtes purs – mais pas tous.**
+11) [[Jésus|Jésus]], en effet, connaissait celui [[Judas|qui]] allait le livrer. Voilà pourquoi [[Jésus|il]] avait ajouté : « Vous n’êtes pas tous purs. »
+12) Après leur avoir lavé les pieds, [[Jésus|il]] remit son vêtement et se remit à table. Alors [[Jésus|il]] leur dit : **Avez-vous compris ce que [[Jésus|je]] viens de vous faire ?**
+13) **Vous m’appelez [[Seigneur|Maître et Seigneur]] – et vous avez raison, car [[Jésus|je]] le suis.**
+14) **Si donc [[Jésus|moi]], le [[Seigneur|Seigneur et le Maître]], [[Jésus|je]] vous ai lavé les pieds, vous devez, vous aussi, vous laver les pieds les uns aux autres.**
+15) **[[Jésus|Je]] viens de vous donner un exemple, pour qu’à votre tour vous agissiez comme [[Jésus|j]]’ai agi envers vous.**
+16) **Vraiment, [[Jésus|je]] vous l’assure, un serviteur n’est jamais supérieur à son maître, ni un messager plus grand que celui qui l’envoie.**
+17) **Si vous savez ces choses, vous êtes heureux à condition de les mettre en pratique.**
+18) **[[Jésus|Je]] ne parle pas de vous tous : [[Jésus|je]] sais très bien quels sont ceux que [[Jésus|j]]’ai choisis – mais il faut que l’[[Ancien Testament|Ecriture]] s’accomplisse : *[[19 - Psaumes#Chapitre 41|Celui qui partage mon pain se tourne contre moi.]]***
+19) **[[Jésus|Je]] vous le dis dès maintenant, avant que cela se produise, pour qu’au moment où cela arrivera, vous croyiez que moi, [[Jésus|je]] suis.**
+20) **Vraiment, [[Jésus|je]] vous l’assure : qui reçoit [[Saint-Esprit|celui]] que [[Jésus|j]]’envoie me reçoit [[Jésus|moi-même]], et qui [[Jésus|me]] reçoit, reçoit [[Dieu|celui qui]] [[Jésus|m]]’a envoyé.**
 ## Chapitre 14
 ### Versets 1 à 14
 Intitulé **Le chemin, la vérité, la vie** par [[Bible#^358f23|BDS]]
@@ -104,14 +129,14 @@ Intitulé **Le chemin, la vérité, la vie** par [[Bible#^358f23|BDS]]
 4) **Mais vous en connaissez le chemin.**
 5) [[Thomas]] lui dit : [[Jésus|Seigneur]], nous ne savons même pas où tu vas, comment pourrions-nous savoir par quel chemin on y parvient ?
 6) **– Je suis, moi, le chemin,** répondit [[Jésus]], **la vérité et la vie. Personne ne va au [[Dieu|Père]] sans passer par moi.**
-7) **Si vous [[Jésus|me]] connaissez, vous connaîtrez aussi mon [[Dieu|Père]]. Et maintenant déjà vous le connaissez, vous l’avez même vu.**
-8) [[Philippe|Philippe]] intervint : [[Jésus|Seigneur]], montre-nous le [[Dieu|Père]], et cela nous suffit.
+6) **Si vous [[Jésus|me]] connaissez, vous connaîtrez aussi mon [[Dieu|Père]]. Et maintenant déjà vous le connaissez, vous l’avez même vu.**
+7) [[Philippe|Philippe]] intervint : [[Jésus|Seigneur]], montre-nous le [[Dieu|Père]], et cela nous suffit.
 9) **– Eh quoi,** lui répondit [[Jésus]], **après tout le temps que j’ai passé avec vous, tu ne me connais pas encore, [[Philippe|Philippe]] ! Celui qui m’a vu, a vu le [[Dieu|Père]]. Comment peux-tu dire : « Montre-nous le [[Dieu|Père]] ? »**
-10) **Ne crois-tu pas que [[Jésus|je]] suis dans le [[Dieu|Père]] et que le [[Dieu|Père]] est en moi ? Ce que je vous dis, je ne le dis pas de moi-même : le [[Dieu|Père]] demeure en moi et c’est lui qui accomplit ainsi ses propres œuvres.**
-11) **Croyez-moi : [[Jésus|Je]] suis dans le [[Dieu|Père]] et le [[Dieu|Père]] est en moi. Sinon, croyez au moins à cause des œuvres que vous m’avez vu accomplir.**
-12) **Vraiment, [[Jésus|je]] vous l’assure : celui qui croit en moi accomplira les œuvres que je fais. Il en fera même de plus grandes parce que je vais auprès du [[Dieu|Père]].**
-13) **Et quoi que ce soit que vous demandiez en [[Jésus|mon]] nom, je le réaliserai pour que la gloire du [[Dieu|Père]] soit manifestée par le [[Jésus|Fils]].**
-14) **[[Jésus|Je]] le répète : Si vous me demandez quelque chose en mon nom, je le ferai.**
+8) **Ne crois-tu pas que [[Jésus|je]] suis dans le [[Dieu|Père]] et que le [[Dieu|Père]] est en moi ? Ce que je vous dis, je ne le dis pas de moi-même : le [[Dieu|Père]] demeure en moi et c’est lui qui accomplit ainsi ses propres œuvres.**
+9) **Croyez-moi : [[Jésus|Je]] suis dans le [[Dieu|Père]] et le [[Dieu|Père]] est en moi. Sinon, croyez au moins à cause des œuvres que vous m’avez vu accomplir.**
+10) **Vraiment, [[Jésus|je]] vous l’assure : celui qui croit en moi accomplira les œuvres que je fais. Il en fera même de plus grandes parce que je vais auprès du [[Dieu|Père]].**
+11) **Et quoi que ce soit que vous demandiez en [[Jésus|mon]] nom, je le réaliserai pour que la gloire du [[Dieu|Père]] soit manifestée par le [[Jésus|Fils]].**
+12) **[[Jésus|Je]] le répète : Si vous me demandez quelque chose en mon nom, je le ferai.**
 ## Chapitre 16
 ### Versets 17 à 33
 #### Verset 33
@@ -143,38 +168,38 @@ Intitulé **[[Jésus]] prie pour tous ceux qui croiront en lui** par [[Bible#^35
 21) **[[Jésus|Je]] [[Dieu|te]] demande qu’ils soient tous un. Comme toi, [[Dieu|Père]], tu es en moi et comme moi je suis en toi, qu’ils soient un en nous pour que le monde croie que c’est toi qui m’as envoyé.**
 22) **[[Jésus|Je]] leur ai donné la gloire que [[Dieu|tu]] m’as donnée, afin qu’ils soient un, comme toi et moi nous sommes un,**
 23) **[[Jésus|moi]] en eux et [[Dieu|toi]] en moi. Qu’ils soient parfaitement un et qu’ainsi le monde puisse reconnaître que c’est toi qui m’as envoyé et que tu les aimes comme tu m’aimes !**
-24) **[[Dieu|Père]], mon désir est que ceux que tu [[Jésus|m]]’as donnés soient avec moi là où je serai et qu’ils contemplent ma gloire, celle que tu m’as donnée, parce que tu m’as aimé avant la création du monde.**
-25) **[[Dieu|Père]], toi qui es juste, le monde ne t’a pas connu, mais [[Jésus|moi je]] t’ai connu, et ceux-ci ont compris que c’est toi qui m’as envoyé.**
-26) **[[Jésus|Je]] [[Dieu|t]]’ai fait connaître à eux et je continuerai à te faire connaître, pour que l’amour que tu m’as témoigné soit en eux et que je sois moi-même en eux.**
+23) **[[Dieu|Père]], mon désir est que ceux que tu [[Jésus|m]]’as donnés soient avec moi là où je serai et qu’ils contemplent ma gloire, celle que tu m’as donnée, parce que tu m’as aimé avant la création du monde.**
+24) **[[Dieu|Père]], toi qui es juste, le monde ne t’a pas connu, mais [[Jésus|moi je]] t’ai connu, et ceux-ci ont compris que c’est toi qui m’as envoyé.**
+25) **[[Jésus|Je]] [[Dieu|t]]’ai fait connaître à eux et je continuerai à te faire connaître, pour que l’amour que tu m’as témoigné soit en eux et que je sois moi-même en eux.**
 ## Chapitre 19
 ### Versets 17 à 37
 Intitulé **La mort de [[Jésus]]** par [[Bible#^358f23|BDS]]
 
-16) (...) Ils s'emparèrent du corps de [[Jésus]].
-17) Celui-ci, portant lui-même sa croix, sortit de la ville pour se rendre à l’endroit appelé « le lieu du crâne » (en hébreu : « [[Golgotha|Golgotha]] »).
-18) C’est là qu’ils [[Jésus|le]] crucifièrent, lui et deux autres. On plaça une croix de chaque côté de la sienne. Celle de [[Jésus]] était au milieu.
-19) [[Pilate]] fit placer un écriteau que l’on fixa au-dessus de la croix. Il portait cette inscription : « [[Jésus]] de [[Nazareth]], le roi des Juifs ».
-20) Comme l’endroit où [[Jésus]] avait été crucifié se trouvait près de la ville, beaucoup de Juifs lurent l’inscription écrite en hébreu, en latin et en grec.
-21) Les chefs des prêtres protestèrent auprès de [[Pilate]] : Il ne fallait pas mettre « le roi des Juifs », mais « Cet homme a dit : Je suis le roi des Juifs ».
-22) [[Pilate]] répliqua : Ce que j’ai écrit restera écrit.
-23) Lorsque les [[Romains|soldats]] eurent crucifié [[Jésus]], ils prirent ses vêtements et en firent quatre parts, une pour chacun d’eux. Restait la tunique qui était sans couture, tissée tout d’une seule pièce de haut en bas.
-24) Les [[Romains|soldats]] se dirent entre eux : Au lieu de la déchirer, tirons au sort pour savoir qui l’aura.
+17) (...) Ils s'emparèrent du corps de [[Jésus]].
+18) Celui-ci, portant lui-même sa croix, sortit de la ville pour se rendre à l’endroit appelé « le lieu du crâne » (en hébreu : « [[Golgotha|Golgotha]] »).
+19) C’est là qu’ils [[Jésus|le]] crucifièrent, lui et deux autres. On plaça une croix de chaque côté de la sienne. Celle de [[Jésus]] était au milieu.
+20) [[Pilate]] fit placer un écriteau que l’on fixa au-dessus de la croix. Il portait cette inscription : « [[Jésus]] de [[Nazareth]], le roi des Juifs ».
+21) Comme l’endroit où [[Jésus]] avait été crucifié se trouvait près de la ville, beaucoup de Juifs lurent l’inscription écrite en hébreu, en latin et en grec.
+22) Les chefs des prêtres protestèrent auprès de [[Pilate]] : Il ne fallait pas mettre « le roi des Juifs », mais « Cet homme a dit : Je suis le roi des Juifs ».
+23) [[Pilate]] répliqua : Ce que j’ai écrit restera écrit.
+24) Lorsque les [[Romains|soldats]] eurent crucifié [[Jésus]], ils prirent ses vêtements et en firent quatre parts, une pour chacun d’eux. Restait la tunique qui était sans couture, tissée tout d’une seule pièce de haut en bas.
+25) Les [[Romains|soldats]] se dirent entre eux : Au lieu de la déchirer, tirons au sort pour savoir qui l’aura.
     C’est ainsi que s’accomplit cette prophétie de l’[[Ancien Testament|Ecriture]] :
     *Ils se sont partagé mes habits*
     *et ils ont tiré au sort ma tunique.*
     C’est exactement ce que firent les [[Romains|soldats]].
-25) Près de la croix de [[Jésus]] se tenaient sa [[Marie|mère]], la sœur de sa [[Marie|mère]], Marie, femme de Clopas, et [[Marie de Magdala|Marie de Magdala]].
-26) En voyant [[Jésus|sa]] [[Marie|mère]] et, à côté d’elle, le disciple qu’il aimait, [[Jésus]] dit à sa [[Marie|mère]] : **Voici ton fils.**
-27) Puis [[Jésus|il]] dit au disciple : **Voici ta [[Marie|mère]].**
+26) Près de la croix de [[Jésus]] se tenaient sa [[Marie|mère]], la sœur de sa [[Marie|mère]], Marie, femme de Clopas, et [[Marie de Magdala|Marie de Magdala]].
+27) En voyant [[Jésus|sa]] [[Marie|mère]] et, à côté d’elle, le disciple qu’il aimait, [[Jésus]] dit à sa [[Marie|mère]] : **Voici ton fils.**
+28) Puis [[Jésus|il]] dit au disciple : **Voici ta [[Marie|mère]].**
     A partir de ce moment-là, le disciple [[Marie|la]] prit chez lui.
-28) Après cela, [[Jésus]], sachant que désormais tout était achevé, dit, pour que l’[[Ancien Testament|Ecriture]] soit accomplie : **J’ai soif.**
-29) Près de là se trouvait un vase rempli de vinaigre. On attacha donc une éponge imbibée de ce vinaigre au bout d’une branche d’hysope, et on l’approcha de la bouche de [[Jésus]].
-30) Quand [[Jésus|il]] eut goûté le vinaigre, [[Jésus]] dit : **Tout est accompli.**
+29) Après cela, [[Jésus]], sachant que désormais tout était achevé, dit, pour que l’[[Ancien Testament|Ecriture]] soit accomplie : **J’ai soif.**
+30) Près de là se trouvait un vase rempli de vinaigre. On attacha donc une éponge imbibée de ce vinaigre au bout d’une branche d’hysope, et on l’approcha de la bouche de [[Jésus]].
+31) Quand [[Jésus|il]] eut goûté le vinaigre, [[Jésus]] dit : **Tout est accompli.**
     [[Jésus|Il]] pencha la tête et rendit l’esprit.
-31) Comme on était à la veille du sabbat, et de plus, d’un sabbat particulièrement solennel, les Juifs voulaient éviter que les cadavres restent en croix durant la fête. Ils allèrent trouver [[Pilate]] pour lui demander de faire briser les jambes des suppliciés et de faire enlever les corps.
-32) Les [[Romains|soldats]] vinrent donc et brisèrent les jambes au premier des criminels crucifiés avec [[Jésus]], puis à l’autre.
-33) Quand ils arrivèrent à [[Jésus]], ils constatèrent qu’[[Jésus|il]] était déjà mort et ils ne lui brisèrent pas les jambes.
-34) L’un des [[Romains|soldats]] lui enfonça sa lance dans le côté, et aussitôt il en sortit du sang et de l’eau.
-35) [[Jean|Celui]] qui rapporte ces faits, les a vus de ses propres yeux et son témoignage est vrai. [[Jean|Il]] sait parfaitement qu’il dit la vérité pour que, vous aussi, vous croyiez.
-36) En effet, tout cela est arrivé pour que se réalise cette parole de l’[[Ancien Testament|Ecriture]] : *Aucun de ses os ne sera brisé*.
-37) De plus, un autre [[Ancien Testament|texte]] déclare : *Ils tourneront leurs regards vers celui qu’ils ont transpercé.*
+32) Comme on était à la veille du sabbat, et de plus, d’un sabbat particulièrement solennel, les Juifs voulaient éviter que les cadavres restent en croix durant la fête. Ils allèrent trouver [[Pilate]] pour lui demander de faire briser les jambes des suppliciés et de faire enlever les corps.
+33) Les [[Romains|soldats]] vinrent donc et brisèrent les jambes au premier des criminels crucifiés avec [[Jésus]], puis à l’autre.
+34) Quand ils arrivèrent à [[Jésus]], ils constatèrent qu’[[Jésus|il]] était déjà mort et ils ne lui brisèrent pas les jambes.
+35) L’un des [[Romains|soldats]] lui enfonça sa lance dans le côté, et aussitôt il en sortit du sang et de l’eau.
+36) [[Jean|Celui]] qui rapporte ces faits, les a vus de ses propres yeux et son témoignage est vrai. [[Jean|Il]] sait parfaitement qu’il dit la vérité pour que, vous aussi, vous croyiez.
+37) En effet, tout cela est arrivé pour que se réalise cette parole de l’[[Ancien Testament|Ecriture]] : *Aucun de ses os ne sera brisé*.
+38) De plus, un autre [[Ancien Testament|texte]] déclare : *Ils tourneront leurs regards vers celui qu’ils ont transpercé.*

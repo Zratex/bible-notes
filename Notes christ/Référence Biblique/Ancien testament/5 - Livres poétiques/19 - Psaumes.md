@@ -177,6 +177,39 @@ Intitulé **Le témoignage de l'expérience** par [[Bible#^358f23|BDS]]
    et, dans le pays, ╵tu demeureras ╵et tu jouiras ╵de bons pâturages ╵en sécurité.
 4) En [[Dieu]], mets ta joie
    et il comblera ╵les vœux de ton cœur.
+## Chapitre 41
+Intitulé **Malade et persécuté** par [[Bible#^358f23|BDS]]
+
+1) *Au chef de chœur. Psaume de [[David]].*
+2) Heureux celui ╵qui se soucie du pauvre.
+	Lorsque vient le malheur, ╵l’[[Dieu|Eternel]] le délivre,
+3) l’[[Dieu|Eternel]] le protège ╵et préserve sa vie :
+	il le rend heureux sur la terre
+	et ne le livre pas ╵au désir de ses ennemis.
+4) L’[[Dieu|Eternel]] le soutient ╵sur son lit de souffrance,
+	et quand il est malade ╵il lui refait sa couche.
+5) [[David|J]]’ai dit : « O [[Dieu|Eternel]], ╵aie compassion de [[David|moi]],
+	et veuille [[David|me]] guérir ! ╵[[David|J]]’ai péché contre toi. »
+6) Mes adversaires parlent ╵méchamment contre [[David|moi]] :
+	« Quand donc va-t-il mourir ? ╵Quand donc l’oubliera-t-on ? »
+7) Si l’un d’eux vient [[David|me]] voir, ╵il se met à mentir :
+	il amasse en lui-même ╵un tas de médisances
+	et sort pour les répandre.
+8) Mes ennemis ╵chuchotent tous ensemble ╵à [[David|mon]] sujet,
+	en formant des projets ╵pour mon malheur :
+9) « Cette maladie qui [[David|le]] frappe, ╵quelle mauvaise affaire !
+	Il a dû s’aliter, ╵il ne se relèvera plus ! »
+10) Et même mon ami,
+	en qui [[David|j]]’avais confiance, ╵celui qui partageait mon pain,
+	s’est tourné contre [[David|moi]].
+11) Mais toi, ô [[Dieu|Eternel]], ╵aie compassion de [[David|moi]], ╵et viens [[David|me]] relever :
+	[[David|je]] leur rendrai leur dû.
+12) Voici comment [[David]] reconnaîtrai ╵[[Dieu|ton]] affection pour moi :
+	c’est quand [[David|mon]] ennemi ╵cessera de clamer ╵qu’il triomphe de [[David|moi]].
+13) Pour prix de mon intégrité, ╵[[Dieu|tu]] viens me soutenir.
+	[[Dieu|Tu]] me fais subsister ╵devant toi pour toujours.
+14) Béni soit l’[[Dieu|Eternel]], ╵[[Dieu]] d’[[Israël|Israël]], ╵depuis toujours ╵et pour toujours.
+	Amen, Amen !
 ## Chapitre 68
 Intitulé **Le triomphe du [[Dieu]] victorieux** par [[Bible#^358f23|BDS]]
 

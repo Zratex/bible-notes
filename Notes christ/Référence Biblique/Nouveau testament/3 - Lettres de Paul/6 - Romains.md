@@ -78,7 +78,7 @@ Intitulé **Vivre conduits par l'[[Saint-Esprit|Esprit]]**
 12) Ainsi donc, frères et sœurs, si nous avons une obligation, ce n’est pas celle de vivre à la manière de l’homme livré à lui-même.
 13) Car, si vous vivez à la manière de l’homme livré à lui-même, vous mourrez, mais si, par l’[[Saint-Esprit|Esprit]], vous faites mourir les actes mauvais que vous accomplissez dans votre corps, vous vivrez.
 14) Car ceux qui sont conduits par l’[[Saint-Esprit|Esprit]] de [[Dieu]] sont fils de [[Dieu]].
-15) En effet, vous n’avez pas reçu un [[Saint-Esprit|Esprit]] qui fait de vous des esclaves et vous ramène à la crainte : non, vous avez reçu l’[[Saint-Esprit|Esprit]] en conséquence de votre adoption par [[Dieu]] comme ses fils et ses filles. Car c’est par cet [[Saint-Esprit|Esprit]] que nous crions : Abba, c’est-à-dire Père !
+15) En effet, vous n’avez pas reçu un [[Saint-Esprit|Esprit]] qui fait de vous des esclaves et vous ramène à la crainte : non, vous avez reçu l’[[Saint-Esprit|Esprit]] en conséquence de votre adoption par [[Dieu]] comme ses fils et ses filles. Car c’est par cet [[Saint-Esprit|Esprit]] que nous crions : Abba, c’est-à-dire [[Dieu|Père]] !
 16) L’[[Saint-Esprit|Esprit Saint]] lui-même témoigne à notre esprit que nous sommes enfants de [[Dieu]].
 17) Et puisque nous sommes enfants, nous sommes aussi héritiers : héritiers de [[Dieu]], et donc cohéritiers de [[Jésus|Christ]], puisque nous souffrons avec lui pour avoir part à sa gloire.
 ### Versets 18 à 30

@@ -2,7 +2,6 @@ La plus longue lettre du [[Nouveau testament]].
 Les origines de qui l'a écrit, et envers qui précisément restent inconnus. Ce qui est clair, c'est que cette lettre s'adresse à tout ceux qui se sont convertis. 
 
 > Les passages en gras sont des paroles de [[Jésus]]. Elles sont en italiques car ce sont des paroles citées
-
 ## Chapitre 4
 ### Versets 14 à 16
 Intitulé **Un grand prêtre qui nous permet de nous approcher de [[Dieu]]** par [[Bible#^358f23|BDS]]
@@ -28,6 +27,13 @@ Intitulé **Le ministère sacerdotal de [[Jésus|Christ]] - [[Jésus|Christ]], g
 8) Bien qu’étant [[Jésus|Fils]] de [[Dieu]], [[Jésus|il]] a appris l’obéissance par tout ce qu’il a souffert.
 9) Et c’est parce qu’[[Jésus|il]] a été ainsi amené à la perfection qu’il est devenu, pour tous ceux qui lui obéissent, l’auteur d’un salut éternel :
 10) [[Dieu]], en effet, l’a déclaré grand-prêtre selon la ligne de [[Melchisédek]].
+### Versets 11 à 14
+Intitulé **Recevoir une nourriture pour adultes** par [[Bible#^358f23|BDS]]
+
+11) C’est un sujet sur lequel nous avons bien des choses à dire, et qui sont difficiles à expliquer ; car vous êtes devenus lents à comprendre.
+12) En effet, après tout ce temps, vous devriez être des maîtres dans les choses de [[Dieu]] ; or vous avez de nouveau besoin qu’on vous enseigne les rudiments des paroles de [[Dieu]]. Vous en êtes venus au point d’avoir besoin, non de nourriture solide, mais de lait.
+13) Celui qui continue à se nourrir de lait n’a aucune expérience de la parole qui enseigne ce qu’est la vie juste : car c’est encore un bébé.
+14) Les adultes, quant à eux, prennent de la nourriture solide : par la pratique, ils ont exercé leurs facultés à distinguer ce qui est bien de ce qui est mal.
 ## Chapitre 10
 ### Versets 1 à 18
 Intitulé **L'inefficacité de la [[La Loi de Dieu|Loi]] et l'efficacité du sacrifice de [[Jésus|Christ]]** par [[Bible#^358f23|BDS]]
@@ -99,13 +105,13 @@ Intitulé **Courir avec endurance** par [[Bible#^358f23|BDS]]
    *[[20 - Proverbes#Versets 1 à 12|et ne te décourage pas lorsqu’il te reprend.]]*
 6) *[[20 - Proverbes#Versets 1 à 12|Car le Seigneur corrige celui qu’il aime :]]*
 	*[[20 - Proverbes#Versets 1 à 12|il châtie tous ceux qu’il reconnaît pour ses fils.]]*
-7) Supportez vos souffrances : elles servent à vous corriger. C’est en fils que [[Dieu]] vous traite. Quel est le fils que son père ne corrige pas ?
-8) Si vous êtes dispensés de la correction qui est le lot de tous les fils, alors vous êtes des enfants illégitimes, et non des fils.
-9) D’ailleurs, nous avions notre père terrestre pour nous corriger, et nous le respections. N’allons-nous pas, à plus forte raison, nous soumettre à notre [[Dieu|Père céleste]] pour avoir la vie ?
-10) Notre père nous corrigeait pour un temps limité, selon ses idées, mais [[Dieu]], c’est pour notre bien qu’[[Dieu|il]] nous corrige, afin de nous faire participer à sa sainteté.
-11) Certes, sur le moment, une correction ne semble pas être un sujet de joie mais plutôt une cause de tristesse. Mais par la suite, elle a pour fruit, chez ceux qui ont ainsi été formés, une vie juste, vécue dans la paix.
-12) C’est pourquoi : Relevez vos mains qui faiblissent et raffermissez vos genoux qui fléchissent.
-13) Faites-vous des pistes droites pour votre course, afin que le pied qui boite ne se démette pas complètement, mais qu’il guérisse plutôt.
+6) Supportez vos souffrances : elles servent à vous corriger. C’est en fils que [[Dieu]] vous traite. Quel est le fils que son père ne corrige pas ?
+7) Si vous êtes dispensés de la correction qui est le lot de tous les fils, alors vous êtes des enfants illégitimes, et non des fils.
+8) D’ailleurs, nous avions notre père terrestre pour nous corriger, et nous le respections. N’allons-nous pas, à plus forte raison, nous soumettre à notre [[Dieu|Père céleste]] pour avoir la vie ?
+9) Notre père nous corrigeait pour un temps limité, selon ses idées, mais [[Dieu]], c’est pour notre bien qu’[[Dieu|il]] nous corrige, afin de nous faire participer à sa sainteté.
+10) Certes, sur le moment, une correction ne semble pas être un sujet de joie mais plutôt une cause de tristesse. Mais par la suite, elle a pour fruit, chez ceux qui ont ainsi été formés, une vie juste, vécue dans la paix.
+11) C’est pourquoi : Relevez vos mains qui faiblissent et raffermissez vos genoux qui fléchissent.
+12) Faites-vous des pistes droites pour votre course, afin que le pied qui boite ne se démette pas complètement, mais qu’il guérisse plutôt.
 ### Versets 14 à 17
 Intitulé **Recommandations diverses - Vivre une vie sainte** par [[Bible#^358f23|BDS]]
 
