@@ -72,8 +72,6 @@ Intitulé **Sers la vérité !** par [[Bible#^358f23|BDS]]
 ### Versets 1 à 9
 Intitulé **Les périls à venir** par [[Bible#^358f23|BDS]]
 
-Versets 1 à 5 évoqués ici : [[Positionnement du cœur#Conséquence temps difficiles|Pourquoi les temps difficiles (positionnement du coeur)]]
-
 1) Sache bien que dans la période finale de l’histoire, les temps seront difficiles.
 2) Les hommes seront égoïstes, avides d’argent, vantards et prétentieux. Ils parleront de [[Dieu]] d’une manière injurieuse et n’auront pas d’égards pour leurs parents. Ils seront ingrats, dépourvus de respect pour ce qui est sacré,
 3) sans cœur, sans pitié, calomniateurs, incapables de se maîtriser, cruels, ennemis du bien ;

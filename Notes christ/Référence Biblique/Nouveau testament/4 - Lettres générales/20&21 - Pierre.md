@@ -102,3 +102,9 @@ Intitulé **Les enseignants de mensonge** par [[Bible#^358f23|BDS]]
 20) Si, après s’être arrachés aux influences corruptrices du monde par la connaissance qu’ils ont eue de notre [[Seigneur et non seulement sauveur|Seigneur et Sauveur]] [[Jésus|Jésus-Christ]], ils se laissent de nouveau prendre et dominer par elles, leur dernière condition est pire que la première.
 21) Il aurait mieux valu pour eux ne pas connaître le chemin d’une vie juste plutôt que de s’en détourner après l’avoir connu et d’abandonner le saint commandement qui leur avait été transmis.
 22) Ils confirment la vérité de ce proverbe : *[[20 - Proverbes#Versets 1 à 12|Le chien retourne à ce qu’il a vomi]]* ; en outre : « La truie à peine lavée se vautre de nouveau dans la boue ».
+## Chapitre 3
+### Versets 17 et 18
+Intitulé **Dernières recommandations** par [[Bible#^358f23|BDS]]
+
+17) Quant à vous, mes chers amis, vous voilà prévenus. Prenez garde de ne pas vous laisser entraîner par l’égarement de ces hommes vivant sans respect pour [[Dieu]] et de perdre ainsi la position solide que vous occupez.
+18) Au contraire, progressez sans cesse dans la grâce et dans la connaissance de notre [[Seigneur et non seulement sauveur|Seigneur et Sauveur]] [[Jésus|Jésus-Christ]]. A [[Jésus|lui]] soit la gloire dès maintenant et pour l’éternité. Amen.

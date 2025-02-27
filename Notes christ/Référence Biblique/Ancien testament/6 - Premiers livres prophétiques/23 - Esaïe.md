@@ -76,6 +76,60 @@ Intitulé **Contre [[Babylone]]** par [[Bible#^358f23|BDS]]
     et les chacals ╵viendront hurler dans ses palais.
     Son heure approche,
     et ses jours ne seront pas prolongés.
+## Chapitre 19
+### Versets 1 à 15
+Intitulé **Menace - Sur l'[[Egypte]]** par [[Bible#^358f23|BDS]]
+
+1) Oracle sur l’[[Egypte|Egypte]] :
+   L’[[Dieu|Eternel]] monte ╵un nuage rapide,
+   il arrive en [[Egypte]].
+   Voici qu’à son approche, ╵les dieux d’[[Egypte]] ╵se mettent à trembler
+   et le peuple [[Egypte|égyptien]] ╵perd tout courage.
+2) [[Dieu|Je]] dresserai les [[Egypte|Egyptiens]] ╵les uns contre les autres,
+   déclare l’[[Dieu|Eternel]].
+   [[Egypte|Ils]] se feront la guerre, ╵qui, contre son parent, ╵qui, contre son ami,
+   cité contre cité, ╵et province contre province.
+3) Les [[Egypte|Egyptiens]] perdront l’esprit
+   et [[Dieu|j]]’anéantirai ╵leur politique.
+   [[Egypte|Ils]] iront consulter ╵leurs sorciers, leurs idoles,
+   ceux qui évoquent les morts ╵et les devins.
+4) [[Dieu|Je]] livrerai l’[[Egypte|Egypte]] ╵aux mains d’un maître dur,
+   un roi puissant ╵dominera sur eux.
+   L’[[Dieu|Eternel]] le déclare, ╵le Seigneur des armées célestes.
+5) L’eau de la mer s’asséchera,
+   le fleuve tarira ╵et son lit sera sec.
+6) L’eau croupira ╵à l’intérieur des bras du fleuve
+   et les canaux d’[[Egypte|Egypte]] ╵baisseront et s’assécheront ;
+   les joncs et les roseaux s’étioleront ;
+7) les prés, le long [[Nil|du fleuve]] ╵et à son embouchure,
+   tous les champs cultivés ╵irrigués par le [[Nil|Nil]], ╵se dessécheront
+   et seront emportés : ╵il n’en restera rien.
+8) Les pêcheurs gémiront,
+   tous ceux qui jettent l’hameçon ╵dans le [[Nil|Nil]] se lamenteront.
+   Ceux qui étendent leurs filets
+   sur la face des eaux ╵seront bien misérables.
+9) Ceux qui travaillent le fin lin ╵seront couverts de honte,
+   ceux qui le peignent et qui le tissent ╵deviendront blancs de peur.
+10) Tous les grands du pays ╵seront tout abattus
+    et tous les ouvriers ╵seront découragés.
+11) Les princes de [[Tanis|Tsoân]]╵ont perdu la raison,
+    les sages qui conseillent ╵le [[Pharaon|pharaon]] d’[[Egypte|Egypte]]
+    forment un conseil d’insensés.
+    Comment osez-vous dire ╵au [[Pharaon|pharaon]] :
+    « Nous, nous sommes des disciples des sages, ╵des disciples des anciens rois » ?
+12) Où sont-ils maintenant, ╵tes sages conseillers ?
+    Qu’ils te déclarent donc ╵et te fassent savoir
+    ce que le [[Dieu|Seigneur des armées célestes]]
+    a décrété contre l’[[Egypte|Egypte]].
+13) Les princes de [[Tanis|Tsoân]]╵sont dépourvus de sens
+    et les chefs de [[Memphis|Memphis]] ╵sont tous dans l’illusion.
+    Eux qui étaient chargés ╵de diriger l’[[Egypte|Egypte]], ╵ils la font s’égarer.
+14) L’[[Dieu|Eternel]] a versé ╵parmi les [[Egypte|Egyptiens]] ╵un esprit de vertige.
+    Eux, ils l’égarent ╵en tout ce qu’elle fait
+    comme un ivrogne qui s’égare ╵dans ce qu’il a vomi.
+15) Et nul ne pourra plus ╵rien faire pour l’[[Egypte|Egypte]],
+    pas plus la tête que la queue,
+    la palme ou le roseau.
 ## Chapitre 26
 ### Versets 20 et 21
 Intitulé **Grâce et restauration** par [[Bible#^358f23|BDS]]

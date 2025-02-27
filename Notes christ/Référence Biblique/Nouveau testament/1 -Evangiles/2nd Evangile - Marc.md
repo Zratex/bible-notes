@@ -72,39 +72,39 @@ Même intitulé que [[1er Evangile - Matthieu#Chapitre 24|Matthieu 24]]
 3) Puis [[Jésus|il]] alla s’asseoir sur les pentes du mont des Oliviers, en face du Temple.
 	[[Simon Pierre|Pierre]], [[Jacques (apôtre)|Jacques]], [[Jean]] et [[André|André]] le prirent à part et lui demandèrent :
 4) Dis-nous : quand cela se produira-t-il et à quel signe reconnaîtra-t-on que tous ces événements seront près de s’accomplir  ?
-5) Là-dessus, Jésus leur dit : Faites attention que personne ne vous induise en erreur.
-6) Plusieurs viendront sous mon nom en disant : « C’est moi le Messie  ! », et ils tromperont beaucoup de gens.
-7) Quand vous entendrez parler de guerres et de menaces de guerres, ne vous laissez pas troubler, car cela doit arriver, mais ce ne sera pas encore la fin.
-6) En effet, on verra se dresser une nation contre une nation, un royaume contre un autre, il y aura en divers lieux des tremblements de terre et des famines, mais ce ne seront que les premières douleurs de l’enfantement.
-9) Quant à vous, faites attention à vous-mêmes : on vous traduira devant les tribunaux des Juifs, on vous fouettera dans les synagogues, vous comparaîtrez devant des gouverneurs et des rois à cause de moi, pour leur apporter un témoignage. 10Il faut, avant tout, que la Bonne Nouvelle de l’Evangile soit annoncée à tous les peuples. 11Quand on vous emmènera pour vous traduire devant les autorités, ne vous inquiétez pas à l’avance de ce que vous direz, mais dites simplement ce qui vous sera donné au moment même : car ce n’est pas vous qui parlerez, mais l’Esprit Saint. 12Le frère livrera son propre frère pour le faire condamner à mort, et le père livrera son enfant. Des enfants se dresseront contre leurs parents et les feront mettre à mort. 13Tout le monde vous haïra à cause de moi. Mais celui qui tiendra bon jusqu’au bout sera sauvé.
-
-(Mt 24.15-31 ; Lc 21.20-28 ; 17.23-24)
-
-14 Quand vous verrez l’abominable profanation  établie dans le lieu où elle ne doit pas être – que celui qui lit comprenne ! – alors, que ceux qui sont en Judée s’enfuient dans les montagnes. 15Si quelqu’un est sur son toit en terrasse, qu’il ne rentre pas à l’intérieur de sa maison pour emporter quelque bien qui s’y trouve. 16Que celui qui sera dans les champs ne retourne pas chez lui pour aller chercher son manteau. 17Malheur, en ces jours-là, aux femmes enceintes et à celles qui allaitent ! 18Priez pour que cela n’arrive pas en hiver, 19car ce seront des jours de détresse comme on n’en a pas connus depuis que Dieu a créé le monde et comme jamais plus on n’en verra de semblables.
-
-20 Vraiment, si le Seigneur n’avait pas décidé de réduire le nombre de ces jours, personne n’en réchapperait ; mais, à cause de ceux qu’il a choisis, il abrégera ce temps.
-
-21 Si quelqu’un vous dit alors : « Voyez, le Messie est ici ! » ou : « Il est là ! » ne le croyez pas. 22De faux messies surgiront, ainsi que de faux prophètes. Ils produiront des signes miraculeux et des prodiges au point de tromper, si c’était possible, ceux que Dieu a choisis. 23Vous donc, faites attention, je vous ai prévenus !
-
-24 Cependant, en ces jours-là, après ce temps de détresse,
-
-le soleil s’obscurcira,
-
-la lune perdra sa clarté,
-
-25 les étoiles tomberont du ciel ;
-
-les puissances célestes ╵seront ébranlées  .
-
-(Mt 24.32-36 ; Lc 21.29-33)
-
-26 Alors on verra le Fils de l’homme venir sur les nuées  avec beaucoup de puissance et de gloire. 27Il enverra ses anges rassembler ses élus des quatre coins du monde, d’un bout à l’autre de l’univers.
-
-28 Que l’exemple du figuier vous serve d’enseignement : quand ses rameaux deviennent tendres et que ses feuilles poussent, vous savez que l’été est proche. 29De même, quand vous verrez se produire ces événements, sachez que le Fils de l’homme est proche, comme aux portes de la ville. 30Vraiment, je vous assure que cette génération-ci ne passera pas jusqu’à ce que tout cela vienne à se réaliser. 31Le ciel et la terre passeront, mais mes paroles ne passeront jamais. 32Quant au jour ou à l’heure, personne ne sait quand cela se produira, ni les anges du ciel, ni même le Fils ; seul, le Père le sait.
-
-(Mt 24.42)
-
-33 Soyez vigilants, restez sur vos gardes, puisque vous ne savez pas quand viendra le moment.
-
-34 Les choses se passeront comme lorsqu’un homme quitte sa maison pour un long voyage et en laisse la responsabilité à ses serviteurs, en confiant à chacun sa tâche. Il commande au portier de veiller. 35Tenez-vous donc vous aussi en éveil ! Car vous ne savez pas quand le maître de la maison doit revenir : sera-ce tard ? à minuit ? au chant du coq ? ou le matin ? 36Qu’il ne vous trouve pas en train de dormir s’il revient à l’improviste ! 37Ce que je dis là, je vous le dis à tous : Tenez-vous en éveil !
-7) **Alors on verra le [[Jésus|Fils]] de l’homme venir sur les nuées avec beaucoup de puissance et de gloire.**
+5) Là-dessus, [[Jésus|Jésus]] leur dit : **Faites attention que personne ne vous induise en erreur.**
+6) **Plusieurs viendront sous [[Jésus|mon]] nom en disant : « C’est moi le Messie  ! », et ils tromperont beaucoup de gens.**
+7) **Quand vous entendrez parler de guerres et de menaces de guerres, ne vous laissez pas troubler, car cela doit arriver, mais ce ne sera pas encore la fin.**
+8) **En effet, *[[23 - Esaïe#Versets 1 à 15|on verra se dresser une nation contre une nation, un royaume contre un autre]]*, il y aura en divers lieux des tremblements de terre et des famines, mais ce ne seront que les premières douleurs de l’enfantement.**
+9) **Quant à vous, faites attention à vous-mêmes : on vous traduira devant les tribunaux des Juifs, on vous fouettera dans les synagogues, vous comparaîtrez devant des gouverneurs et des rois à cause de [[Jésus|moi]], pour leur apporter un témoignage.**
+10) **Il faut, avant tout, que la [[Note sur l'évangile|Bonne Nouvelle de l’Evangile]] soit annoncée à tous les peuples.**
+11) **Quand on vous emmènera pour vous traduire devant les autorités, ne vous inquiétez pas à l’avance de ce que vous direz, mais dites simplement ce qui vous sera donné au moment même : car ce n’est pas vous qui parlerez, mais l’[[Saint-Esprit|Esprit Saint]].**
+12) **Le frère livrera son propre frère pour le faire condamner à mort, et le père livrera son enfant. Des enfants se dresseront contre leurs parents et les feront mettre à mort.**
+13) **Tout le monde vous haïra à cause de [[Jésus|moi]]. Mais celui qui tiendra bon jusqu’au bout sera sauvé.**
+14) **Quand vous verrez l’abominable profanation  établie dans le lieu où elle ne doit pas être – que celui qui lit comprenne ! – alors, que ceux qui sont en [[Judée|Judée]] s’enfuient dans les montagnes.**
+15) **Si quelqu’un est sur son toit en terrasse, qu’il ne rentre pas à l’intérieur de sa maison pour emporter quelque bien qui s’y trouve.**
+16) **Que celui qui sera dans les champs ne retourne pas chez lui pour aller chercher son manteau.**
+17) **Malheur, en ces jours-là, aux femmes enceintes et à celles qui allaitent !**
+18) **Priez pour que cela n’arrive pas en hiver,**
+19) **car ce seront des jours de détresse comme on n’en a pas connus depuis que [[Dieu|Dieu]] a créé le monde et comme jamais plus on n’en verra de semblables.**
+20) **Vraiment, si le [[Dieu|Seigneur]] n’avait pas décidé de réduire le nombre de ces jours, personne n’en réchapperait ; mais, à cause de ceux qu’[[Dieu|il]] a choisis, [[Dieu|il]] abrégera ce temps.**
+21) **Si quelqu’un vous dit alors : « Voyez, le Messie est ici ! » ou : « Il est là ! » ne le croyez pas.**
+22) **De faux messies surgiront, ainsi que de faux prophètes. Ils produiront des signes miraculeux et des prodiges au point de tromper, si c’était possible, ceux que [[Dieu|Dieu]] a choisis.**
+23) **Vous donc, faites attention, [[Jésus|je]] vous ai prévenus !**
+24) **Cependant, en ces jours-là, après ce temps de détresse,**
+    ***[[23 - Esaïe#Chapitre 13|le soleil s’obscurcira,]]***
+    ***[[23 - Esaïe#Chapitre 13|la lune perdra sa clarté,]]***
+25) ***[[23 - Esaïe#Versets 1 à 15|les étoiles tomberont du ciel ;]]***
+	***[[23 - Esaïe#Versets 1 à 15|les puissances célestes ╵seront ébranlées.]]***
+26) **Alors on verra *[[27 - Daniel#Versets 9 à 28|le Fils de l’homme venir sur les nuées]]* avec beaucoup de puissance et de gloire.**
+27) **Il enverra ses anges rassembler ses élus des quatre coins du monde, d’un bout à l’autre de l’univers.**
+28) **Que l’exemple du figuier vous serve d’enseignement : quand ses rameaux deviennent tendres et que ses feuilles poussent, vous savez que l’été est proche.**
+29) **De même, quand vous verrez se produire ces événements, sachez que le [[Jésus|Fils]] de l’homme est proche, comme aux portes de la ville.**
+30) **Vraiment, [[Jésus|je]] vous assure que cette génération-ci ne passera pas jusqu’à ce que tout cela vienne à se réaliser.**
+31) **Le ciel et la terre passeront, mais [[Jésus|mes]] paroles ne passeront jamais.**
+32) **Quant au jour ou à l’heure, personne ne sait quand cela se produira, ni les anges du ciel, ni même le [[Jésus|Fils]] ; seul, le [[Dieu|Père]] le sait.**
+33) **Soyez vigilants, restez sur vos gardes, puisque vous ne savez pas quand viendra le moment.**
+34) **Les choses se passeront comme lorsqu’un homme quitte sa maison pour un long voyage et en laisse la responsabilité à ses serviteurs, en confiant à chacun sa tâche. Il commande au portier de veiller.**
+35) **Tenez-vous donc vous aussi en éveil ! Car vous ne savez pas quand le maître de la maison doit revenir : sera-ce tard ? à minuit ? au chant du coq ? ou le matin ?**
+36) **Qu’il ne vous trouve pas en train de dormir s’il revient à l’improviste !**
+37) **Ce que [[Jésus|je]] dis là, [[Jésus|je]] vous le dis à tous : Tenez-vous en éveil !**

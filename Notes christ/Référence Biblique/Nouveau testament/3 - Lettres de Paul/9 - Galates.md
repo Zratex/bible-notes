@@ -18,6 +18,21 @@ Intitulé **Par la [[La Loi de Dieu|Loi]] ou par la foi ?** par [[Bible#^358f23|
 4) Avez-vous fait tant d’expériences pour rien ? Si encore, c’était pour rien !
 5) Voyons ! Lorsque [[Dieu]] vous donne son [[Saint-Esprit|Esprit]] et qu’il accomplit parmi vous des miracles, le fait-il parce que vous obéissez à la [[La Loi de Dieu|Loi]] ou parce que vous accueillez avec foi l’[[Note sur l'évangile|Evangile]] que vous avez entendu,
 6) à la manière d’[[Abraham|Abraham]] dont l’[[Ancien Testament|Ecriture]] déclare : *[[Genèse#Chapitre 15|Il a eu confiance en Dieu et Dieu, en portant sa foi à son crédit, l’a déclaré juste]]* ?
+## Chapitre 4
+### Versets 1 à 11
+Intitulé **Adoptés par [[Dieu]] comme ses enfants** par [[Bible#^358f23|BDS]]
+
+1) Voici ce que [[Paul|je]] veux dire. Aussi longtemps que l’héritier est un enfant, il ne se distingue en rien d’un esclave. Bien qu’il soit le propriétaire de tout le patrimoine,
+2) il reste soumis à l’autorité de tuteurs et d’intendants jusqu’au terme fixé par son père.
+3) Nous aussi, lorsque nous étions des enfants, nous étions de même asservis aux principes élémentaires qui régissent la vie dans ce monde.
+4) Mais, lorsque le moment fixé par [[Dieu|Dieu]] est arrivé, [[Dieu|il]] a envoyé son [[Jésus|Fils]], né d’[[Marie|une femme]] et placé par sa naissance sous le régime de la [[La Loi de Dieu|Loi]],
+5) pour libérer ceux qui étaient soumis à ce régime. [[Jésus|Il]] nous a ainsi permis d’être adoptés par [[Dieu|Dieu]] comme ses fils et ses filles.
+6) Puisque vous êtes bien ses fils et filles, [[Dieu|Dieu]] a envoyé dans notre cœur l’[[Saint-Esprit|Esprit]] de son [[Jésus|Fils]] qui crie : Abba, c’est-à-dire « Père ».
+7) Ainsi donc, tu n’es plus esclave, mais fils ou fille, et, puisque tu es fils ou fille, tu es héritier des biens promis, grâce à [[Dieu|Dieu]].
+8) Mais autrefois, vous ne connaissiez pas [[Dieu|Dieu]], c’est pourquoi vous serviez comme des esclaves des divinités qui, en réalité, ne sont pas des dieux.
+9) A présent, vous connaissez [[Dieu|Dieu]]. Bien plus : [[Dieu|Dieu]] vous a reconnus comme siens. Comment se peut-il alors que vous retourniez à ces principes élémentaires sans pouvoir ni valeur, pour en devenir à nouveau les esclaves ?
+10) Vous observez les jours spéciaux, les nouvelles lunes, certaines saisons et certaines années !
+11) Ah ! je crains fort que toute la peine que je me suis donnée pour vous ait été inutile.
 ## Chapitre 5
 ### Versets 13 à 26
 Intitulé **L'Esprit et l'homme livré à lui même** par [[Bible#^358f23|BDS]]

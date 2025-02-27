@@ -17,3 +17,18 @@ Intitulé **Ce qui précédera la venue du [[Seigneur et non seulement sauveur|S
 10) Il usera de toutes les formes du mal pour tromper ceux qui se perdent, parce qu’ils sont restés fermés à l’amour de la vérité qui les aurait sauvés.
 11) Voilà pourquoi [[Dieu]] leur envoie une puissance d’égarement pour qu’ils croient au mensonge.
 12) Il agit ainsi pour que soient condamnés tous ceux qui n’auront pas cru à la vérité et qui auront pris plaisir au mal.
+## Chapitre 5
+### Versets 12 à 22
+Intitulé **Recommandations** par [[Bible#^358f23|BDS]]
+
+12) Nous vous demandons, frères et sœurs, d’apprécier ceux qui travaillent parmi vous, qui vous dirigent au nom du [[Seigneur et non seulement sauveur|Seigneur]] et qui vous avertissent.
+13) Témoignez-leur une grande estime et de l’affection à cause de leur travail. Vivez en paix entre vous.
+14) Nous vous le recommandons, frères et sœurs : avertissez ceux qui mènent une vie déréglée, réconfortez ceux qui sont découragés, soutenez les faibles, soyez patients envers tous.
+15) Veillez à ce que personne ne rende le mal pour le mal mais, en toute occasion, recherchez le bien, dans vos rapports mutuels comme envers tous les hommes.
+16) Soyez toujours dans la joie.
+17) Priez sans cesse.
+18) Remerciez [[Dieu|Dieu]] en toute circonstance : telle est pour vous la volonté que [[Dieu|Dieu]] a exprimée en [[Jésus|Jésus-Christ]].
+19) N’éteignez pas l’action de l’[[Saint-Esprit|Esprit]] :
+20) ne méprisez pas les prophéties ;
+21) au contraire, examinez toutes choses, retenez ce qui est bon,
+22) et gardez-vous de ce qui est mauvais, sous quelque forme que ce soit.

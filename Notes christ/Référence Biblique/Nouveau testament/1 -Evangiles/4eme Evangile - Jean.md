@@ -71,6 +71,33 @@ Intitulé **Les premiers Disciples** par [[Bible#^358f23|BDS]]
 49) – Maître, s’écria [[Nathanaël]], tu es le [[Jésus|Fils]] de [[Dieu]], tu es le Roi d’[[Israël]] !
 50) **– [[Nathanaël|Tu]] crois**, lui répondit [[Jésus]], **parce que je t’ai dit que je t’ai vu sous le figuier ? Tu verras de bien plus grandes choses encore.**
 51) Et [[Jésus|il]] ajouta : **Oui, je vous l’assure, vous verrez le ciel ouvert et les anges de [[Dieu]] monter et descendre entre ciel et terre par l’intermédiaire du [[Jésus|Fils]] de l’homme.**
+## Chapitre 8
+### Versets 31 à 51
+Intitulé **Les vrais fils d'[[Abraham]]**
+
+31) Alors [[Jésus|Jésus]] dit aux Juifs qui avaient mis leur foi en lui : **Si vous vous attachez à la [[Note sur l'évangile|Parole]] que [[Jésus|je]] vous ai annoncée, vous êtes vraiment mes disciples.**
+32) **Vous connaîtrez la vérité, et la vérité fera de vous des hommes libres.**
+33) – Nous, lui répondirent-ils, nous sommes la postérité d’[[Abraham|Abraham]], nous n’avons jamais été esclaves de personne. Comment peux-tu dire : « Vous serez des hommes libres ? »
+34) **– Vraiment, [[Jésus|je]] vous l’assure**, leur répondit [[Jésus|Jésus]], **tout homme qui commet le péché est esclave du péché.**
+35) **Or, un esclave ne fait pas partie de la famille, un fils, lui, en fait partie pour toujours.**
+36) **Si donc c’est le Fils qui vous donne la liberté, alors vous serez vraiment libres.**
+37) **[[Jésus|Je]] sais que vous êtes les descendants d’[[Abraham|Abraham]]. Pourtant, vous cherchez à [[Jésus|me]] faire mourir parce que [[Jésus|ma]] parole ne trouve aucun accès dans votre cœur.**
+38) **[[Jésus|Moi, je]] parle de ce que [[Jésus|j]]’ai vu chez mon [[Dieu|Père]]. Quant à vous, vous faites ce que vous avez appris de votre père.**
+39) – Notre père à nous, répondirent-ils, c’est [[Abraham|Abraham]].
+    **– Eh bien**, leur répliqua [[Jésus|Jésus]], **si vous étiez vraiment des enfants d’[[Abraham|Abraham]], vous agiriez comme lui.**
+40) **Au lieu de cela, vous cherchez à [[Jésus|me]] faire mourir. Pourquoi ? Parce que [[Jésus|je]] vous dis la vérité telle que [[Jésus|je]] l’ai apprise de [[Dieu|Dieu]]. Jamais [[Abraham|Abraham]] n’a agi comme vous.**
+41) **Vous agissez exactement comme votre père à vous !**
+    – Mais, répondirent-ils, nous ne sommes pas des enfants illégitimes. Nous n’avons qu’un seul [[Dieu|Père : Dieu]] !
+43) **– Si vraiment [[Dieu|Dieu]] était votre Père,** leur dit [[Jésus|Jésus]], **vous [[Jésus|m]]’aimeriez, car c’est de [[Dieu|Dieu]] que [[Jésus|je]] proviens, c’est de [[Dieu|Dieu]] que [[Jésus|je]] suis venu. [[Jésus|Je]] ne suis pas venu de [[Jésus|ma]] propre initiative, c’est [[Dieu|lui]] qui [[Jésus|m]]’a envoyé.**
+44) **Pourquoi ne comprenez-vous pas ce que [[Jésus|je]] vous dis ? Parce que vous êtes incapables de recevoir [[Jésus|mes]] paroles.**
+45) **Votre père, c’est le [[Satan|diable]], et vous voulez vous conformer à [[Satan|ses]] désirs. Depuis le commencement, c’est un meurtrier : [[Satan|il]] ne se tient pas dans la vérité, parce qu’il n’y a pas de vérité en [[Satan|lui]]. Lorsqu’[[Satan|il]] ment, [[Satan|il]] parle de son propre fond, puisqu’[[Satan|il]] est menteur, [[Satan|lui]] le père du mensonge.**
+46) **Mais [[Jésus|moi, je]] dis la vérité. C’est précisément pour cela que vous ne [[Jésus|me]] croyez pas.**
+47) **Qui d’entre vous peut produire la preuve que [[Jésus|j]]’ai commis une seule faute ? Si [[Jésus|je]] dis vrai, pourquoi ne [[Jésus|me]] croyez-vous pas ?**
+48) **Celui qui appartient à [[Dieu|Dieu]] écoute les paroles de [[Dieu|Dieu]]. Si vous ne les écoutez pas, c’est parce que vous ne [[Dieu|lui]] appartenez pas.**
+49) Ils répliquèrent : Nous avions bien raison de le dire : [[Jésus|tu]] n’es qu’un Samaritain, [[Jésus|tu]] as un démon en toi.
+50) **– Non,** répondit [[Jésus|Jésus]], **[[Jésus|je]] n’ai pas de démon en [[Jésus|moi]]. Au contraire, [[Jésus|j]]’honore mon [[Dieu|Père]] ; mais vous, vous [[Jésus|me]] méprisez.**
+51) **Non, [[Jésus|je]] ne recherche pas la gloire pour moi-même : c’est un autre qui s’en préoccupe et il me rendra justice.**
+52) **Vraiment, [[Jésus|je]] vous l’assure : celui qui observe [[Jésus|mon]] enseignement ne verra jamais la mort.**
 ## Chapitre 10
 ### Versets 22 à 42
 Intitulé **Fils de [[Dieu]] ou blasphémateur ?** par [[Bible#^358f23|BDS]]

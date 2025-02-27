@@ -71,7 +71,15 @@ Intitulé **Le rôle des prédicateurs de l'[[Note sur l'évangile|Evangile]]** 
 21) Que personne ne mette donc sa fierté dans des hommes, car tout est à vous,
 22) soit [[Paul]], soit Apollos, soit [[Simon Pierre|Pierre]], soit le monde, soit la vie, soit la mort, soit le présent, soit l’avenir. Tout est à vous,
 23) mais vous, vous êtes à [[Jésus|Christ]], et [[Jésus|Christ]] est à [[Dieu]].
+## Chapitre 4
+### Versets 1 à 5
+Intitulé **Des intendants au service de [[Jésus|Christ]]** par [[Bible#^358f23|BDS]]
 
+1) Ainsi, qu’on nous considère comme de simples serviteurs de [[Jésus|Christ]], des intendants chargés des secrets de [[Dieu]].
+2) Or, en fin de compte, que demande-t-on à des intendants ? Qu’ils accomplissent fidèlement la tâche qui leur a été confiée.
+3) Pour [[Paul|ma]] part, peu m’importe le jugement que vous, ou une instance humaine, pouvez porter sur [[Paul|moi]]. D’ailleurs, [[Paul|je]] ne me juge pas non plus moi-même.
+4) Car, bien que [[Paul|je]] n’aie rien à [[Paul|me]] reprocher, ce n’est pas cela qui fait de [[Paul|moi]] un juste. Celui qui [[Paul|me]] juge, c’est le [[Dieu|Seigneur]].
+5) Ne jugez donc pas avant le temps. Attendez que le [[Jésus|Seigneur]] revienne. Il mettra en lumière tout ce qui est caché dans les ténèbres et il dévoilera les intentions véritables qui animent les cœurs. Alors chacun recevra de [[Dieu|Dieu]] la louange qui lui revient.
 ## Chapitre 6
 ### Versets 12 à 20
 Intitulé **Sur l'inconduite** par [[Bible#^358f23|BDS]]

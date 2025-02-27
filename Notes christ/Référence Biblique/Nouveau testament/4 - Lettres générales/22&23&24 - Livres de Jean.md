@@ -73,4 +73,13 @@ Intitulé **Recommandation finale** par [[Bible#^358f23|BDS]], c'est la conclusi
 
 21) Mes chers enfants, gardez-vous des idoles.
 # 2 Jean
+## Chapitre 1
+### Versets 7 à 11
+Intitulé **La fidélité à la vérité** par [[Bible#^358f23|BDS]]
+
+7) Un grand nombre de personnes qui entraînent les autres dans l’erreur se sont répandues à travers le monde. Ils ne reconnaissent pas que c’est pleinement humain que [[Jésus|Jésus]] est venu. Qui fait partie de ces gens est trompeur, c’est l’anti-Christ.
+8) Prenez donc garde à vous-mêmes, pour que vous ne perdiez pas le fruit de nos efforts, mais que vous receviez une pleine récompense.
+9) Celui qui ne reste pas attaché à l’enseignement qui concerne [[Jésus|Christ]], mais veut le dépasser, n’a pas de communion avec [[Dieu|Dieu]]. Celui qui se tient à cet enseignement est uni au [[Dieu|Père]] comme au [[Jésus|Fils]].
+10) Si quelqu’un vient vous trouver et ne vous apporte pas cet enseignement, ne l’accueillez pas dans votre maison, et ne lui adressez pas la salutation fraternelle.
+11) Celui qui lui souhaiterait la bienvenue se rendrait complice de ses œuvres mauvaises.
 # 3 Jean

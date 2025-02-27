@@ -71,6 +71,49 @@ Intitulé **Dans la fosse aux lions** par [[Bible#^358f23|BDS]]
     dans le ciel et sur terre,
     car il a délivré [[Daniel]] ╵de la griffe des lions.
 29) [[Daniel]] prospéra sous le règne de [[Darius]] et sous celui de [[Cyrus]] le [[Perse#Achéménides|Perse]].
+## Chapitre 7
+### Versets 9 à 28
+Intitulé **Le [[Jésus|Fils]] de l'homme** par [[Bible#^358f23|BDS]]
+
+9) [[Daniel|Je]] regardai encore
+   pendant qu’on installait des trônes,
+   un [[Dieu|vieillard âgé]] de très nombreux jours ╵prit place sur l’un d’eux.
+   Son vêtement ╵était blanc comme de la neige
+   et ses cheveux étaient ╵comme la laine nettoyée.
+   Son trône, embrasé de flammes de feu,
+   avait des roues de feu ardent.
+10) Un fleuve de feu jaillissait
+    et coulait devant lui,
+    des millions d’êtres le servaient,
+    et des centaines de millions ╵se tenaient debout devant lui.
+    La cour de justice prit place
+    et l’on ouvrit des livres.
+11) [[Daniel|Je]] regardai toujours. Alors, à cause des propos arrogants proférés par la corne, [[Daniel|je]] vis qu’on tuait la bête et que son corps était détruit, jeté dans un brasier de feu.
+12) Quant au reste des bêtes, on leur enleva leur pouvoir mais on leur accorda une prolongation de vie jusqu’à un temps et un moment fixés.
+13) [[Daniel|Je]] regardai encore dans mes visions nocturnes :
+    Sur les nuées du ciel,
+    [[Daniel|je]] vis venir quelqu’un ╵semblable à un fils d’homme.
+    Il s’avança jusqu’au vieillard ╵âgé de nombreux jours
+    et on le fit approcher devant lui.
+14) On lui donna la souveraineté, ╵et la gloire et la royauté,
+    et tous les peuples, toutes les nations, ╵les hommes de toutes les langues ╵lui apportèrent leurs hommages.
+    Sa souveraineté est éternelle,
+    elle ne passera jamais,
+    et quant à son royaume, ╵il ne sera jamais détruit.
+15) [[Daniel|Moi, Daniel, je]] fus profondément angoissé au-dedans de moi et mes visions me remplirent d’effroi.
+16) [[Daniel|Je]] m’approchai de l’un de ceux qui se tenaient là pour lui demander quelle était la signification véritable de tout ce que [[Daniel|j]]’avais vu. Il me répondit pour m’en donner l’interprétation.
+17) « Ces quatre bêtes énormes, dit-il, représentent quatre rois qui apparaîtront sur la terre.
+18) Mais la royauté sera donnée aux membres du peuple saint [[Dieu|du Très-Haut]] et ils la posséderont pour toujours, éternellement. »
+19) Alors [[Daniel|je]] voulus être fixé avec certitude au sujet de la quatrième bête qui était si différente de toutes les autres, cette bête très effrayante qui avait des dents de fer et des griffes de bronze, qui dévorait, déchiquetait et piétinait ce qui restait de ses victimes.
+20) [[Daniel|Je]] voulus aussi savoir ce que représentaient les dix cornes qu’elle avait sur la tête et l’autre corne qui avait poussé et devant laquelle trois des premières cornes étaient tombées, cette corne qui avait des yeux et une bouche parlant avec arrogance et qui paraissait plus grande que les autres.
+21) Tandis que [[Daniel|je]] regardais, cette corne faisait la guerre aux membres du peuple saint et elle remportait la victoire sur eux
+22) jusqu’à ce que vienne le vieillard âgé de nombreux jours, et que le jugement soit rendu en faveur des membres du peuple saint [[Dieu|du Très-Haut]] et qu’arrive pour eux le temps de prendre possession de la royauté.
+23) Celui que [[Daniel|j]]’avais interrogé me dit : « La quatrième bête représente un quatrième royaume qui apparaîtra sur la terre. Il sera différent de tous les royaumes précédents : il dévorera le monde entier, le piétinera et le déchiquettera.
+24) Les dix cornes représentent dix rois qui surgiront de ce royaume. Un autre roi se lèvera après eux, il sera différent de ses prédécesseurs. Il renversera trois rois.
+25) Il proférera des paroles contre [[Dieu|le Très-Haut]], opprimera les membres du peuple saint [[Dieu|du Très-Haut]], entreprendra de changer le calendrier et la loi ; et le peuple saint sera livré à sa merci pendant un temps, deux temps et la moitié d’un temps.
+26) Mais alors, la cour de justice siégera et on ôtera la domination à ce roi pour l’anéantir et la faire disparaître définitivement.
+27) Le règne, la souveraineté et la grandeur de tous les royaumes qui sont sous le ciel seront attribués aux membres du peuple saint [[Dieu|du Très-Haut]]. Le règne de ce peuple est éternel, et toutes les puissances du monde le serviront et lui obéiront. »
+28) Ici prend fin le récit. Quant à [[Daniel|moi, Daniel, je]] fus très effrayé par mes pensées et [[Daniel|j]]’en devins blême. [[Daniel|Je]] gardai ces choses en mémoire.
 ## Chapitre 10
 Intitulé **Le temps de la fin** par [[Bible#^358f23|BDS]]
 ### Versets 1 à 9
