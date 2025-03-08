@@ -12,7 +12,7 @@ L'[[Orgueil et humilité|orgueil]] peux nous faire croire qu'on est assez avanc�
 > Comme nous vivons dans une famille, il n'y a aucun intérêt à chercher d'être le meilleur.
 
 -> `"je vous écris"` : **[[Jean]] a pris le temps de mentionner ce sujet, car il trouve cela important**
-## Les pères
+## Les pères dans la foi
 La [[Sagesse]] est en un père, donc il n'y a pas besoin de lui expliquer les choses car il connaît [[Dieu]] : donc **son objectif est de chercher à plaire [[Dieu]]**
 Mais il doit aussi prendre ses responsabilités dans l'éducation et la spiritualité.
 > Un père aussi se sacrifie pour sa famille
@@ -21,7 +21,7 @@ Mais il doit aussi prendre ses responsabilités dans l'éducation et la spiritua
 [[18 - Hébreux#Versets 11 à 14|Hébreux 5:14]] : c'est un long cheminement avant de venir père dans la foi et pouvoir manger cette nourriture solide
 
 [[11 - Philippiens#Versets 1 à 12|Philippiens 3:10]] : l'objectif d'aspirer à ressembler à [[Jésus]] (le principe d'un chrétien) 
-## Les Jeunes gens
+## Les Jeunes gens dans la foi
 Le feu pour le monde grâce à la chaleur de [[Dieu]], car ils ont le [[Dieu]] à cœur.
 Tant que l'on n'a pas la victoire sur certaines situations, on ne peut pas être un père. Il faut mourir à soit même, et non pas céder/trainer avec la convoitise du monde.
 >Note à part : **La recherche d'un partenaire peut être un péché** : si on met cette quête plus en avant que la recherche de [[Dieu]], alors c'est un péché
@@ -31,7 +31,7 @@ Tant que l'on n'a pas la victoire sur certaines situations, on ne peut pas être
 
 En considérant toutes ces choses, ==un enseignant ne doit pas être un jeune dans la foi.==
 -> Donc c'est d'autant plus le cas pour un enfant dans la foi
-## Enfants
+## Les enfants dans la foi
 Si cela fait quelques mois ou années que l'on est dans la foi, on est forcément un enfant voir même un bébé dans la foi.
 > Il faut laisser le temps à [[Dieu]] de nous former
 

@@ -21,7 +21,7 @@ Comparaison entre [[Jésus]] et Nicodème : ils faisaient la même chose, mais l
 La foi demande à écouter le [[Saint-Esprit]] qui nous révèle et explique pourquoi certaines choses sont mauvaises pour nous, mais [[La Loi de Dieu]] on l'a respecte bêtement.
 > C'est l'image typique d'un enfant respectant les règles de ses parents, car c'est plus simple pour lui à son stade d'évolution.
 > **Si on est sous [[La Loi de Dieu]], on est donc ==pas assez mature spirituellement==**
-> -> Donc dans un stade à la limite d'[[Vie dans la famille de Dieu#Enfants|enfant spirituel]]
+> -> Donc dans un stade à la limite d'[[Vie dans la famille de Dieu#Les enfants dans la foi|enfant spirituel]]
 ## L'inquiétude
 [[Dieu]] et le péché ne peuvent pas coexister ensemble, il y a donc un fossé entre les 2.
 Implications : **Si l'on doute de [[Dieu]], c'est qu'on est proche du péché.** Par conséquences, si on est proche du péché, c'est qu'on est loin de [[Dieu]]. Et à cause de la distance du fossé, avec la perspective on voit [[Dieu]] tout petit, donc il a une place moins importante dans notre horizon.
