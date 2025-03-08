@@ -18,6 +18,18 @@ Intitulé **Par la [[La Loi de Dieu|Loi]] ou par la foi ?** par [[Bible#^358f23|
 4) Avez-vous fait tant d’expériences pour rien ? Si encore, c’était pour rien !
 5) Voyons ! Lorsque [[Dieu]] vous donne son [[Saint-Esprit|Esprit]] et qu’il accomplit parmi vous des miracles, le fait-il parce que vous obéissez à la [[La Loi de Dieu|Loi]] ou parce que vous accueillez avec foi l’[[Note sur l'évangile|Evangile]] que vous avez entendu,
 6) à la manière d’[[Abraham|Abraham]] dont l’[[Ancien Testament|Ecriture]] déclare : *[[Genèse#Chapitre 15|Il a eu confiance en Dieu et Dieu, en portant sa foi à son crédit, l’a déclaré juste]]* ?
+### Versets 15 à 22
+Intitulé **La [[La Loi de Dieu|Loi]] et la promesse** par [[Bible#^358f23|BDS]]
+
+15) [[Paul|Mes]] frères et sœurs, prenons un exemple de la vie ordinaire. Lorsqu’un homme a rédigé son testament en bonne et due forme, personne ne peut l’annuler ou y ajouter quoi que ce soit.
+16) Or, c’est à [[Abraham|Abraham]] et à sa descendance que [[Dieu|Dieu]] a fait ses promesses. Il n’est pas dit : « et à ses descendances », comme s’il s’agissait de plusieurs lignées. *[[Genèse#Versets 1 à 9|A ta descendance]]* ne désigne qu’une seule descendance, et c’est [[Jésus|Christ]].
+17) Eh bien, [[Paul|je]] dis ceci : une alliance a été conclue par [[Dieu|Dieu]] en bonne et due forme à la manière d’un testament ; la [[La Loi de Dieu|Loi]] est survenue quatre cent trente ans plus tard  : [[La Loi de Dieu|elle]] ne peut donc pas annuler cette alliance et réduire par là même la promesse à néant.
+18) En effet, si l’héritage du salut dépend de l’accomplissement de la [[La Loi de Dieu|Loi]], il ne repose plus sur la promesse. Or, c’est bien par une promesse que [[Dieu|Dieu]] a accordé sa faveur à [[Abraham|Abraham]].
+19) Mais alors, pourquoi la [[La Loi de Dieu|Loi]] ? [[La Loi de Dieu|Elle]] a été ajoutée pour mettre en évidence la désobéissance des hommes à l’ordre divin, et le régime qu’[[La Loi de Dieu|elle]] a instauré devait rester en vigueur jusqu’à la venue de la *descendance* d’[[Abraham|Abraham]] que la promesse concernait. Cette [[La Loi de Dieu|Loi]] a été promulguée par l’intermédiaire d’anges et par le moyen d’un médiateur, [[Moïse|Moïse]].
+20) Or s’il y a eu un médiateur, c’est qu’il y avait plus d’une partie en cause. Mais pour la promesse, [[Dieu|Dieu]] seul est en cause.
+21) La [[La Loi de Dieu|Loi]] irait-elle donc à l’encontre des promesses divines ?
+    Certainement pas ! Ah ! sans doute, si nous avions reçu une loi qui puisse procurer la vie aux hommes, alors nous pourrions obtenir d’être déclarés justes par [[Dieu|Dieu]] sur la base de cette loi.
+22) Mais voici le verdict de l’[[Ancien Testament|Ecriture]] : l’humanité entière se trouve prisonnière de sa culpabilité devant [[Dieu|Dieu]] afin que le don promis par [[Dieu|Dieu]] soit accordé aux croyants au moyen de leur foi en [[Jésus|Jésus-Christ]].
 ## Chapitre 4
 ### Versets 1 à 11
 Intitulé **Adoptés par [[Dieu]] comme ses enfants** par [[Bible#^358f23|BDS]]

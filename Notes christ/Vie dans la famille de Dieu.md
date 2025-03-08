@@ -54,7 +54,7 @@ On doit être convaincu lors de notre décision de prendre le baptême, car le [
 
 [[4eme Evangile - Jean#Versets 1 à 20|Jean 13:20]] : **si on n'accepte pas [[Jésus]]**, en tout temps, ==on ne peut pas s'approcher de [[Dieu]] !==
 > On observe si on a grandi dans la foi quand on se retrouve seul. 
-> Si on n'a pas évolué depuis la dernière fois qu'on ne va pas bien, les mêmes problèmes reviendront
+> **Si on n'a pas évolué depuis la dernière fois qu'on ne va pas bien, les mêmes problèmes reviendront**
 
 2 ressources pour renforcer notre âme :
 ## Resource 1 : Le rocher de la [[Bible]]

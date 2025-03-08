@@ -69,6 +69,19 @@ Intitulé **Les biens matériels** par [[Bible#^358f23|BDS]]
 19) **Ne vous amassez pas des richesses sur la terre où elles sont à la merci de la rouille, des mites qui rongent, ou des cambrioleurs qui percent les murs pour voler.**
 20) **Amassez-vous plutôt des trésors dans le ciel, où il n’y a ni rouille, ni mites qui rongent, ni cambrioleurs qui percent les murs pour voler.**
 21) **Car là où est ton trésor, là sera aussi ton cœur.**
+22) **Les yeux sont comme une lampe pour le corps ; si donc tes yeux sont en bon état, ton corps entier jouira de la lumière.**
+23) **Mais si tes yeux sont malades, tout ton corps sera plongé dans l’obscurité. Si donc la lumière qui est en toi est obscurcie, dans quelles ténèbres profondes te trouveras-tu !**
+24) **Nul ne peut être en même temps au service de deux maîtres, car ou bien il détestera l’un et aimera l’autre, ou bien il sera dévoué au premier et méprisera le second. Vous ne pouvez pas servir en même temps [[Dieu|Dieu]] et l’Argent.**
+25) **C’est pourquoi [[Jésus|je]] vous dis : ne vous inquiétez pas en vous demandant : « Qu’allons-nous manger ou boire ? Avec quoi allons-nous nous habiller ? » La vie ne vaut-elle pas bien plus que la nourriture ? Et le corps ne vaut-il pas bien plus que les vêtements ?**
+26) **Voyez ces oiseaux qui volent dans le ciel, ils ne sèment ni ne moissonnent, ils n’amassent pas de provisions dans des greniers, et votre [[Dieu|Père céleste]] les nourrit. N’avez-vous pas bien plus de valeur qu’eux ?**
+27) **D’ailleurs, qui de vous peut, à force d’inquiétude, prolonger son existence, ne serait-ce que de quelques instants?**
+28) **Quant aux vêtements, pourquoi vous inquiéter à leur sujet ? Observez les lis sauvages ! Ils poussent sans se fatiguer à tisser des vêtements.**
+29) **Pourtant, [[Jésus|je]] vous l’assure, le roi [[Salomon|Salomon]] lui-même, dans toute sa gloire, n’a jamais été aussi bien vêtu que l’un d’eux !**
+30) **Si [[Dieu|Dieu]] habille ainsi cette petite plante des champs qui est là aujourd’hui et qui demain sera jetée au feu, à plus forte raison ne vous vêtira-t-il pas vous-mêmes ? Ah, votre foi est bien petite !**
+31) **Ne vous inquiétez donc pas et ne dites pas : « Que mangerons-nous ? » ou « Que boirons-nous ? » ou « Avec quoi nous habillerons-nous ? »**
+32) **Toutes ces choses, les païens s’en préoccupent sans cesse. Mais votre [[Dieu|Père]], qui est aux cieux, sait que vous en avez besoin.**
+33) **Faites donc du [[Royaume de Dieu|royaume de Dieu]] et de ce qui est juste à ses yeux votre préoccupation première, et toutes ces choses vous seront données en plus.**
+34) **Ne vous inquiétez pas pour le lendemain ; le lendemain se souciera de lui-même. A chaque jour suffit sa peine.**
 ## Chapitre 7
 Dernière partie de ce qui est appelé le "serment sur la montage " par [[Jésus]]
 ## Chapitre 8
