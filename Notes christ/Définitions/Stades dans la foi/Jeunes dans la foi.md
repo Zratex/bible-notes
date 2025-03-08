@@ -1,0 +1,2 @@
+Note sur le stade de **jeune gens dans la foi**, commencé par la série [[Vie dans la famille de Dieu]] qui donne plus d'informations sur les stades de la foi en général
+![[Vie dans la famille de Dieu#Les Jeunes gens dans la foi]]

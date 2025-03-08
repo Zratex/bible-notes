@@ -22,7 +22,7 @@ Mais il doit aussi prendre ses responsabilités dans l'éducation et la spiritua
 
 [[11 - Philippiens#Versets 1 à 12|Philippiens 3:10]] : l'objectif d'aspirer à ressembler à [[Jésus]] (le principe d'un chrétien) 
 ## Les Jeunes gens dans la foi
-Le feu pour le monde grâce à la chaleur de [[Dieu]], car ils ont le [[Dieu]] à cœur.
+Les jeunes gens sont le feu pour le monde grâce à la chaleur de [[Dieu]], car ils ont [[Dieu]] à cœur.
 Tant que l'on n'a pas la victoire sur certaines situations, on ne peut pas être un père. Il faut mourir à soit même, et non pas céder/trainer avec la convoitise du monde.
 >Note à part : **La recherche d'un partenaire peut être un péché** : si on met cette quête plus en avant que la recherche de [[Dieu]], alors c'est un péché
 
