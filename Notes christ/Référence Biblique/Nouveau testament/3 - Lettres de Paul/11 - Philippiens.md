@@ -1,4 +1,23 @@
 Lettre écrite par [[Paul]] envers les philippiens.
+## Chapitre 1
+### Versets 12 à 26
+Intitulé **Nouvelles de [[Paul]] et de son ministère** par [[Bible#^358f23|BDS]]
+
+12) [[Paul|Je]] tiens à ce que vous le sachiez, frères et sœurs : ce qui [[Paul|m]]’est arrivé a plutôt servi la cause de l’[[Note sur l'évangile|Evangile]].
+13) En effet, toute la garde prétorienne et tous les autres savent que c’est parce que [[Paul|je]] sers [[Jésus|Christ]] que [[Paul|je]] suis en prison.
+14) De plus, [[Paul|mon]] emprisonnement a encouragé la plupart des frères et sœurs à faire confiance au [[Jésus|Seigneur]] ; aussi redoublent-ils d’audace pour annoncer sans crainte la [[Parole de Dieu (Actes)|Parole de Dieu]].
+15) Quelques-uns, il est vrai, sont poussés par la jalousie et par un esprit de rivalité. Mais d’autres annoncent [[Jésus|Christ]] dans un bon esprit.
+16) Ces derniers agissent par amour. Ils savent que si [[Paul|je]] suis ici, c’est pour défendre l’[[Note sur l'évangile|Evangile]].
+17) Quant aux premiers, ils annoncent [[Jésus|Christ]] dans un esprit de rivalité, avec des motifs qui ne sont pas innocents : ils veulent rendre [[Paul|ma]] captivité encore plus pénible.
+18) Qu’importe, après tout ! De toute façon, que ce soit avec des arrière-pensées ou en toute sincérité, [[Jésus|Christ]] est annoncé, et [[Paul|je]] m’en réjouis. Mieux encore : [[Paul|je]] continuerai à [[Paul|m]]’en réjouir.
+19) Car [[Paul|je]] suis certain que toutes ces épreuves aboutiront à mon salut, grâce à vos prières pour [[Paul|moi]] et à l’assistance de l’[[Saint-Esprit|Esprit]] de [[Jésus|Jésus-Christ]].
+20) Car ce que [[Paul|j]]’attends et que [[Paul|j]]’espère de toutes mes forces, c’est de n’avoir à rougir de rien mais, au contraire, maintenant comme toujours, de manifester en ma personne, avec une pleine assurance, la grandeur de [[Jésus|Christ]], soit par [[Paul|ma]] vie, soit par [[Paul|ma]] mort.
+21) Pour [[Paul|moi]], en effet, la vie, c’est [[Jésus|Christ]], et la mort est un gain.
+22) Mais si [[Paul|je]] continue à vivre dans ce monde, alors [[Paul|je]] pourrai encore porter du [[Fruit|fruit]] par [[Paul|mon]] activité. [[Paul|Je]] ne sais donc pas que choisir.
+23) [[Paul|Je]] suis tiraillé de deux côtés : [[Paul|j]]’ai le désir de quitter cette vie pour être avec [[Jésus|Christ]], car c’est, de loin, le meilleur.
+24) Mais il est plus nécessaire que [[Paul|je]] demeure dans ce monde à cause de vous.
+25) Cela, [[Paul|j]]’en suis convaincu. [[Paul|Je]] sais donc que [[Paul|je]] resterai et que [[Paul|je]] demeurerai parmi vous tous, pour contribuer à votre progrès et à votre joie dans la foi.
+26) Ainsi, lorsque [[Paul|je]] serai de retour chez vous, vous aurez encore plus de raisons, à cause de [[Paul|moi]], de placer votre fierté en [[Jésus|Jésus-Christ]].
 ## Chapitre 2
 ### Versets 1 à 11
 Intitulé **Aimer, à l'aide de [[Jésus|Christ]]** par [[Bible#^358f23|BDS]]

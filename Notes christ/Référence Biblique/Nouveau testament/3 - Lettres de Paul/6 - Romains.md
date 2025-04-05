@@ -55,7 +55,7 @@ Intitulé **La grâce : une excuse pour pécher ?** par [[Bible#^358f23|BDS]]
 16) Ne savez-vous pas qu’en vous mettant au service de quelqu’un comme des esclaves pour lui obéir, vous êtes effectivement les esclaves du maître à qui vous obéissez : ou bien du péché qui entraîne la mort, ou bien de l’obéissance qui conduit à une vie juste ?
 17) Mais [[Dieu]] soit loué ! Si, autrefois, vous étiez les esclaves du péché, vous avez maintenant obéi de tout cœur à l’enseignement fondamental auquel vous avez été soumis.
 18) Et, à présent, affranchis du péché, vous êtes devenus esclaves de la justice.
-19) – Je parle ici d’une manière très humaine, à cause de votre faiblesse naturelle. – De même que vous avez offert autrefois les membres et organes de votre corps en esclaves pour agir d’une manière immorale et qui ne respecte pas la [[La Loi de Dieu|Loi de Dieu]], offrez-les maintenant en esclaves à la justice pour devenir saints dans votre être et votre conduite.
+19) – [[Paul|Je]] parle ici d’une manière très humaine, à cause de votre faiblesse naturelle. – De même que vous avez offert autrefois les membres et organes de votre corps en esclaves pour agir d’une manière immorale et qui ne respecte pas la [[La Loi de Dieu|Loi de Dieu]], offrez-les maintenant en esclaves à la justice pour devenir saints dans votre être et votre conduite.
 20) Lorsque vous étiez encore esclaves du péché, vous étiez libres par rapport à la justice.
 21) Or, quels [[Fruit|fruits]] portiez-vous alors ? Des actes qui vous font rougir de honte aujourd’hui, car ils conduisent à la mort.
 22) Mais maintenant, affranchis du péché et devenus esclaves de [[Dieu]], le [[Fruit|fruit]] que vous portez, c’est une vie sainte, et le résultat auquel vous aboutissez, c’est la vie éternelle.

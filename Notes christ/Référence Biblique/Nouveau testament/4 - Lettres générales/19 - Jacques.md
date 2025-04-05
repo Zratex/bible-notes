@@ -3,12 +3,9 @@ Rédigé par [[Jacques (épistolier)]]
 ### Salutations
 1) [[Jacques (apôtre)]], serviteur de [[Dieu]] et du [[Jésus|Seigneur Jésus-Christ]], salue les [[Jacob|douzes tribus]] dispersées du peuple de Dieu
 ### Versets 5 à 8
-Intitulé **La [[Sagesse (note)]] et la prière**
+Intitulé **La [[Sagesse]] et la prière**
 
-5) Si l’un de vous manque de [[Sagesse (note)]], qu’il la demande à [[Dieu]] qui la lui donnera, car il donne à tous généreusement et sans faire de reproche.
-
-Le verset 5 fait référence à [[20 - Proverbes#Chapitre 2|Proverbes 2:3-6]]
-
+5) Si l’un de vous manque de [[Sagesse]], qu’il la demande à [[Dieu]] qui la lui donnera, car il donne à tous généreusement et sans faire de reproche.
 6) Il faut cependant qu’il la demande avec foi, sans douter, car celui qui doute ressemble aux vagues de la mer agitées et soulevées par le vent.
 7) Qu’un tel homme ne s’imagine pas obtenir quoi que ce soit du [[Dieu|Seigneur]] :
 8) son [[Positionnement du cœur|cœur]] est partagé, il est inconstant dans toutes ses entreprises.

@@ -252,6 +252,54 @@ Intitulé **L'anéantissement d'[[Edom]]** par [[Bible#^358f23|BDS]]
     Un bonheur éternel ╵couronnera leur tête,
     ils auront en partage ╵la joie et l’allégresse,
     tristesse et plaintes s’enfuiront.
+## Chapitre 40
+### Versets 1 à 11
+Intitulé **La délivrance promise** par [[Bible#^358f23|BDS]]
+
+1) Réconfortez [[Dieu|mon]] peuple, ╵oui, réconfortez-le !
+   dit votre [[Dieu|Dieu]].
+2) Et parlez au cœur de [[Jérusalem|Jérusalem]], ╵annoncez-lui
+   que son temps de corvée ╵est accompli,
+   que son péché est expié,
+   qu’elle a reçu de l’[[Dieu|Eternel]]
+   deux fois le prix de ses péchés !
+3) On entend une voix crier :
+   « Dégagez un chemin ╵dans le désert ╵pour l’[[Dieu|Eternel]],
+   nivelez dans la steppe
+   une route pour notre [[Dieu|Dieu]] !
+4) Toute vallée sera élevée,
+   toute montagne abaissée ╵ainsi que toutes les collines.
+   Les lieux accidentés ╵se changeront en plaine,
+   les rochers escarpés ╵deviendront des vallées.
+5) Alors la gloire ╵de l’[[Dieu|Eternel]] ╵sera manifestée,
+   et tous les hommes ╵la verront à la fois.
+   L’[[Dieu|Eternel]] l’a promis. »
+6) Une voix interpelle : ╵« Va, proclame un message ! »
+   Une autre lui répond : ╵« Que dois-je proclamer ?
+   – Que tout homme est pareil à l’herbe
+   et toute sa beauté ╵comme la fleur des champs  ;
+7) car l’herbe se dessèche ╵et la fleur se flétrit
+   quand le souffle de l’[[Dieu|Eternel]] ╵passe dessus.
+   En vérité : les hommes ╵sont pareils à de l’herbe.
+8) Oui, l’herbe se dessèche ╵et la fleur se flétrit,
+   mais la parole ╵de notre [[Dieu|Dieu]]
+   subsistera toujours. »
+9) O [[Sion|Sion]], messagère ╵d’une bonne nouvelle,
+   gravis une haute montagne !
+   Crie avec force,
+   [[Jérusalem|Jérusalem]], ╵messagère d’une bonne nouvelle !
+   Oui, crie sans crainte,
+   annonce aux villes de [[Judée|Juda]] :
+   « Voici votre [[Dieu|Dieu]] vient ! »
+10) Voici l’[[Dieu|Eternel]], le [[Seigneur et non seulement sauveur|Seigneur]] ;
+    [[Dieu|il]] vient avec puissance
+    et son bras lui assure ╵la souveraineté.
+    Voici : [[Dieu|ses]] récompenses ╵sont avec [[Dieu|lui]],
+    et le fruit de [[Dieu|son]] œuvre ╵va devant [[Dieu|lui]].
+11) Comme un berger, ╵[[Dieu|il]] paîtra son troupeau
+    et [[Dieu|il]] rassemblera ╵les agneaux dans [[Dieu|ses]] bras.
+    Sur [[Dieu|son]] sein, [[Dieu|il]] les porte
+    et conduit doucement ╵les brebis qui allaitent.
 ## Chapitre 52
 ### Versets 7 à 12
 Intitulé **[[Dieu]] délivre** par la version [[Bible#^358f23|BDS]]
@@ -353,6 +401,67 @@ Intitulé **Le quatrième chant du Serviteur** par [[Bible#^358f23|BDS]]
     et s’est laissé compter ╵parmi les malfaiteurs,
     car [[Jésus|il]] a pris sur lui ╵les fautes d’un grand nombre,
     [[Jésus|il]] a intercédé ╵en faveur des coupables.
+## Chapitre 54
+Intitulé **Le bonheur qui attend [[Israël|Israël]]** par [[Bible#^4cfe93|LSG]]
+
+1) Réjouis-toi, stérile, toi qui n’enfantes plus!
+   Fais éclater ton allégresse et ta joie, toi qui n’as plus de douleurs!
+   Car les fils de la délaissée seront plus nombreux
+   Que les fils de celle qui est mariée, dit l’[[Dieu|Éternel]].
+2) Élargis l’espace de ta tente;
+   Qu’on déploie les couvertures de ta demeure:
+   Ne retiens pas!
+   Allonge tes cordages,
+   Et affermis tes pieux!
+3) Car tu te répandras à droite et à gauche;
+   Ta postérité envahira des nations,
+   Et peuplera des villes désertes.
+4) Ne crains pas, car tu ne seras point confondue;
+   Ne rougis pas, car tu ne seras pas déshonorée;
+   Mais tu oublieras la honte de ta jeunesse,
+   Et tu ne te souviendras plus de l’opprobre de ton veuvage.
+5) Car ton créateur est ton époux:
+   L’[[Dieu|Éternel des armées]] est son nom;
+   Et ton rédempteur est le Saint d’[[Israël|Israël]]:
+   Il se nomme [[Dieu|Dieu]] de toute la terre;
+6) Car l’[[Dieu|Éternel]] te rappelle comme une femme délaissée et au cœur attristé,
+   Comme une épouse de la jeunesse qui a été répudiée, dit ton [[Dieu|Dieu]].
+7) Quelques instants [[Dieu|je]] t’avais abandonnée,
+   Mais avec une grande affection [[Dieu|je]] t’accueillerai;
+8) Dans un instant de colère, [[Dieu|je]] t’avais un moment dérobé ma face,
+   Mais avec un amour éternel [[Dieu|j]]’aurai compassion de toi,
+   Dit ton rédempteur, l’[[Dieu|Éternel]].
+9) Il en sera pour moi comme des eaux de [[Noé|Noé]]:
+   [[Dieu|J]]’avais juré que les eaux de [[Noé|Noé]] ne se répandraient plus sur la terre;
+   [[Dieu|Je]] jure de même de ne plus m’irriter contre toi
+   Et de ne plus te menacer.
+10) Quand les montagnes s’éloigneraient,
+    Quand les collines chancelleraient,
+    [[Dieu|Mon]] amour ne s’éloignera point de toi,
+    Et mon alliance de paix ne chancellera point,
+    Dit l’[[Dieu|Éternel]], qui a compassion de toi.
+11) Malheureuse, battue de la tempête, et que nul ne console!
+    Voici, [[Dieu|je]] garnirai tes pierres d’antimoine,
+    Et [[Dieu|je]] te donnerai des fondements de saphir;
+12) [[Dieu|Je]] ferai tes créneaux de rubis,
+    Tes portes d’escarboucles,
+    Et toute ton enceinte de pierres précieuses.
+13) Tous tes fils seront disciples de l’[[Dieu|Éternel]],
+    Et grande sera la prospérité de tes fils.
+14) Tu seras affermie par la justice;
+    Bannis l’inquiétude, car tu n’as rien à craindre,
+    Et la frayeur, car elle n’approchera pas de toi.
+15) Si l’on forme des complots, cela ne viendra pas de moi;
+    Quiconque se liguera contre toi tombera sous ton pouvoir.
+16) Voici, [[Dieu|j]]’ai créé l’ouvrier qui souffle le charbon au feu,
+    Et qui fabrique une arme par son travail;
+    Mais [[Dieu|j]]’ai créé aussi le destructeur pour la briser.
+17) Toute arme forgée contre toi sera sans effet;
+    Et toute langue qui s’élèvera en justice contre toi,
+    Tu la condamneras.
+    Tel est l’héritage des serviteurs de l’[[Dieu|Éternel]],
+    Tel est le salut qui leur viendra de [[Dieu|moi]],
+    Dit l’[[Dieu|Éternel]].
 ## Chapitre 55
 Intitulé **L'offre et l'appel universels - Le festin gratuit** par [[Bible#^358f23|BDS]]
 

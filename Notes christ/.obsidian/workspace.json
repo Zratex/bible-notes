@@ -8,35 +8,20 @@
         "type": "tabs",
         "children": [
           {
-            "id": "3644076f9a9a83b1",
+            "id": "b18f9c3f92c821c9",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Chemin vérité vie.md",
+                "file": "Formation disciples POC Reims/Histoire de l'Eglise/L'Eglise primitive jusqu'avant la réforme.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Chemin vérité vie"
-            }
-          },
-          {
-            "id": "0ea8bfd2775d59b7",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Marcher dans le royaume de Dieu.md",
-                "mode": "source",
-                "source": false
-              },
-              "icon": "lucide-file",
-              "title": "Marcher dans le royaume de Dieu"
+              "title": "L'Eglise primitive jusqu'avant la réforme"
             }
           }
-        ],
-        "currentTab": 1
+        ]
       }
     ],
     "direction": "vertical"
@@ -68,7 +53,7 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "famille de dieu",
+                "query": "",
                 "matchingCase": false,
                 "explainSearch": false,
                 "collapseAll": false,
@@ -192,38 +177,82 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "0ea8bfd2775d59b7",
+  "floating": {
+    "id": "9be190765f25f02e",
+    "type": "floating",
+    "children": [
+      {
+        "id": "f002cd2b932ddcb0",
+        "type": "window",
+        "children": [
+          {
+            "id": "eed2526ef40be050",
+            "type": "tabs",
+            "children": [
+              {
+                "id": "00f545dad36d681b",
+                "type": "leaf",
+                "state": {
+                  "type": "markdown",
+                  "state": {
+                    "file": "Formation disciples POC Reims/Formation disciples POC Reims.md",
+                    "mode": "source",
+                    "source": false
+                  },
+                  "icon": "lucide-file",
+                  "title": "Formation disciples POC Reims"
+                }
+              }
+            ]
+          }
+        ],
+        "direction": "vertical",
+        "x": 470,
+        "y": 19,
+        "width": 1574,
+        "height": 1000,
+        "maximize": true,
+        "zoom": 0
+      }
+    ]
+  },
+  "active": "b18f9c3f92c821c9",
   "lastOpenFiles": [
-    "Définitions/Stades dans la foi/Enfants dans la foi.md",
-    "Définitions/Stades dans la foi/Jeunes dans la foi.md",
-    "Vie dans la famille de Dieu.md",
-    "Définitions/Stades dans la foi/Pères dans la foi.md",
-    "Daniel a ouvert les fenêtres.md",
-    "Marcher dans le royaume de Dieu.md",
-    "Définitions/Stades dans la foi",
-    "Chemin vérité vie.md",
-    "Définitions/Royaume de Dieu.md",
-    "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/9 - Galates.md",
+    "Personnages/Nouveau testament/Disciples de Jésus/Simon Pierre.md",
+    "Formation disciples POC Reims/Histoire de l'Eglise/L'Eglise primitive jusqu'avant la réforme.md",
     "Référence Biblique/Ancien testament/1 - Le commencement/Genèse.md",
-    "Définitions/Parole de Dieu (Actes).md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/10 - Ephésiens.md",
+    "Personnages/Eglise.md",
+    "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.md",
+    "Définitions/Apologétique.md",
+    "Formation disciples POC Reims/Histoire de l'Eglise/Conclusions de l'histoire l'Eglise.md",
+    "Lieux historiques/Villes/Césarée de Philippe.md",
+    "Lieux historiques/Images/Césarée de Philippe.PNG",
+    "Référence Biblique/Ancien testament/5 - Livres poétiques/20 - Proverbes.md",
+    "Référence Biblique/Ancien testament/5 - Livres poétiques/20 - Proverbes.sync-conflict-20250401-231545-4D4KN2W.md",
+    "Référence Biblique/Nouveau testament/4 - Lettres générales/19 - Jacques.md",
+    "Référence Biblique/Nouveau testament/4 - Lettres générales/19 - Jacques.sync-conflict-20250401-231544-4D4KN2W.md",
+    "Sagesse (note).md",
+    "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.sync-conflict-20250401-231544-4D4KN2W.md",
+    "Formation disciples POC Reims/Formation disciples POC Reims.md",
+    "Référence Biblique/Nouveau testament/1 -Evangiles/4eme Evangile - Jean.md",
+    "Formation disciples POC Reims/Histoire de l'Eglise",
+    "Définitions/Mort.md",
+    "Définitions/Augure.md",
+    "Définitions/Eden.md",
+    "Formation disciples POC Reims",
+    "Repos de Dieu.md",
+    "Chemin vérité vie.md",
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/15&16 - Timothée.md",
+    "Repos de Dieu.sync-conflict-20250401-231545-4D4KN2W.md",
+    "Lieux historiques/Villes/Sidon.md",
+    "Jésus sur mon rivage.md",
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/6 - Romains.md",
+    "Lieux historiques/Images/Capharnaüm.PNG",
+    "Lieux historiques/Images/Chorazin.PNG",
+    "Définitions/Stades dans la foi",
     "~syncthing~Marcher dans le royaume de Dieu.md.tmp",
-    "TCA spirituel.md",
     "~syncthing~TCA spirituel.md.tmp",
     "~syncthing~Untitled.md.tmp",
-    "Référence Biblique/Nouveau testament/4 - Lettres générales/22&23&24 - Livres de Jean.md",
-    "Personnages/Nouveau testament/Marie.md",
-    "Référence Biblique/Nouveau testament/1 -Evangiles/4eme Evangile - Jean.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/7&8 - Corinthiens.md",
-    "Lieux historiques/Régions géographiques/Samarie.md",
-    "Personnages/Dieu.md",
-    "Référence Biblique/Ancien testament/5 - Livres poétiques/19 - Psaumes.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/13&14 Thessaloniciens.md",
-    "Référence Biblique/Nouveau testament/4 - Lettres générales/20&21 - Pierre.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/15&16 - Timothée.md",
-    "Personnages/Ancien testament/Jannès&Jambrès.md",
-    "Référence Biblique/Nouveau testament/1 -Evangiles/2nd Evangile - Marc.md",
     "Lieux historiques/Images/Le Caire.PNG",
     "Lieux historiques/Images/Memphis.PNG",
     "Lieux historiques/Images/Tanis.PNG",
@@ -231,14 +260,9 @@
     "~syncthing~Jésus populaire part 3.md.tmp",
     "Notes perso",
     "Personnages/Ancien testament/Rois d'Israel/Famille de David",
-    "~syncthing~Orgueil et humilité.md.tmp",
-    "Personnages/Ancien testament/Famille d'Abraham/Fils de Jacob/Petits-enfants de Jacob",
     "Lieux historiques/Images/Pergame.PNG",
     "Lieux historiques/Images/Hittites.png",
     "Lieux historiques/Images/Cilicia.png",
-    "Lieux historiques/Images/Thessalonique.PNG",
-    "Lieux historiques/Images/Lycaonie.png",
-    "Lieux historiques/Images/Lystres.PNG",
-    "Lieux historiques/Images/Iconium.PNG"
+    "Lieux historiques/Images/Thessalonique.PNG"
   ]
 }

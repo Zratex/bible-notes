@@ -94,6 +94,21 @@ Intitulé **[[Jésus]] et la tradition religieuse juive**
 9) Le culte qu’il me rend n’a aucune valeur,
    car les enseignements qu’il donne
    ne sont que des règles inventées par les hommes
+## Chapitre 11
+### Versets 20 à 30
+Intitulé **Les reproches aux villes rebelles** par [[Bible#^358f23|BDS]]
+
+20) Alors [[Jésus|Jésus]] adressa de sévères reproches aux villes où il avait fait la plupart de ses miracles, parce que leurs habitants n’avaient pas changé :
+21) **Malheur à toi, [[Chorazin|Chorazin]]  ! Malheur à toi, [[Bethsaïda|Bethsaïda]] ! car si les miracles qui se sont produits au milieu de vous avaient eu lieu à [[Tyr|Tyr]] et à [[Sidon|Sidonh]], il y a longtemps que leurs habitants auraient changé et l’auraient manifesté en revêtant des habits de toile de sac et en se couvrant de cendre.**
+22) **C’est pourquoi, [[Jésus|je]] vous le déclare : au jour du jugement, ces villes seront traitées avec moins de rigueur que vous.**
+23) **Et toi, [[Capharnaüm|Capernaüm]], crois-tu que tu seras élevée jusqu’au ciel ? Non ! Tu seras précipitée au séjour des morts. Car si les miracles qui se sont produits chez toi avaient eu lieu à [[Sodome|Sodome]], elle existerait encore aujourd’hui.**
+24) **C’est pourquoi, [[Jésus|je]] vous le déclare : au jour du jugement, le pays de [[Sodome|Sodome]] sera traité avec moins de rigueur que toi.**
+25) Vers cette même époque, Jésus dit : **[[Jésus|Je]] te loue, ô [[Dieu|Père, Seigneur du ciel et de la terre]], parce que [[Dieu|tu]] as caché ces choses aux sages et aux intelligents, et que [[Dieu|tu]] les as révélées à ceux qui sont tout petits.**
+26) **Oui, [[Dieu|Père]], car dans ta bonté, [[Dieu|tu]] l’as voulu ainsi.**
+27) **Mon [[Dieu|Père]] a remis toutes choses entre [[Jésus|mes]] mains. Personne ne connaît le Fils, si ce n’est le Père ; et personne ne connaît le Père, si ce n’est le Fils et celui à qui le Fils veut le révéler.**
+28) **Venez à [[Jésus|moi]], vous tous qui êtes accablés sous le poids d’un lourd fardeau, et [[Jésus|je]] vous donnerai du repos.**
+29) **Prenez [[Jésus|mon]] joug sur vous et mettez-vous à mon école, car [[Jésus|je]] suis doux et humble de cœur, et vous trouverez le repos pour vous-mêmes.**
+30) **Oui, [[Jésus|mon]] joug est facile à porter et la charge que [[Jésus|je]] vous impose est légère.**
 ## Chapitre 13
 ### Versets 54 à 58
 Intitulé **[[Jésus]] rejeté à [[Nazareth]]** par [[Bible#^358f23|BDS]]
@@ -104,6 +119,18 @@ Intitulé **[[Jésus]] rejeté à [[Nazareth]]** par [[Bible#^358f23|BDS]]
 57) Et voilà pourquoi ils trouvaient en lui un obstacle à la foi.
     Alors [[Jésus|Jésus]] leur dit : **C’est seulement dans sa patrie et dans sa propre famille que l’on refuse d’honorer un prophète.**
 58) Aussi ne fit-il là que peu de miracles, à cause de leur incrédulité.
+## Chapitre 16
+### Versets 13 à 20
+Intitulé **Qui est vraiment [[Jésus]] ?** par [[Bible#^358f23|BDS]]
+
+13) [[Jésus|Jésus]] se rendit dans la région de [[Césarée de Philippe|Césarée de Philippe]]. [[Jésus|Il]] interrogea ses disciples : **Que disent les gens au sujet du Fils de l’homme  ? Qui est-il d’après eux ?**
+14) Ils répondirent : Pour les uns, c’est [[Jean Baptiste|Jean-Baptiste]] ; pour d’autres, [[Elie|Elie]] ; pour d’autres encore, [[Jérémie|Jérémie]] ou un autre prophète.
+15) **– Et vous,** leur demanda-t-[[Jésus|il]], **qui dites-vous que [[Jésus|je]] suis ?**
+16) [[Simon Pierre|Simon Pierre]] [[Jésus|lui]] répondit : **[[Jésus|Tu]] es le Messie, le Fils du [[Dieu|Dieu vivant]].**
+17) [[Jésus|Jésus]] [[Simon Pierre|lui]] dit alors : **[[Simon Pierre|Tu]] es heureux, [[Simon Pierre|Simon]], fils de Jonas, car ce n’est pas de [[Simon Pierre|toi-même]] que [[Simon Pierre|tu]] as trouvé cela. C’est [[Jésus|mon]] [[Dieu|Père céleste]] qui te l’a révélé.**
+18) **Et [[Jésus|moi, je]] [[Simon Pierre|te]] déclare : [[Simon Pierre|Tu es Pierre]], et sur cette pierre [[Jésus|je]] bâtirai [[Jésus|mon]] [[Eglise|Eglise]], contre laquelle la mort elle-même ne pourra rien.**
+19) **[[Jésus|Je]] te donnerai les clés du royaume des cieux  : tout ce que tu interdiras sur la terre sera interdit aux yeux de [[Dieu|Dieu]] et tout ce que tu autoriseras sur la terre sera autorisé aux yeux de [[Dieu|Dieu]].**
+20) Puis [[Jésus|Jésus]] interdit à ses disciples de dire à qui que ce soit qu’[[Jésus|il]] était le Messie.
 ## Chapitre 19
 ### Versets 16 à 30
 Intitulé **Les riches et le royaume de [[Dieu]]** par [[Bible#^358f23|BDS]]
@@ -161,7 +188,23 @@ Même intitulé que [[2nd Evangile - Marc#Chapitre 13|Marc 13]]
 ### Versets 36 à 51
 Intitulé **Se tenir prêt** par [[Bible#^358f23|BDS]]
 
-36) Quant au jour et à l’heure où cela se produira, personne ne les connaît, ni les anges du ciel, ni même le [[Jésus|Fils]]  ; personne, sauf le [[Dieu|Père]], et lui seul.
+36) **Quant au jour et à l’heure où cela se produira, personne ne les connaît, ni les anges du ciel, ni même le [[Jésus|Fils]]  ; personne, sauf le [[Dieu|Père]], et lui seul.**
+37) **Lors de la venue du [[Jésus|Fils de l’homme]], les choses se passeront comme au temps de [[Noé|Noé]] ;**
+38) **en effet, à l’époque qui précéda le déluge, les gens étaient occupés à manger et à boire, à se marier et à marier leurs enfants, jusqu’au jour où [[Noé|Noé]] entra dans le bateau.**
+39) **Ils ne se doutèrent de rien, jusqu’à ce que vienne le déluge qui les emporta tous.**
+    **Ce sera la même chose lorsque le [[Jésus|Fils de l’homme]] viendra.**
+40) **Alors deux ouvriers travailleront côte à côte dans un champ : l’un sera emmené, l’autre laissé.**
+41) **Deux femmes seront en train de tourner la pierre de meule : l’une sera emmenée, l’autre laissée.**
+42) **Tenez-vous donc en éveil, puisque vous ignorez quel jour votre [[Seigneur et non seulement sauveur|Seigneur]] viendra.**
+43) **Vous le savez bien : si le maître de maison savait à quelle heure de la nuit le voleur doit venir, il resterait éveillé pour ne pas le laisser pénétrer dans sa maison.**
+44) **Pour cette même raison, vous aussi, tenez-vous prêts, car c’est à un moment que vous n’auriez pas imaginé que le [[Jésus|Fils de l’homme]] viendra.**
+45) **Quel est le serviteur fidèle et sensé à qui le maître a confié le soin de veiller sur l’ensemble de son personnel pour qu’il distribue à chacun sa nourriture au moment voulu ?**
+46) **Heureux ce serviteur que le maître, à son retour, trouvera en train d’agir comme il le lui a demandé !**
+47) **Vraiment, [[Jésus|je]] vous l’assure, son maître lui confiera l’administration de tout ce qu’il possède.**
+48) **Mais si c’est un mauvais serviteur, qui se dit : « Mon maître n’est pas près de rentrer »,**
+49) **et se met à maltraiter ses compagnons de service, à manger et à boire avec les ivrognes,**
+50) **son maître arrivera un jour où il ne s’y attendra pas et à un moment qu’il ne connaît pas.**
+51) **Alors le maître le punira très sévèrement, et le traitera comme on traite les hypocrites. C’est là qu’il y aura des pleurs et d’amers regrets.**
 ## Chapitre 25
 ### Versets 1 à 13
 Intitulé **La parabole des dix jeunes filles** par [[Bible#^358f23|BDS]].

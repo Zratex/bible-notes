@@ -2,4 +2,4 @@
 ## Localisation
 Screen provenant de Google Map du Nord d'[[Israël]] :
 ![[Illustration Royaume de Sidon.PNG]]
-On peut remarquer au sud de Beyrouth, la ville désormais nommée **District de Sidon**
+On peut remarquer au sud de Beyrouth, la ville est désormais nommée **District de Sidon**
