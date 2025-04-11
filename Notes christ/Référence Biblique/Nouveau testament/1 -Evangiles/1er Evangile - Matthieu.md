@@ -1,5 +1,27 @@
 1er [[Nouveau testament#^94270d|évangile de la Bible]], rédigé par [[Matthieu]].
 > Les passages qui seront en gras correspondent aux passages où [[Jésus]] parle
+
+## Chapitre 1
+## Versets 1 à 17
+Intitulé **Généalogie de [[Jésus|Jésus-Christ]]** par [[Bible#^4cfe93|LSG]]
+
+1) Généalogie de [[Jésus|Jésus-Christ]], fils de [[David|David]], fils d’[[Abraham|Abraham]].
+2) [[Abraham|Abraham]] engendra [[Isaac|Isaac]]; [[Isaac|Isaac]] engendra [[Jacob|Jacob]]; [[Jacob|Jacob]] engendra [[Juda|Juda]] et ses frères;
+3) [[Juda|Juda]] engendra de Thamar Pharès et Zara; Pharès engendra Esrom; Esrom engendra Aram;
+4) Aram engendra Aminadab; Aminadab engendra Naasson; Naasson engendra Salmon;
+5) Salmon engendra Boaz de [[Rahab|Rahab]]; Boaz engendra Obed de [[Ruth]];
+6) Obed engendra [[Isaï|Isaï]]; [[Isaï|Isaï]] engendra [[David|David]]. Le roi [[David|David]] engendra [[Salomon|Salomon]] de la femme d’Urie;
+7) [[Salomon|Salomon]] engendra Roboam; Roboam engendra Abia; Abia engendra Asa;
+8) Asa engendra Josaphat; Josaphat engendra Joram; Joram engendra Ozias;
+9) Ozias engendra Joatham; Joatham engendra Achaz; Achaz engendra Ézéchias;
+10) Ézéchias engendra Manassé; Manassé engendra Amon; Amon engendra Josias;
+11) Josias engendra Jéchonias et ses frères, au temps de la déportation à [[Babylone|Babylone]].
+12) Après la déportation à [[Babylone|Babylone]], Jéchonias engendra [[Salathiel|Salathiel]]; [[Salathiel|Salathiel]] engendra [[Zorobabel|Zorobabel]];
+13) [[Zorobabel|Zorobabel]] engendra Abiud; Abiud engendra Éliakim; Éliakim engendra Azor;
+14) Azor engendra Sadok; Sadok engendra Achim; Achim engendra Éliud;
+15) Éliud engendra Éléazar; Éléazar engendra Matthan; Matthan engendra Jacob;
+16) Jacob engendra [[Joseph de Nazareth|Joseph]], l’époux de [[Marie|Marie]], de laquelle est né [[Jésus|Jésus]], qui est appelé [[Jésus|Christ]].
+17) Il y a donc en tout quatorze générations depuis [[Abraham|Abraham]] jusqu’à [[David|David]], quatorze générations depuis [[David|David]] jusqu’à la déportation à [[Babylone|Babylone]], et quatorze générations depuis la déportation à [[Babylone|Babylone]] jusqu’au [[Jésus|Christ]].
 ## Chapitre 5
 Première partie de ce qui est appelé le "serment sur la montage " par [[Jésus]]
 ### Versets 1 et 2

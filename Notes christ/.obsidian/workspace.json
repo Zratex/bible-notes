@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Formation disciples POC Reims/Histoire de l'Eglise/L'Eglise primitive jusqu'avant la réforme.md",
+                "file": "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "L'Eglise primitive jusqu'avant la réforme"
+              "title": "1er Evangile - Matthieu"
             }
           }
         ]
@@ -177,52 +177,34 @@
       "command-palette:Open command palette": false
     }
   },
-  "floating": {
-    "id": "9be190765f25f02e",
-    "type": "floating",
-    "children": [
-      {
-        "id": "f002cd2b932ddcb0",
-        "type": "window",
-        "children": [
-          {
-            "id": "eed2526ef40be050",
-            "type": "tabs",
-            "children": [
-              {
-                "id": "00f545dad36d681b",
-                "type": "leaf",
-                "state": {
-                  "type": "markdown",
-                  "state": {
-                    "file": "Formation disciples POC Reims/Formation disciples POC Reims.md",
-                    "mode": "source",
-                    "source": false
-                  },
-                  "icon": "lucide-file",
-                  "title": "Formation disciples POC Reims"
-                }
-              }
-            ]
-          }
-        ],
-        "direction": "vertical",
-        "x": 470,
-        "y": 19,
-        "width": 1574,
-        "height": 1000,
-        "maximize": true,
-        "zoom": 0
-      }
-    ]
-  },
-  "active": "b18f9c3f92c821c9",
+  "active": "412ad4b021e16018",
   "lastOpenFiles": [
-    "Personnages/Nouveau testament/Disciples de Jésus/Simon Pierre.md",
+    "Généalogie.md",
+    "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.md",
+    "Personnages/Ancien testament/Zorobabel.md",
+    "Personnages/Ancien testament/Salathiel.md",
+    "Référence Biblique/Ancien testament/7 - Seconds livres prophétiques/37 - Aggée.md",
+    "Lieux historiques/Régions géographiques/Judée.md",
+    "Personnages/Ancien testament/Ruth.md",
+    "Référence Biblique/Ancien testament/3 - Premiers livres historiques/7 - Ruth.md",
+    "Personnages/Ancien testament/Isaï.md",
+    "Personnages/Ancien testament/Noémi.md",
+    "Référence Biblique/Ancien Testament.md",
+    "Personnages/Ancien testament/Rahab.md",
     "Formation disciples POC Reims/Histoire de l'Eglise/L'Eglise primitive jusqu'avant la réforme.md",
+    "The Chosen/The Chosen.md",
+    "The Chosen/Saison 1/1.1 a.md",
+    "The Chosen/Personnages/Personnages The Chosen.md",
+    "The Chosen/Personnages",
+    "The Chosen/Saison 4",
+    "The Chosen/Saison 3",
+    "The Chosen/Saison 2",
+    "The Chosen/Saison 1",
+    "The Chosen",
+    "Formation disciples POC Reims/Formation disciples POC Reims.md",
+    "Personnages/Nouveau testament/Disciples de Jésus/Simon Pierre.md",
     "Référence Biblique/Ancien testament/1 - Le commencement/Genèse.md",
     "Personnages/Eglise.md",
-    "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.md",
     "Définitions/Apologétique.md",
     "Formation disciples POC Reims/Histoire de l'Eglise/Conclusions de l'histoire l'Eglise.md",
     "Lieux historiques/Villes/Césarée de Philippe.md",
@@ -230,36 +212,15 @@
     "Référence Biblique/Ancien testament/5 - Livres poétiques/20 - Proverbes.md",
     "Référence Biblique/Ancien testament/5 - Livres poétiques/20 - Proverbes.sync-conflict-20250401-231545-4D4KN2W.md",
     "Référence Biblique/Nouveau testament/4 - Lettres générales/19 - Jacques.md",
-    "Référence Biblique/Nouveau testament/4 - Lettres générales/19 - Jacques.sync-conflict-20250401-231544-4D4KN2W.md",
-    "Sagesse (note).md",
-    "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.sync-conflict-20250401-231544-4D4KN2W.md",
-    "Formation disciples POC Reims/Formation disciples POC Reims.md",
-    "Référence Biblique/Nouveau testament/1 -Evangiles/4eme Evangile - Jean.md",
     "Formation disciples POC Reims/Histoire de l'Eglise",
-    "Définitions/Mort.md",
-    "Définitions/Augure.md",
-    "Définitions/Eden.md",
     "Formation disciples POC Reims",
-    "Repos de Dieu.md",
-    "Chemin vérité vie.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/15&16 - Timothée.md",
-    "Repos de Dieu.sync-conflict-20250401-231545-4D4KN2W.md",
-    "Lieux historiques/Villes/Sidon.md",
-    "Jésus sur mon rivage.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/6 - Romains.md",
     "Lieux historiques/Images/Capharnaüm.PNG",
     "Lieux historiques/Images/Chorazin.PNG",
     "Définitions/Stades dans la foi",
     "~syncthing~Marcher dans le royaume de Dieu.md.tmp",
-    "~syncthing~TCA spirituel.md.tmp",
-    "~syncthing~Untitled.md.tmp",
     "Lieux historiques/Images/Le Caire.PNG",
     "Lieux historiques/Images/Memphis.PNG",
     "Lieux historiques/Images/Tanis.PNG",
-    "~syncthing~TEMP.md.tmp",
-    "~syncthing~Jésus populaire part 3.md.tmp",
-    "Notes perso",
-    "Personnages/Ancien testament/Rois d'Israel/Famille de David",
     "Lieux historiques/Images/Pergame.PNG",
     "Lieux historiques/Images/Hittites.png",
     "Lieux historiques/Images/Cilicia.png",
