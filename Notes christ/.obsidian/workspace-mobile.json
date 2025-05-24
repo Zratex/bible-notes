@@ -93,16 +93,114 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Repos de Dieu.md",
+                "file": "Formation disciples POC Reims/Histoire de l'Eglise/L'Eglise primitive jusqu'avant la réforme.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Repos de Dieu"
+              "title": "L'Eglise primitive jusqu'avant la réforme"
+            }
+          },
+          {
+            "id": "744b353f56b665f4",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Corps âme esprit âme.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "Corps âme esprit âme"
+            }
+          },
+          {
+            "id": "b6a6628341ff239a",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Formation disciples POC Reims/Histoire de l'Eglise/Conclusions de l'histoire l'Eglise.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "Conclusions de l'histoire l'Eglise"
+            }
+          },
+          {
+            "id": "7f838fbb0d8a7300",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Temps de réforme.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "Temps de réforme"
+            }
+          },
+          {
+            "id": "dff6ebce78aea892",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Corps âme esprit âme.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "Corps âme esprit âme"
+            }
+          },
+          {
+            "id": "89343162bb92666b",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Corps âme esprit esprit.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "Corps âme esprit esprit"
+            }
+          },
+          {
+            "id": "73064d866f253d48",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Écouter la voix de Dieu.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "Écouter la voix de Dieu"
+            }
+          },
+          {
+            "id": "13a19893fb8fcd3a",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Nouvelle vie pour nouvelle identité.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "Nouvelle vie pour nouvelle identité"
             }
           }
         ],
-        "currentTab": 6
+        "currentTab": 13
       }
     ],
     "direction": "vertical"
@@ -243,37 +341,37 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "664e7ab8bc554f7d",
+  "active": "13a19893fb8fcd3a",
   "lastOpenFiles": [
-    "Enseignement biblique - temp.md",
+    "Définitions/Repentance.md",
+    "Formation disciples/Etude - identité.md",
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/9 - Galates.sync-conflict-20250524-111505-4D4KN2W.md",
+    "Formation disciples/Identité/Nouvelle vie pour nouvelle identité.sync-conflict-20250524-110635-4D4KN2W.md",
+    "Formation disciples/Identité/Nouvelle vie pour nouvelle identité.md",
+    "Écouter la voix de Dieu.md",
+    "Nouvelle vie pour nouvelle identité.md",
+    "Corps âme esprit esprit.md",
+    "Corps âme esprit âme.md",
+    "Étude identité.md",
+    "Personnages/Dieu.md",
+    "Temps de réforme.md",
+    "Formation disciples POC Reims/Histoire de l'Eglise/L'Eglise primitive jusqu'avant la réforme.md",
+    "Formation disciples POC Reims/Histoire de l'Eglise/Conclusions de l'histoire l'Eglise.md",
+    "Repos de l'âme.md",
+    "Lieux historiques/Villes/Jérusalem.md",
     "Formation disciples POC Reims/Formation disciples POC Reims.md",
+    "Repos de Dieu.md",
+    "Enseignement biblique - temp.md",
     "Lieux historiques/Villes/Césarée de Philippe.md",
     "Définitions/Apologétique.md",
-    "Formation disciples POC Reims/Histoire de l'Eglise/Conclusions de l'histoire l'Eglise.md",
-    "Formation disciples POC Reims/Histoire de l'Eglise/L'Eglise primitive jusqu'avant la réforme.md",
     "Lieux historiques/Images/Césarée de Philippe.PNG",
     "Formation disciples POC Reims/Histoire de l'Eglise",
     "Formation disciples POC Reims",
-    "Repos de Dieu.md",
     "Lieux historiques/Royaumes/Israël.md",
     "Référence Biblique/Nouveau testament/3 - Lettres de Paul/6 - Romains.md",
     "Jésus sur mon rivage.md",
     "Esclave de Dieu pour la vraie liberté.md",
     "Marcher dans le royaume de Dieu.md",
-    "TCA spirituel.md",
-    "Jésus populaire part 3.md",
-    "TEMP.md",
-    "La marche d'Élie.md",
-    "Référence Biblique/Nouveau testament/4 - Lettres générales/19 - Jacques.md",
-    "Lieux historiques/Régions géographiques/Judée.md",
-    "Temps d'apostasie.md",
-    "Les promesses du Seigneur.md",
-    "Suis-je enraciné.md",
-    "Personnages/Jésus.md",
-    "Le retour du roi.md",
-    "Personnages/Ancien testament/Samson.md",
-    "Lieux historiques/Villes/Ninive.md",
-    "Référence Biblique/Ancien testament/7 - Seconds livres prophétiques/32 - Jonas.md",
     "Enok",
     "Lieux historiques/Images/Thyatire.png",
     "Lieux historiques/Images/Philadelphie.PNG",

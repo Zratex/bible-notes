@@ -364,3 +364,42 @@ Intitulé **Le Roi-Prêtre** par [[Bible#^358f23|BDS]]
    il écrase des chefs ╵de par la terre entière.
 7) En chemin, le roi s’abreuve au torrent,
    puis relève la tête.
+## Chapitre 143
+Intitulé **Conduis-moi dans tes voies !** par [[Bible#^358f23|BDS]]
+
+1) *Psaume de [[David]].*
+   O [[Dieu|Eternel]], ╵écoute [[David|ma]] prière,
+   prête l’oreille ╵à mes supplications !
+   [[Dieu|Tu]] es fidèle ╵et [[Dieu|tu]] es juste, ╵réponds-[[David|moi]] donc !
+2) N’entre pas en procès ╵avec ton serviteur !
+   Aucun vivant ╵n’est juste devant [[Dieu|toi]].
+3) Un ennemi ╵[[David|me]] poursuit sans relâche,
+   et il veut écraser ╵[[David|ma]] vie à terre,
+   il [[David|me]] fait demeurer ╵dans les ténèbres
+   comme les morts, ╵ces gens des temps passés.
+4) [[David|J]]’ai l’esprit abattu,
+   [[David|je]] suis désemparé.
+5) [[David|Je]] me souviens ╵des temps anciens,
+   [[David|je]] me redis ╵tout ce que [[Dieu|tu]] as fait,
+   et [[David|je]] médite ╵sur l’œuvre de [[Dieu|tes]] mains.
+6) [[Dieu|Je]] tends les mains vers [[Dieu|toi]],
+   [[David|je]] me sens devant toi ╵comme une terre aride.
+   Pause
+7) O [[Dieu|Eternel]], ╵viens vite m’exaucer,
+   [[David|je]] me sens défaillir.
+   Ne [[Dieu|te]] détourne pas de [[David|moi]],
+   de peur que [[David|je]] sois comme ceux ╵qui descendent dans le tombeau.
+8) Dès le matin, ╵annonce-[[David|moi]] ╵[[Dieu|ta]] bienveillance,
+   car c’est en [[Dieu|toi]] ╵que [[David|j]]’ai mis [[David|ma]] confiance !
+   Fais-[[David|moi]] connaître ╵la voie que [[David|je]] dois suivre,
+   car c’est vers [[Dieu|toi]] ╵que [[David|je me]] tourne !
+9) Délivre-[[David|moi]], ╵ô [[Dieu|Eternel]], ╵de tous [[David|mes]] ennemis,
+   [[David|je]] cherche [[David|mon]] refuge ╵auprès de [[Dieu|toi]] !
+10) Enseigne-[[David|moi]] ╵à accomplir ╵ce qui [[Dieu|te]] plaît,
+    car [[Dieu|tu]] es [[David|mon]] [[Dieu|Dieu]] !
+    Que [[Dieu|ton Esprit]] qui est bon [[David|me]] conduise ╵sur un sol aplani :
+11) Par égard pour [[Dieu|ta]] renommée, ╵ô [[Dieu|Eternel]], ╵garde [[David|ma]] vie,
+    [[Dieu|toi]] qui es juste ; ╵délivre-[[David|moi]] ╵de la détresse.
+12) Dans [[Dieu|ton]] amour, ╵[[Dieu|tu]] détruiras [[David|mes]] ennemis,
+    et [[Dieu|tu]] feras périr ╵tous [[David|mes]] persécuteurs,
+    car [[David|moi, je]] suis ╵[[Dieu|ton]] serviteur.

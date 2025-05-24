@@ -46,7 +46,7 @@ Intitulé **La grâce : une excuse pour pécher ?** par [[Bible#^358f23|BDS]]
 7) Car celui qui est mort a été déclaré juste : il n’a plus à répondre du péché.
 8) Or, puisque nous sommes morts avec [[Jésus|Christ]], nous croyons que nous vivrons aussi avec [[Jésus|lui]].
 9) Car nous savons que [[Jésus|Christ]] ressuscité ne meurt plus ; la mort n’a plus de pouvoir sur lui.
-10) [[Jésus|Il]] est mort et c’est pour le péché qu’il est mort une fois pour toutes. Mais à présent, [[Jésus|il]] est vivant et [[Jésus|il]] vit pour [[Dieu]].
+10) [[Jésus|Il]] est mort et c’est pour le péché qu’[[Jésus|il]] est mort une fois pour toutes. Mais à présent, [[Jésus|il]] est vivant et [[Jésus|il]] vit pour [[Dieu]].
 11) Ainsi, vous aussi, considérez-vous comme morts pour le péché, et comme vivants pour [[Dieu]] dans l’union avec [[Jésus|Jésus-Christ]].
 12) Que le péché n’exerce donc plus sa domination sur votre corps mortel pour vous soumettre à ses désirs.
 13) Ne mettez pas vos membres et organes à la disposition du péché comme des armes au service du mal. Mais puisque vous étiez morts et que vous êtes maintenant vivants, offrez-vous vous-mêmes à [[Dieu]] et mettez les membres et organes de votre corps à sa disposition comme des instruments pour faire ce qui est juste.
