@@ -133,7 +133,7 @@ Intitulé **Le service et la réconciliation** par [[Bible#^358f23|BDS]]
 14) En effet, l’amour de [[Jésus|Christ]] nous étreint, car nous avons acquis la certitude qu’un seul homme est mort pour tous : donc tous sont morts en [[Jésus|lui]].
 15) Et [[Jésus|il]] est mort pour tous afin que ceux qui vivent ne vivent plus pour eux-mêmes, mais pour [[Jésus|celui]] qui est mort à leur place et ressuscité pour eux.
 16) Ainsi, désormais, nous ne considérons plus personne d’une manière purement humaine. Certes, autrefois, nous avons considéré [[Jésus|Christ]] de cette manière, mais ce n’est plus ainsi que nous le considérons maintenant.
-17) Ainsi, si quelqu’un est uni à [[Jésus|Christ]], il appartient à une nouvelle création  : les choses anciennes sont passées : voici, les choses nouvelles sont venues.
+17) Ainsi, si quelqu’un est uni à [[Jésus|Christ]], il appartient à une nouvelle création : les choses anciennes sont passées : voici, les choses nouvelles sont venues.
 18) Tout cela est l’œuvre de [[Dieu]], qui nous a réconciliés avec lui par [[Jésus|Christ]] et qui nous a confié le ministère de la réconciliation.
 19) En effet, [[Dieu]] était en [[Jésus|Christ]], réconciliant les hommes avec lui-même, sans tenir compte de leurs fautes, et il a fait de nous les dépositaires du message de la réconciliation.
 20) Nous faisons donc fonction d’ambassadeurs au nom de [[Jésus|Christ]], comme si [[Dieu]] adressait par nous cette invitation aux hommes : « Au nom de [[Jésus|Christ]], nous vous en supplions : soyez réconciliés avec [[Dieu]].

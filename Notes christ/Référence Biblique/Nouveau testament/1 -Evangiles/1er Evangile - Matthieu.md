@@ -2,7 +2,7 @@
 > Les passages qui seront en gras correspondent aux passages où [[Jésus]] parle
 
 ## Chapitre 1
-## Versets 1 à 17
+### Versets 1 à 17
 Intitulé **Généalogie de [[Jésus|Jésus-Christ]]** par [[Bible#^4cfe93|LSG]]
 
 1) Généalogie de [[Jésus|Jésus-Christ]], fils de [[David|David]], fils d’[[Abraham|Abraham]].
@@ -153,6 +153,17 @@ Intitulé **Qui est vraiment [[Jésus]] ?** par [[Bible#^358f23|BDS]]
 18) **Et [[Jésus|moi, je]] [[Simon Pierre|te]] déclare : [[Simon Pierre|Tu es Pierre]], et sur cette pierre [[Jésus|je]] bâtirai [[Jésus|mon]] [[Eglise|Eglise]], contre laquelle la mort elle-même ne pourra rien.**
 19) **[[Jésus|Je]] te donnerai les clés du royaume des cieux  : tout ce que tu interdiras sur la terre sera interdit aux yeux de [[Dieu|Dieu]] et tout ce que tu autoriseras sur la terre sera autorisé aux yeux de [[Dieu|Dieu]].**
 20) Puis [[Jésus|Jésus]] interdit à ses disciples de dire à qui que ce soit qu’[[Jésus|il]] était le Messie.
+### Versets 21 à 28
+Intitulé **Comment suivre [[Jésus]]** par [[Bible#^358f23|BDS]]
+
+21) A partir de ce moment, [[Jésus|Jésus]] commença à exposer à ses disciples qu’il devait se rendre à [[Jérusalem|Jérusalem]], y subir de cruelles souffrances de la part des responsables du peuple, des chefs des prêtres et des spécialistes de la [[La Loi de Dieu|Loi]], être mis à mort et ressusciter le troisième jour.
+22) Alors [[Simon Pierre|Pierre]] [[Jésus|le]] prit à part et se mit à lui faire des reproches : Que [[Dieu|Dieu]] [[Jésus|t]]’en préserve, [[Jésus|Seigneur]] ! Cela ne [[Jésus|t]]’arrivera pas !
+23) Mais [[Jésus|Jésus]], se retournant, [[Simon Pierre|lui]] dit : **Arrière, « [[Satan|Satan]] » ! Eloigne-toi de [[Jésus|moi]] ! Tu es pour moi un obstacle, car tes pensées ne sont pas celles de [[Dieu|Dieu]] ; ce sont des pensées tout humaines.**
+24) Puis, s’adressant à [[Jésus|ses]] disciples, [[Jésus|Jésus]] dit : **Si quelqu’un veut marcher à [[Jésus|ma]] suite, qu’il renonce à lui-même, qu’il [[Porter sa croix|se charge de sa croix]] et qu’il [[Jésus|me]] suive.**
+25) **Car celui qui est préoccupé de sauver sa vie la perdra ; mais celui qui perdra sa vie à cause de [[Jésus|moi]], la retrouvera.**
+26) **Si un homme parvient à posséder le monde entier, à quoi cela lui sert-il s’il perd sa vie ? Et que peut-on donner pour racheter sa vie ?**
+27) **[[Jésus|Le Fils de l’homme]] viendra dans la gloire de son [[Dieu|Père]], avec ses anges, et alors il donnera à chacun ce que lui auront valu ses actes.**
+28) **Vraiment, [[Jésus|je]] vous l’assure, plusieurs de ceux qui sont ici ne mourront pas avant d’avoir vu [[Jésus|le Fils de l’homme]] venir comme Roi.**
 ## Chapitre 19
 ### Versets 16 à 30
 Intitulé **Les riches et le royaume de [[Dieu]]** par [[Bible#^358f23|BDS]]
@@ -273,3 +284,12 @@ Intitulé **L'arrestation de [[Jésus]]** par [[Bible#^358f23|BDS]]
 55) Là-dessus, [[Jésus|Jésus]] dit à la troupe : **Me prenez-vous pour un bandit, pour que vous soyez venus en force avec épées et gourdins afin de vous emparer de moi ? J’étais assis chaque jour dans la cour du Temple pour donner mon enseignement et vous ne m’avez pas arrêté !**
 56) **Mais tout ceci est arrivé pour que les écrits des prophètes s’accomplissent.**
     Alors tous les disciples l’abandonnèrent et prirent la fuite.
+## Chapitre 28
+### Versets 16 à 20
+Intitulé **La souveraineté du [[Jésus|Ressuscité]]** par [[Bible#^358f23|BDS]]
+
+16) Les [[Apôtres|onze disciples]] se rendirent en [[Galilée|Galilée]], sur la colline que [[Jésus|Jésus]] leur avait indiquée.
+17) Dès qu’[[Apôtres|ils]] [[Jésus|l]]’aperçurent, [[Apôtres|ils]] [[Jésus|l]]’adorèrent. Mais [[Apôtres|ils]] ne surent que penser.
+18) Alors [[Jésus|Jésus]] s’approcha d’[[Apôtres|eux]] et leur parla ainsi : **[[Jésus|J]]’ai reçu tout pouvoir dans le ciel et sur la terre :**
+19) **allez donc dans le monde entier, faites des disciples parmi tous les peuples, baptisez-les au nom du [[Dieu|Père]], du [[Jésus|Fils]] et du [[Saint-Esprit|Saint-Esprit]]**
+20) **et enseignez-leur à obéir à tout ce que [[Jésus|je]] vous ai prescrit. Et voici : [[Jésus|je]] suis [[Jésus|moi-même]] avec vous tous les jours, jusqu’à la fin du monde.**

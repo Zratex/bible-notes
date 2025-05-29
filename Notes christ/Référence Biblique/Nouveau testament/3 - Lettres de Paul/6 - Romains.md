@@ -170,3 +170,10 @@ Intitulé **[[Israël]] n'a pas eu la foi** par [[Bible#^358f23|BDS]]
     *Je me suis révélé ╵à ceux qui ne se souciaient pas de moi.*
 21) Mais parlant d’[[Israël]], il dit :
     *A longueur de journée, ╵j’ai tendu les mains ╵vers un peuple désobéissant et rebelle.*
+## Chapitre 12
+Intitulé **La vie d'un chrétien** par [[Bible#^358f23|BDS]]
+### Versets 1 et 2
+Intitulé **La vie d'un chrétien - S'offrir à [[Dieu]]** par [[Bible#^358f23|BDS]]
+
+1) [[Paul|Je]] vous recommande donc, frères et sœurs, à cause de cette immense bonté de [[Dieu|Dieu]], à lui offrir votre corps comme un sacrifice vivant, saint et qui plaise à [[Dieu|Dieu]]. Ce sera là de votre part un culte raisonnable.
+2) Ne prenez pas comme modèle le monde actuel, mais soyez transformés par le renouvellement de votre intelligence, pour pouvoir discerner la volonté de [[Dieu|Dieu]] : ce qui est bon, ce qui [[Dieu|lui]] plaît, ce qui est parfait.
