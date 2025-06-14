@@ -217,7 +217,7 @@ Intitulé **L'anéantissement d'[[Edom]]** par [[Bible#^358f23|BDS]]
    Que la steppe jubile ╵et se mette à fleurir ╵comme les lis !
 2) Que les fleurs y abondent ╵et que sa joie éclate :
    qu’elle pousse des cris de joie !
-   La gloire du [[Phénécie|Liban]],
+   La gloire du [[Liban|Liban]],
    la splendeur du [[Mont Carmel|Carmel]] ╵et celle du Saron ╵lui sont données.
    Là, on verra la gloire ╵de l’[[Dieu|Eternel]]
    et la splendeur de notre [[Dieu|Dieu]].

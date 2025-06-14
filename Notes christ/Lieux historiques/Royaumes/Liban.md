@@ -1,0 +1,1 @@
+Le **Liban** est la région au nord d'[[Israël]], dont une partie de ses villes antiques provient du royaume de [[Phénécie]].

@@ -1,2 +1,2 @@
-La Phénicie correspond à l'actuel **Liban**, donc au nord d'[[Israël]].
+La Phénicie correspond aux côtes de l'actuel [[Liban]], donc au nord d'[[Israël]].
 ![[Royaumes alentours de Judée.png]]

@@ -1,1 +1,1 @@
-Ville majeure d'[[Egypte]] au bord de la Méditerranée, fondée par [[Alexandre le Grand]] après ses conquêtes. Elle était donc culturellement grecque.
+Ville majeure d'[[Egypte]] au bord de la [[Méditerranée]], fondée par [[Alexandre le Grand]] après ses conquêtes. Elle était donc culturellement grecque.
