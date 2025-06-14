@@ -300,6 +300,69 @@ Intitulé **La délivrance promise** par [[Bible#^358f23|BDS]]
     et [[Dieu|il]] rassemblera ╵les agneaux dans [[Dieu|ses]] bras.
     Sur [[Dieu|son]] sein, [[Dieu|il]] les porte
     et conduit doucement ╵les brebis qui allaitent.
+## Chapitre 41
+### Versets 8 à 20
+Intitulé **L'[[Dieu|Eternel]] délivre [[Israël]]** par [[Bible#^358f23|BDS]]
+
+8) Quant à [[Israël|toi, Israël]], ╵[[Dieu|mon]] serviteur,
+   [[Jacob|Jacob]], que [[Dieu|j]]’ai choisi,
+   et descendance d’[[Abraham|Abraham]], ╵qui était [[Dieu|mon]] ami,
+9) toi que [[Dieu|je]] suis allé chercher ╵aux confins de la terre
+   et que [[Dieu|j]]’ai appelé ╵de ses extrémités,
+   toi à qui [[Dieu|j]]’avais dit :
+   « Tu es [[Dieu|mon]] serviteur »,
+   [[Dieu|je]] t’ai choisi
+   et non pas rejeté.
+10) Ne sois pas effrayé,
+    car [[Dieu|je]] suis avec toi ;
+    ne sois pas angoissé,
+    car moi [[Dieu|je]] suis ton [[Dieu|Dieu]].
+    [[Dieu|Je]] t’affermis,
+    [[Dieu|je]] viens à ton secours,
+    pour sûr, [[Dieu|je]] te soutiens ╵de mon bras droit ╵qui fait justice.
+11) Tous ceux qui sont irrités contre toi,
+    sombreront dans la honte ╵et dans le déshonneur.
+    Tes adversaires ╵seront réduits à rien, ╵ils périront.
+12) Tu auras beau chercher, ╵tu ne trouveras plus
+    ceux qui te querellaient.
+    Ils seront tous anéantis, ╵réduits à rien
+    ceux qui t’ont fait la guerre.
+13) Car c’est [[Dieu|moi, l’Eternel]], ╵qui suis ton [[Dieu|Dieu]],
+    [[Dieu|je]] saisis ta main droite,
+    [[Dieu|je]] te dis : Sois sans crainte,
+    [[Dieu|je]] suis là pour t’aider.
+14) Sois donc sans crainte, ╵vermisseau de [[Jacob|Jacob]],
+    ô petit [[Israël|Israël]],
+    car [[Dieu|je]] viens à ton aide,
+    l’[[Dieu|Eternel]] le déclare ;
+    celui qui te délivre ╵c’est le Saint d’Israël.
+15) Voici [[Dieu|je]] fais de toi
+    un traîneau de battage ╵tout neuf,
+    armé de pointes,
+    tu battras les montagnes, ╵tu les broieras,
+    tu rendras les collines ╵semblables à la paille.
+16) Oui, tu les vanneras,
+    et le vent les emportera,
+    l’ouragan les dispersera.
+    Mais toi, tu placeras ta joie ╵en l’[[Dieu|Eternel]],
+    et ta fierté ╵dans le Saint d’Israël.
+17) Les opprimés, les pauvres
+    cherchent de l’eau sans en trouver,
+    et la soif dessèche leur langue.
+    [[Dieu|Moi, l’Eternel, ╵je]] les exaucerai,
+    [[Dieu|moi, le Dieu]] d’[[Israël|Israël]], ╵[[Dieu|je]] ne les délaisserai pas.
+18) [[Dieu|Je]] ferai sourdre des rivières ╵du sommet des montagnes
+    et [[Dieu|je]] ferai jaillir des sources ╵au milieu des vallées,
+    [[Dieu|je]] transformerai le désert ╵en étang rempli d’eau
+    et le pays aride ╵en sources jaillissantes.
+19) [[Dieu|Je]] planterai dans le désert ╵le cèdre et l’acacia,
+    le myrte et l’olivier.
+    [[Dieu|Je]] ferai croître dans la steppe
+    le cyprès, le pin et le buis,
+20) pour que tous voient et reconnaissent,
+    et qu’ils observent, qu’ils comprennent,
+    que c’est la main de l’[[Dieu|Eternel]] ╵qui a fait tout cela,
+    que le Saint d’Israël ╵en est le créateur.
 ## Chapitre 52
 ### Versets 7 à 12
 Intitulé **[[Dieu]] délivre** par la version [[Bible#^358f23|BDS]]

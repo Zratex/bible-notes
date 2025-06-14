@@ -341,6 +341,80 @@ Intitulé **Je soupire après ton temple** par [[Bible#^358f23|BDS]]
     à ceux qui cheminent dans l’intégrité.
 13) [[Dieu|Eternel]], Seigneur des armées célestes,
     bienheureux est l’homme ╵qui met sa confiance en toi.
+## Chapitre 98
+Intitulé **[[Dieu]] vient juger le monde** de [[Bible#^358f23|BDS]]
+
+1) *Psaume.*
+   Chantez à l’[[Dieu|Eternel]] ╵un cantique nouveau
+   car [[Dieu|il]] accomplit des prodiges.
+   Par [[Dieu|sa]] puissance, ╵par [[Dieu|son]] pouvoir divin, ╵[[Dieu|il]] a remporté la victoire.
+2) L’[[Dieu|Eternel]] fait connaître [[Dieu|son]] salut ;
+   aux yeux des autres peuples, ╵[[Dieu|il]] a révélé [[Dieu|sa]] justice.
+3) L’[[Dieu|Eternel]] a manifesté ╵[[Dieu|son]] amour fidèle envers [[Israël|Israël]].
+   Jusqu’au bout de la terre,
+   on a vu le salut ╵que notre [[Dieu|Dieu]] a accompli.
+4) Acclame l’[[Dieu|Eternel]], ╵ô terre tout entière,
+   poussez des cris de joie ╵et d’allégresse ╵au son de la musique !
+5) Célébrez l’[[Dieu|Eternel]] ╵avec la lyre,
+   oui, au son de la lyre, ╵et par vos chants !
+6) Au son de la trompette ╵et aux accents du cor,
+   éclatez en acclamations ╵en présence de l’[[Dieu|Eternel, le Roi]] !
+7) Que la mer retentisse ╵et tout ce qui la peuple !
+   Que l’univers résonne ╵avec ses habitants !
+8) Que les rivières ╵battent des mains,
+   que les montagnes, ╵à l’unisson, ╵chantent de joie,
+9) aux yeux de l’[[Dieu|Eternel]], ╵car il vient gouverner la terre !
+   Oui, [[Dieu|il]] gouvernera le monde ╵selon ce qui est juste,
+   et [[Dieu|il]] gouvernera les peuples ╵selon ce qui est droit.
+## Chapitre 103
+Intitulé **Que tout mon être loue l'[[Dieu|Eternel]] !** par [[Bible^BDS|BDS]]
+
+1) *De [[David]].*
+   Que tout [[David|mon]] être ╵bénisse l’[[Dieu|Eternel]] !
+   Que tout ce que [[David|je]] suis ╵bénisse le [[Dieu|Dieu]] saint !
+2) Que tout [[Dieu|mon]] être ╵bénisse l’[[Dieu|Eternel]],
+   sans oublier ╵aucun de [[Dieu|ses]] bienfaits.
+3) Car c’est [[Dieu|lui]] qui pardonne ╵tous tes péchés,
+   c’est [[Dieu|lui]] qui te guérit ╵de toute maladie,
+4) qui t’arrache à la tombe.
+   C’est [[Dieu|lui]] qui te couronne ╵d’amour, de compassion
+5) et qui te comble de bonheur ╵tout au long de ton existence ;
+   et ta jeunesse, comme l’aigle, ╵prend un nouvel essor.
+6) L’[[Dieu|Eternel]] œuvre ╵pour la justice
+   et [[Dieu|il]] défend les droits ╵de tous les opprimés.
+7) [[Dieu|Il]] a révélé à [[Moïse|Moïse]] ╵de quelle façon [[Dieu|il]] agit,
+   et montré ses hauts faits ╵au peuple d’[[Israël|Israël]].
+8) L’[[Dieu|Eternel]] est compatissant ╵et miséricordieux.
+   [[Dieu|Il]] est plein de patience ╵et débordant d’amour.
+9) [[Dieu|Il]] ne tient pas rigueur sans cesse
+   et [[Dieu|son]] ressentiment ╵ne dure pas toujours.
+10) [[Dieu|Il]] ne nous traite pas ╵selon le mal ╵que nous avons commis,
+    [[Dieu|il]] ne nous punit pas ╵comme le méritent nos fautes.
+11) Autant le ciel est élevé ╵au-dessus de la terre,
+    autant [[Dieu|son]] amour est intense ╵en faveur de ceux qui [[Dieu|le]] craignent.
+12) Autant l’Orient ╵est loin de l’Occident,
+    autant [[Dieu|il]] éloigne de nous ╵nos mauvaises actions.
+13) Et, comme un père ╵est rempli de tendresse ╵pour ses enfants,
+    l’[[Dieu|Eternel]] est plein de tendresse ╵en faveur de ceux qui [[Dieu|le]] craignent :
+14) [[Dieu|il]] sait de quelle pâte ╵nous sommes façonnés,
+    [[Dieu|il]] tient compte du fait ╵que nous sommes poussière.
+15) L’homme… ╵sa vie ressemble à l’herbe.
+    Lui, il fleurit ╵comme une fleur des champs.
+16) Qu’un vent souffle sur elle, ╵la voilà disparue !
+    Le lieu qu’elle occupait ╵ne la reconnaît plus.
+17) L’amour de l’[[Dieu|Eternel]] ╵est là depuis toujours ╵et durera toujours ╵en faveur de ceux qui [[Dieu|le]] craignent,
+    [[Dieu|il]] ne cesse d’agir ╵pour la justice ╵en faveur des enfants ╵de leurs enfants,
+18) en faveur de ceux qui restent fidèles ╵à [[Dieu|son]] alliance,
+    de ceux qui tiennent compte ╵de [[Dieu|ses]] commandements ╵pour les mettre en pratique.
+19) Dans les cieux, l’[[Dieu|Eternel]] ╵a établi son trône :
+    et [[Dieu|il]] exerce son pouvoir royal ╵sur l’univers entier.
+20) Bénissez l’[[Dieu|Eternel]], ╵vous tous ses anges
+    à la force puissante, ╵vous qui exécutez ses ordres, prompts à [[Dieu|lui]] obéir.
+21) Bénissez l’[[Dieu|Eternel]], ╵vous toutes ses armées célestes,
+    vous qui, à son service, ╵exécutez sa volonté.
+22) Bénissez l’[[Dieu|Eternel]], ╵toutes ses créatures,
+    partout où [[Dieu|il]] gouverne !
+    Que tout mon être ╵bénisse l’[[Dieu|Eternel]] !
 ## Chapitre 110
 Intitulé **Le Roi-Prêtre** par [[Bible#^358f23|BDS]]
 

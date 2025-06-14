@@ -2,7 +2,7 @@
 > Les passages qui seront en gras correspondent aux passages où [[Jésus]] parle
 ## Chapitre 1
 Intitulé **Introduction : la [[Immuabilité de la parole|parole]] de [[Dieu]] et son témoin** par [[Bible|BDS]]
-1) Au commencement était celui qui est la [[Bible|Parole]] de [[Dieu]]. Il était avec [[Dieu]], il était lui-même [[Dieu]].
+1) Au commencement était [[Jésus|celui qui est la parole Parole]] de [[Dieu]]. [[Jésus|Il]] était avec [[Dieu]], [[Jésus|il]] était lui-même [[Dieu]].
 2) Au commencement, [[Jésus|il]] était avec [[Dieu]].
 3) [[Dieu]] a tout créé par [[Jésus|lui]] ; rien de ce qui a été créé n’a été créé sans [[Jésus|lui]].
 4) En [[Jésus|lui]] résidait la vie, et cette vie était la lumière des hommes.

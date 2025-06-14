@@ -1,14 +1,15 @@
-Textes bibliques principalement tourné sur l'histoire d'[[Israël]] (par extension des juifs) et sa relation avec [[Dieu]], avant la naissance de [[Jésus]] sur Terre.
+L'ancien testament ([[Tanakh]] en hébreu) sont des textes bibliques principalement tournés sur l'histoire d'[[Israël]] (par extension des juifs) et sa relation avec [[Dieu]], avant la naissance de [[Jésus]] sur Terre.
 -> Donc il précède le [[Nouveau testament]]
 
-A comme appellation "la loi et les prophéties" ou "les Ecritures" dans le [[Nouveau testament]]
+Il a comme appellation "la loi et les prophéties" ou "**les Ecritures**" dans le [[Nouveau testament]]
 ## Composition
-- [[Genèse]]
-- Textes de [[La Loi de Dieu|la Loi]] :
-	- [[2 - Exode|Exode]]
-	- [[3 - Lévitique|Lévitique]]
-	- [[4 - Nombres|Nombres]]
-	- [[5 - Deutéronome|Deutéronome]]
+- La [[Torah]] :
+	- [[Genèse]]
+	- Textes de [[La Loi de Dieu|la Loi]] :
+		- [[2 - Exode|Exode]]
+		- [[3 - Lévitique|Lévitique]]
+		- [[4 - Nombres|Nombres]]
+		- [[5 - Deutéronome|Deutéronome]]
 - Premiers livres historiques :
 	- Josué
 	- Juges

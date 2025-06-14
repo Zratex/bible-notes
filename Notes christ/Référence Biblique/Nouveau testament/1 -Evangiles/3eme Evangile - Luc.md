@@ -32,7 +32,38 @@ Principalement étudié dans la [[Note sur la prière]]
 22) Lorsqu’il sortit enfin, il était incapable de parler aux personnes rassemblées. Elles comprirent alors qu’il avait eu une vision dans le sanctuaire. Quant à lui, il leur faisait des signes et restait muet.
 23) Lorsqu’il eut terminé son temps de service, il retourna chez lui.
 24) Quelque temps après, sa femme [[Elisabeth]] devint enceinte et, pendant cinq mois, elle se tint cachée. Elle se disait :
-25) C’est l’œuvre du [[Dieu|Seigneur]] en ma faveur : il a décidé d’effacer ce qui faisait ma honte aux yeux de tous  !
+25) C’est l’œuvre du [[Dieu|Seigneur]] en ma faveur : il a décidé d’effacer ce qui faisait ma honte aux yeux de tous !
+### Versets 39 à 56
+Intitulé **[[Marie]] chez [[Elisabeth]]** par [[Bible#^358f23|BDS]]
+
+39) Peu après, [[Marie]] partit pour se rendre en hâte dans une ville de montagne du territoire de [[Judée|Judée]].
+40) [[Marie|Elle]] entra chez [[Zacharie|Zacharie]] et salua [[Elisabeth|Elisabeth]].
+41) Au moment où [[Elisabeth|celle-ci]] entendit la salutation de [[Marie|Marie]], [[Elisabeth|elle]] sentit [[Jean Baptiste|son enfant]] remuer en [[Elisabeth|elle]]. [[Elisabeth|Elle]] fut remplie du [[Saint-Esprit|Saint-Esprit]]
+42) et s’écria d’une voix forte : [[Marie|Tu]] es bénie plus que toutes les femmes et [[Jésus|l’enfant]] que [[Marie|tu]] portes est béni.
+43) Comment ai-[[Elisabeth|je]] mérité l’honneur que [[Marie|la mère]] de [[Jésus|mon Seigneur]] vienne [[Elisabeth|me]] voir ?
+44) Car, vois-[[Marie|tu]], au moment même où [[Elisabeth|je]] [[Marie|t]]’ai entendu [[Elisabeth|me]] saluer, [[Jean Baptiste|mon enfant]] a bondi de joie au-dedans de [[Elisabeth|moi]].
+45) [[Marie|Tu]] es heureuse, [[Marie|toi]] qui as cru à l’accomplissement de ce que [[Dieu|le Seigneur]] [[Marie|t]]’a annoncé.
+46) Alors [[Marie|Marie]] dit :
+    [[Marie|Mon]] âme chante ╵la grandeur du [[Dieu|Seigneur]]
+47) et [[Marie|mon]] esprit se réjouit ╵à cause de [[Dieu|Dieu, mon Sauveur]].
+48) Car [[Dieu|il]] a bien voulu ╵abaisser son regard ╵sur [[Dieu|son]] [[Marie|humble servante]].
+    C’est pourquoi, désormais, ╵à travers tous les temps, ╵on [[Marie|m]]’appellera bienheureuse.
+49) Car le [[Dieu|Dieu tout-puissant]] ╵a fait pour moi de grandes choses ;
+    *[[9&10 - Samuel#Versets 1 à 11|lui, il est saint]]*.
+50) *[[19 - Psaumes#Chapitre 103|Et sa bonté ╵s’étendra d’âge en âge]]*
+	*[[19 - Psaumes#Chapitre 103|sur ceux qui le craignent]]*.
+51) [[Dieu|Il]] est intervenu ╵de toute sa puissance
+    et [[Dieu|il]] a dispersé ╵les hommes dont le cœur ╵était rempli d’orgueil.
+52) *[[9&10 - Samuel#Versets 1 à 11|Il a précipité ╵les puissants de leurs trônes]]*,
+    *[[9&10 - Samuel#Versets 1 à 11|et il a élevé les humbles]]*.
+53) *[[9&10 - Samuel#Versets 1 à 11|Il a comblé de biens ╵ceux qui sont affamés]]*,
+    *[[9&10 - Samuel#Versets 1 à 11|et il a renvoyé ╵les riches les mains vides]]*.
+54) *[[23 - Esaïe#Versets 1 à 11|Oui, il a pris en main ╵la cause d’Israël]]*,
+    *[[19 - Psaumes|il a témoigné sa bonté ╵au peuple qui le sert]]*,
+55) comme il l’avait promis à nos ancêtres,
+    à [[Abraham|Abraham]] et à ses descendants
+    pour tous les temps.
+56) [[Marie|Marie]] resta environ trois mois avec [[Elisabeth|Elisabeth]], puis [[Marie|elle]] retourna chez [[Marie|elle]].
 ## Chapitre 4
 ### Versets 14 à 30
 Intitulé **[[Jésus]], le Serviteur choisi par [[Dieu]]** par [[Bible#^358f23|BDS]]
@@ -110,7 +141,25 @@ Intitulé **Jésus se dirige vers [[Jérusalem]] : L'opposition en [[Samarie]]**
 54) En voyant cela, ses disciples [[Jacques (apôtre)|Jacques]] et [[Jean]] s’écrièrent : [[Jésus|Seigneur]], veux-tu que nous commandions à la foudre de tomber du ciel sur ces gens-là, pour les réduire en cendres ?
 55) Mais [[Jésus]], se tournant vers eux, les reprit sévèrement : "Vous ne savez pas quel esprit vous inspire de telles pensées !"
 56) "[[Jésus|Le Fils de l'homme]] n’est pas venu pour faire mourir les hommes, mais pour les sauver." Ils se rendirent alors à un autre village
+## Chapitre 11
+### Versets 14 à 28
+Intitulé **[[Dieu]] ou [[Satan]] ?** par [[Bible#^358f23|BDS]]
 
+14) Un jour, [[Jésus|Jésus]] chassait un démon qui rendait un homme muet. Quand le démon fut sorti, le muet se mit à parler, et la foule était émerveillée.
+15) Cependant quelques-uns disaient : C’est par le pouvoir de [[Satan|Béelzébul]], le chef des démons, qu’[[Jésus|il]] chasse les démons.
+16) D’autres, pour [[Jésus|lui]] tendre un piège, [[Jésus|lui]] réclamaient un signe venant du ciel.
+17) Mais, comme [[Jésus|il]] connaissait leurs pensées, [[Jésus|il]] leur dit : **Tout royaume déchiré par la guerre civile est dévasté et les maisons s’y écroulent l’une sur l’autre.**
+18) **Vous prétendez que [[Jésus|je]] chasse les démons par le pouvoir de [[Satan|Béelzébul]]. Mais si [[Satan|Satan]] est en conflit avec [[Satan|lui-même]] ; comment alors [[Satan|son]] royaume subsistera-t-il ?**
+19) **D’ailleurs, si moi [[Jésus|je]] chasse les démons par [[Satan|Béelzébul]], qui donc donne à vos disciples le pouvoir de les chasser ? C’est pourquoi ils seront eux-mêmes vos juges.**
+20) **Mais si c’est par la puissance de [[Dieu|Dieu]] que [[Jésus|je]] chasse les démons, alors, de toute évidence, le [[Royaume de Dieu|royaume de Dieu]] est venu jusqu’à vous.**
+21) **Tant qu’un homme fort et bien armé garde sa maison, ses biens sont en sécurité ;**
+22) **mais si un autre, plus fort que lui, l’attaque et parvient à le maîtriser, il lui enlève toutes les armes sur lesquelles le premier comptait, lui prend tous ses biens et les distribue.**
+23) **Celui qui n’est pas avec [[Jésus|moi]] est contre [[Jésus|moi]], et celui qui ne se joint pas à [[Jésus|moi]] pour rassembler, disperse.**
+24) **Lorsqu’un esprit mauvais est sorti de quelqu’un, il erre çà et là dans des lieux déserts, à la recherche d’un lieu de repos, et il n’en trouve pas. Il se dit alors : « Mieux vaut regagner la demeure que j’ai quittée. »**
+25) **Il y retourne donc et la trouve balayée et mise en ordre.**
+26) **Alors il va chercher sept autres esprits encore plus méchants que lui et les amène avec lui. Ils entrent dans la demeure et s’y installent. Finalement, la condition de cet homme est pire qu’avant.**
+27) Pendant qu’il parlait ainsi, du milieu de la foule, une femme s’écria : Heureuse [[Marie|la femme]] qui [[Jésus|t]]’a mis au monde et qui [[Jésus|t]]’a allaité !
+28) Mais [[Jésus|Jésus]] répondit : **Heureux plutôt ceux qui écoutent la Parole de [[Dieu|Dieu]] et qui y obéissent !**
 ## Chapitre 19
 ### Versets 11 à 27
 Intitulé **La parabole de l'argent à faire fructifier** par [[Bible#^358f23|BDS]]

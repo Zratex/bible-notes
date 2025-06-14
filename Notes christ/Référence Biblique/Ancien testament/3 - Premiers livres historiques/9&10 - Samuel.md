@@ -1,5 +1,46 @@
 Livres par [[Samuel]]
 # 1 Samuel
+## Chapitre 2
+### Versets 1 à 11
+Intitulé **Le cantique d'[[Anne]]** par [[Bible#^358f23|BDS]]
+
+1) Alors [[Anne|Anne]] prononça cette prière  :
+   La joie remplit [[Anne|mon]] cœur, ╵c’est grâce à l’[[Dieu|Eternel]] ;
+   oui, grâce à l’[[Dieu|Eternel]], ╵[[Anne|mon]] front s’est relevé
+   et [[Anne|j]]’ai de quoi répondre ╵à ceux qui [[Anne|me]] blessaient.
+   Oui, [[Anne|je]] jubile, ╵car [[Dieu|Dieu]] [[Anne|m]]’a secourue.
+2) Nul ne [[Dieu|l]]’égale. ╵L’[[Dieu|Eternel]] seul est saint,
+   et, à part [[Dieu|lui]], ╵il n’y a pas de Dieu,
+   pas de rocher ╵semblable à notre [[Dieu|Dieu]].
+3) Que cessent donc, ╵vos paroles hautaines
+   et les bravades ╵sortant de votre bouche !
+   Car l’[[Dieu|Eternel]] ╵est un [[Dieu|Dieu]] qui sait tout,
+   c’est [[Dieu|lui]] qui pèse ╵les actes des humains.
+4) Voilà brisé ╵l’arc des guerriers !
+   Ceux qui chancellent ╵sont armés de vigueur.
+5) Tous les repus ╵s’embauchent pour du pain,
+   les affamés ╵seront comblés de biens
+   et la stérile ╵met sept enfants au monde,
+   alors que celle ╵qui en avait beaucoup ╵sera flétrie.
+6) C’est l’[[Dieu|Eternel]] ╵qui fait mourir et vivre,
+   [[Dieu|il]] fait descendre ╵dans le séjour des morts ╵et en fait remonter.
+7) L’[[Dieu|Eternel]] seul ╵dépouille et enrichit,
+   [[Dieu|il]] humilie, ╵et [[Dieu|il]] élève aussi.
+8) De la poussière, ╵[[Dieu|il]] arrache le pauvre,
+   et [[Dieu|il]] relève ╵l’indigent de la fange
+   pour l’installer ╵au milieu des puissants
+   et lui donner ╵une place d’honneur.
+   A l’[[Dieu|Eternel]] ╵sont les fondements de la terre,
+   et c’est sur eux ╵qu’[[Dieu|il]] a posé le monde.
+9) [[Dieu|Il]] gardera les pas ╵de ceux qui [[Dieu|lui]] sont attachés,
+   mais les méchants ╵périront dans la nuit,
+   car aucun homme ╵n’est vainqueur par la force.
+10) Ceux qui contestent ╵contre [[Dieu|Dieu]] sont brisés.
+    Du haut du ciel, ╵[[Dieu|il]] tonnera contre eux.
+    [[Dieu|Il]] jugera ╵les confins de la terre ;
+    [[Dieu|il]] donnera ╵la puissance à son roi
+    et [[Dieu|il]] élèvera ╵l’homme qui, de sa part, ╵a reçu l’onction d’huile.
+11) Après cela, [[Elkana|Elqana]] retourna chez lui à [[Rama|Rama]], et le jeune garçon fut au service de l’[[Dieu|Eternel]] auprès du prêtre [[Eli]].
 ## Chapitre 15
 ### Versets 22 à 35
 Intitulé **L’obéissance vaut mieux que les sacrifices** par [[Bible#^358f23|BDS]]
