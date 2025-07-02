@@ -53,7 +53,7 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "",
+                "query": "révolte",
                 "matchingCase": false,
                 "explainSearch": false,
                 "collapseAll": false,
@@ -177,8 +177,10 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "421c4b7eacca3376",
+  "active": "412ad4b021e16018",
   "lastOpenFiles": [
+    "Personnages/Nouveau testament/~syncthing~Joseph de Nazareth.md.tmp",
+    "Formation disciples/Identité/~syncthing~Notre origine et identité.md.tmp",
     "Référence Biblique/Nouveau testament/3 - Lettres de Paul/10 - Ephésiens.md",
     "Formation disciples/Comment lire la Bible.md",
     "Référence Biblique/Ancien testament/3 - Premiers livres historiques/6 - Josué.md",
@@ -207,7 +209,6 @@
     "Lieux historiques/Régions géographiques/Crète.md",
     "Lieux historiques/Images/Crète.PNG",
     "Formation disciples/Identité/Nouvelle vie pour nouvelle identité.md",
-    "Définitions/Tanakh.md",
     "Personnages/Ancien testament/Juges",
     "Personnages/Nouveau testament/~syncthing~Jacques (épistolier).md.tmp",
     "Personnages/~syncthing~Satan.md.tmp",
@@ -216,7 +217,6 @@
     "Formation disciples/Identité",
     "~syncthing~Écouter la voix de Dieu.md.tmp",
     "~syncthing~Nouvelle vie pour nouvelle identité.md.tmp",
-    "~syncthing~Corps âme esprit esprit.md.tmp",
     "Lieux historiques/Images/Césarée de Philippe.PNG",
     "Lieux historiques/Images/Capharnaüm.PNG",
     "Lieux historiques/Images/Chorazin.PNG",
