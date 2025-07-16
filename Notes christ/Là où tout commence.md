@@ -1,21 +1,21 @@
 Message de Benjamin Pettersmitt à ZR le 07/06/2025
 
-`Romains 8:31-39` 
+[[6 - Romains#Versets 31 à 39|Romains 8:31-39]]
 
 `Exode 1:8-15` : contexte dans lequel [[Moïse]] a grandi
 
-C'est dans les saisons difficiles que des grands Hommes s'élève, en particulier dans l'opression
+C'est dans les saisons difficiles que des grands Hommes s'élève, en particulier dans l'oppression
 
 `Exode 33:11 ou 1` : [[Moïse]] était très proche de [[Dieu]]
 -> la lecture de la [[Bible]] doit nous donner envie de nous rapprocher de [[Dieu]]
 
 `Exode 3:1-10` : là où tout commence pour [[Moïse]] c'est à [[Mont Sinaï|Horeb]]
-La montagne en elle même montre qu'un lieu dévasté, arrivé, est un lieu de rencontre avec [[Dieu]]
+La montagne en elle même montre qu'un lieu dévasté, aride, est un lieu de rencontre avec [[Dieu]]
 ## pourquoi est ce nécessaire
 En passant par le [[Mont Sinaï]], [[Moïse]] est passé d'un simple homme à un homme de [[Dieu]]
 Il a été formé, transformé au travers de cette situation.
 
-Et celà s'est fait au travers du fait qu'il ait tout laissé pour suivre [[Dieu]]
+Et cela s'est fait au travers du fait qu'il ait tout laissé pour suivre [[Dieu]]
 
 C'est avec cette rencontre que [[Dieu]] :
 - se relève, et donc nous inspire dans nos paroles (cf la question de [[Moïse]])

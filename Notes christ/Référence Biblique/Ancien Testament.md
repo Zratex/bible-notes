@@ -11,15 +11,16 @@ Il a comme appellation "la loi et les prophéties" ou "**les Ecritures**" dans l
 		- [[4 - Nombres|Nombres]]
 		- [[5 - Deutéronome|Deutéronome]]
 - Premiers livres historiques :
-	- Josué
+	- [[6 - Josué|Josué]]
 	- Juges
-	- Ruth
+	- [[8 - Ruth|Ruth]]
 	- [[9&10 - Samuel#1 Samuel|1 Samuel]]
 	- [[9&10 - Samuel#2 Samuel|2 Samuel]]
 	- [[11&12 - Rois#1 Rois|1 Rois]]
 	- [[11&12 - Rois#2 Rois|2 Rois]]
 - Seconds livres historiques :
-	- 1 et 2 Chroniques
+	- [[12&13 - Chroniques#1 Chroniques|1 Chroniques]]
+	- [[12&13 - Chroniques#2 Chroniques|2 Chroniques]]
 	- Esdras
 	- [[15 - Néhémie|Néhémie]]
 	- [[16 - Esther|Esther]]
@@ -27,8 +28,8 @@ Il a comme appellation "la loi et les prophéties" ou "**les Ecritures**" dans l
 	- [[18 - Job|Job]]
 	- [[19 - Psaumes|Psaumes]]
 	- [[20 - Proverbes|Proverbes]]
-	- Ecclésiaste
-	- Cantique des cantiques
+	- [[21 - Ecclésiaste|Ecclésiaste]]
+	- [[22 - Cantique des cantiques|Cantique des cantiques]]
 - Premiers livres prophétiques :
 	- [[23 - Esaïe|Esaïe]]
 	- [[24 - Jérémie|Jérémie]]

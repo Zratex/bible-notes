@@ -1,0 +1,1 @@
+==Action de grâce :== forme de prière remerciant [[Dieu]]

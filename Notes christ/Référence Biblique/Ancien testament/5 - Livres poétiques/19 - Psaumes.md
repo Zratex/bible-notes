@@ -210,6 +210,68 @@ Intitulé **Malade et persécuté** par [[Bible#^358f23|BDS]]
 	[[Dieu|Tu]] me fais subsister ╵devant toi pour toujours.
 14) Béni soit l’[[Dieu|Eternel]], ╵[[Dieu]] d’[[Israël|Israël]], ╵depuis toujours ╵et pour toujours.
 	Amen, Amen !
+## Chapitre 44
+Intitulé **Rejetés par l'[[Dieu|Eternel]]** par [[Bible#^358f23|BDS]]
+
+1) *Au chef de chœur. Méditation des [[Qoré|Qoréites]].*
+2) O [[Dieu|Dieu]], nous l’avons entendu ╵de nos propres oreilles,
+   nos pères nous ont raconté
+   tout ce que [[Dieu|tu]] as accompli
+   de leur temps, autrefois.
+3) Par [[Dieu|ton]] intervention, ╵[[Dieu|tu]] as dépossédé des peuples ╵pour établir nos pères ;
+   et [[Dieu|tu]] as frappé des peuplades ╵pour donner à nos pères ╵assez de place.
+4) Ce n’est pas grâce à leur épée ╵qu’ils ont occupé cette terre,
+   ni par leur propre force ╵qu’ils ont remporté la victoire :
+   mais c’est par [[Dieu|ton]] action puissante,
+   car [[Dieu|tu]] leur étais favorable ╵et les avais en affection.
+5) C’est [[Dieu|toi]], ô [[Dieu|Dieu]], qui es mon roi
+   et qui décides ╵le salut de [[Jacob|Jacob]].
+6) Oui, avec [[Dieu|toi]] ╵nous repoussons nos ennemis,
+   et grâce à [[Dieu|toi]] ╵nous piétinons nos adversaires.
+7) Je ne compte pas sur mon arc,
+   mon épée ne me sauve pas,
+8) c’est [[Dieu|toi]], ô [[Dieu|Dieu]], ╵qui nous délivres ╵de tous nos ennemis
+   et qui couvres de honte ╵les gens qui nous haïssent.
+9) Tout au long de ce jour, ╵nous nous félicitons de [[Dieu|Dieu]] ;
+   nous le louerons ╵jusqu’en l’éternité.
+   *Pause*
+10) Pourtant [[Dieu|tu]] nous as rejetés
+    et livrés à la honte.
+    [[Dieu|Tu]] as cessé d’accompagner ╵nos armées au combat !
+11) [[Dieu|Tu]] nous fais reculer ╵devant nos ennemis :
+    nos adversaires ╵se sont emparés de nos biens.
+12) Oui, [[Dieu|tu]] nous as livrés à eux, ╵ainsi qu’un troupeau de brebis ╵destinées à la boucherie,
+    et [[Dieu|tu]] nous as éparpillés ╵parmi les peuples étrangers.
+13) [[Dieu|Tu]] as vendu ton peuple ╵à un bas prix
+    sans en tirer aucun profit,
+14) et [[Dieu|tu]] nous as livrés ╵aux railleries de nos voisins.
+    Tous ceux qui nous entourent ╵se rient et se moquent de nous.
+15) [[Dieu|Tu]] fais de nous ╵la risée d’autres peuples.
+    En nous voyant, les étrangers ╵secouent la tête en ricanant.
+16) Tout le jour je vois mon humiliation,
+    et mon visage ╵est marqué par la honte
+17) quand j’entends les outrages ╵et les propos blessants
+    d’un ennemi vindicatif.
+18) Tout cela nous est arrivé ╵sans que nous [[Dieu|t]]’ayons délaissé
+    et sans que nous ayons trahi ╵[[Dieu|ton]] alliance avec nous.
+19) Nous n’avons pas renié ╵nos engagements envers [[Dieu|toi]],
+    nous n’avons pas quitté la voie ╵que [[Dieu|tu]] nous as prescrite.
+20) Pourtant, [[Dieu|tu]] nous as écrasés ╵dans le domaine des chacals,
+    et [[Dieu|tu]] nous as couverts ╵de ténèbres épaisses.
+21) Si nous avions délaissé notre [[Dieu|Dieu]],
+    si nous avions tendu les mains ╵vers un dieu étranger,
+22) [[Dieu|Dieu]] ne l’aurait-il pas appris,
+    lui qui connaît tous les secrets ╵qui sont au fond des cœurs ?
+23) A cause de [[Dieu|toi]], chaque jour, ╵nous sommes massacrés
+    et l’on nous considère ╵comme étant des moutons ╵destinés à la boucherie.
+24) Interviens donc, [[Dieu|Seigneur]] ! ╵Pourquoi ne réagis-[[Dieu|tu]] pas ?
+    Veuille [[Dieu|te]] réveiller ! ╵Ne nous rejette pas toujours !
+25) Pourquoi [[Dieu|te]] détourner ?
+    Pourquoi ignores-[[Dieu|tu]] nos maux ╵et nos détresses ?
+26) Car nous voilà prostrés dans la poussière,
+    plaqués au sol.
+27) Agis, viens à notre aide !
+    Libère-nous dans [[Dieu|ton]] amour !
 ## Chapitre 68
 Intitulé **Le triomphe du [[Dieu]] victorieux** par [[Bible#^358f23|BDS]]
 
@@ -438,6 +500,9 @@ Intitulé **Le Roi-Prêtre** par [[Bible#^358f23|BDS]]
    il écrase des chefs ╵de par la terre entière.
 7) En chemin, le roi s’abreuve au torrent,
    puis relève la tête.
+## Chapitre 139
+Intitulé **[[Dieu|Seigneur]], tu sais tout de [[David|moi]]** par [[Bible#^358f23|BDS]]
+
 ## Chapitre 143
 Intitulé **Conduis-moi dans tes voies !** par [[Bible#^358f23|BDS]]
 
