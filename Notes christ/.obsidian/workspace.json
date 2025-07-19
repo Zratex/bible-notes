@@ -34,34 +34,6 @@
               "icon": "lucide-file",
               "title": "Là où tout commence"
             }
-          },
-          {
-            "id": "b7d45200adb2271d",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Référence Biblique/Nouveau testament/3 - Lettres de Paul/6 - Romains.md",
-                "mode": "source",
-                "source": false
-              },
-              "icon": "lucide-file",
-              "title": "6 - Romains"
-            }
-          },
-          {
-            "id": "14dba0aac1240916",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Référence Biblique/Ancien testament/5 - Livres poétiques/19 - Psaumes.md",
-                "mode": "source",
-                "source": false
-              },
-              "icon": "lucide-file",
-              "title": "19 - Psaumes"
-            }
           }
         ]
       }
@@ -222,33 +194,38 @@
   "active": "421c4b7eacca3376",
   "lastOpenFiles": [
     "Là où tout commence.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/6 - Romains.md",
-    "Référence Biblique/Ancien testament/5 - Livres poétiques/19 - Psaumes.md",
-    "Définitions/Tanakh.md",
-    "Définitions/Septante.md",
-    "Définitions/Apocryphes.md",
-    "Personnages/Nouveau testament/zélotes.md",
-    "Définitions/Ketouvim.md",
-    "Référence Biblique/Ancien Testament.md",
-    "Référence Biblique/Ancien testament/4 - Seconds livres historiques/12&13 - Chroniques.md",
-    "Référence Biblique/Ancien testament/4 - Seconds livres historiques/14 - Esdras.md",
-    "Référence Biblique/Ancien testament/5 - Livres poétiques/21 - Ecclésiaste.md",
-    "Référence Biblique/Ancien testament/5 - Livres poétiques/22 - Cantique des cantiques.md",
-    "Personnages/Ancien testament/Qoré.md",
-    "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.md",
     "Formation disciples/Prière, louange et adoration.md",
-    "Définitions/Louange.md",
-    "Définitions/Apologétique.md",
-    "Définitions/Action de grâce.md",
-    "Formation disciples/Etude - identité.md",
-    "Formation disciples/Workshops.md",
-    "Formation disciples/Formation disciples POC Reims.md",
-    "Formation disciples/Comment lire la Bible.md",
-    "Untitled.md",
+    "Référence Biblique/Ancien testament/2 - La loi de Dieu/2 - Exode.md",
+    "Personnages/Ancien testament/Noun.md",
+    "Personnages/Ancien testament/Josué.md",
+    "Définitions/Yahweh.md",
+    "Lieux historiques/Régions géographiques/Mont Sinaï.md",
+    "Lieux historiques/Régions géographiques/Sinaï.md",
+    "Lieux historiques/Royaumes/Egypte.md",
+    "Référence Biblique/Ancien testament/1 - Le commencement/Genèse.md",
+    "Lieux historiques/Royaumes/Phéréziens.md",
+    "Lieux historiques/Images/Egypte.PNG.0.pdnSave",
+    "Lieux historiques/Images/Egypte.PNG",
+    "Lieux historiques/Royaumes/Royaume de Judée.md",
+    "Lieux historiques/Villes/Jérusalem.md",
+    "Lieux historiques/Villes/Jébus.md",
+    "Lieux historiques/Royaumes/Jébusiens.md",
+    "Personnages/Ancien testament/Canaan (personnage).md",
+    "Lieux historiques/Régions géographiques/Canaan.md",
+    "Lieux historiques/Royaumes/Héviens.md",
+    "Lieux historiques/Royaumes/Amorrites.md",
+    "Personnages/Ancien testament/Famille d'Abraham/Fils de Jacob/Lévi.md",
+    "Personnages/Ancien testament/Famille d'Abraham/Fils de Jacob/Juda.md",
+    "Personnages/Ancien testament/Famille d'Abraham/Fils de Jacob/Issacar.md",
+    "Personnages/Ancien testament/Jéthro.md",
+    "Lieux historiques/Royaumes/Hittites.md",
+    "Lieux historiques/Royaumes/Arménie.md",
+    "Lieux historiques/Royaumes/Syrie.md",
+    "Lieux historiques/Images/Arménie.PNG",
+    "Lieux historiques/Images/Pitom.PNG",
+    "Lieux historiques/Images/Ramsès city.PNG",
     "Personnages/Nouveau testament/~syncthing~Joseph de Nazareth.md.tmp",
     "Formation disciples/Identité/~syncthing~Notre origine et identité.md.tmp",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/10 - Ephésiens.md",
-    "Référence Biblique/Ancien testament/3 - Premiers livres historiques/6 - Josué.md",
     "Lieux historiques/Images/Méditerranée.png",
     "Lieux historiques/Images/Méditerranée.png.0.pdnSave",
     "Lieux historiques/Images/Crète.PNG",
@@ -258,14 +235,9 @@
     "Référence Biblique/Nouveau testament/3 - Lettres de Paul/~syncthing~9 - Galates.sync-conflict-20250524-111505-4D4KN2W.md.tmp",
     "Formation disciples/Identité/~syncthing~Nouvelle vie pour nouvelle identité.sync-conflict-20250524-110635-4D4KN2W.md.tmp",
     "Formation disciples/Identité",
-    "~syncthing~Écouter la voix de Dieu.md.tmp",
     "Lieux historiques/Images/Césarée de Philippe.PNG",
     "Lieux historiques/Images/Capharnaüm.PNG",
     "Lieux historiques/Images/Chorazin.PNG",
-    "Lieux historiques/Images/Le Caire.PNG",
-    "Lieux historiques/Images/Memphis.PNG",
-    "Lieux historiques/Images/Tanis.PNG",
-    "Lieux historiques/Images/Pergame.PNG",
-    "Lieux historiques/Images/Hittites.png"
+    "Lieux historiques/Images/Le Caire.PNG"
   ]
 }

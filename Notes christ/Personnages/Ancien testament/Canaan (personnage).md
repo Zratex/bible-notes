@@ -1,0 +1,1 @@
+Petit-fils de [[Noé]], il est à l'origine de la majorité des peuples de la région de [[Canaan]]

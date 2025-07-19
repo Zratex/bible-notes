@@ -1,3 +1,57 @@
+## Chapitre 1
+Intitulé **L'oppression des [[Israël|Israélites]] en [[Egypte]]**
+
+1) Voici la liste des fils d’[[Israël|Israël]] qui ont accompagné [[Jacob|Jacob]] en [[Egypte|Egypte]], chacun avec sa famille :
+2) [[Ruben|Ruben]], [[Siméon|Siméon]], [[Lévi|Lévi]] et [[Juda|Juda]] ;
+3) [[Issacar|Issacar]], [[Zabulon|Zabulon]] et [[Benjamin|Benjamin]] ; 
+4) [[Dan|Dan]] et [[Nephthali|Nephtali]], [[Gad|Gad]] et [[Aser|Aser]].
+5) Les descendants de [[Jacob]] étaient au nombre de soixante-dix en tout, [[Joseph|Joseph]] étant déjà en [[Egypte|Egypte]] à ce moment-là.
+6) [[Joseph|Joseph]] mourut, ainsi que tous ses frères et toute leur génération.
+7) Les [[Israël|Israélites]] furent féconds, proliférèrent, se multiplièrent et devinrent de plus en plus puissants, si bien que le pays en fut rempli.
+8) Un nouveau roi vint au pouvoir en [[Egypte|Egypte]] ; il ne connaissait pas [[Joseph|Joseph]].
+9) Il dit à ses sujets : Voyez, le peuple des [[Israël|Israélites]] est plus nombreux et plus puissant que nous.
+10) Il est temps d’aviser à son sujet, pour qu’il cesse de se multiplier. Sinon, en cas de guerre, il risque de se ranger aux côtés de nos ennemis et de combattre contre nous pour quitter ensuite le pays.
+11) Alors on imposa aux [[Israël|Israélites]] des chefs de corvée pour les accabler par des travaux forcés. C’est ainsi qu’ils durent bâtir pour le pharaon les villes de [[Pitom|Pitom]] et de [[Ramsès (ville)|Ramsès]] pour servir de centres d’approvisionnement.
+12) Mais plus on [[Israël|les]] opprimait, plus ils devenaient nombreux et plus ils se répandaient, au point que les [[Egypte|Egyptiens]] les prirent en aversion.
+13) Alors ceux-ci les réduisirent à un dur esclavage
+14) et leur rendirent la vie amère par de rudes corvées : fabrication de mortier, confection de briques, travaux en tous genres dans les champs, bref, toutes les tâches auxquelles on les asservit avec cruauté.
+15) Il y avait deux sages-femmes pour les [[Israël|Hébreux]]. Elles se nommaient [[Shiphra|Shiphra]] et [[Poua|Poua]]. Le [[Pharaon|pharaon]] leur donna cet ordre :
+16) Quand vous accoucherez les femmes des [[Israël|Hébreux]], et que vous aurez constaté le sexe de l’enfant, si c’est un garçon, mettez-le à mort, si c’est une fille, qu’on la laisse vivre.
+17) Mais les sages-femmes craignaient [[Dieu|Dieu]] ; elles n’obéirent pas au [[Pharaon|pharaon]] : elles laissèrent la vie sauve aux garçons.
+18) Alors le [[Pharaon|pharaon]] les convoqua et leur demanda : Pourquoi avez-vous fait cela ? Pourquoi avez-vous laissé vivre les garçons ?
+19) Les sages-femmes répondirent au [[Pharaon|pharaon]] : C’est que les femmes des [[Israël|Hébreux]] ne sont pas comme les [[Egypte|Egyptiennes]]. Elles sont pleines de vie. Avant que la sage-femme arrive auprès d’elles, elles ont déjà mis leur enfant au monde.
+20) [[Dieu|Dieu]] fit du bien aux sages-femmes, et le peuple continua de se multiplier et devint extrêmement puissant.
+21) Comme les sages-femmes avaient agi par crainte de [[Dieu|Dieu]], [[Dieu|Dieu]] fit prospérer leurs familles.
+22) Alors le [[Pharaon|pharaon]] ordonna à tous ses sujets : Jetez dans le fleuve tous les garçons nouveau-nés des [[Israël|Hébreux]], mais laissez vivre toutes les filles !
+## Chapitre 3
+Intitulé **L'appel et l'envoi de [[Moïse]]** par [[Bible#^358f23|BDS]]
+
+1) [[Moïse|Moïse]] faisait paître les brebis de son beau-père [[Jéthro|Jéthro]], prêtre de [[Madian|Madian]]. Il mena son troupeau au-delà du désert et parvint jusqu’à [[Mont Sinaï|Horeb]], la montagne de [[Dieu|Dieu]].
+2) L’ange de l’[[Dieu|Eternel]] lui apparut dans une flamme au milieu d’un buisson : [[Moïse|Moïse]] aperçut un buisson qui était tout embrasé et qui, pourtant, ne se consumait pas.
+3) [[Moïse|Il]] se dit alors : [[Moïse|Je]] vais faire un détour pour aller regarder ce phénomène extraordinaire et voir pourquoi le buisson ne se consume pas.
+4) L’[[Dieu|Eternel]] vit que [[Moïse|Moïse]] faisait un détour pour aller voir et [[Dieu|il]] l’appela du milieu du buisson :
+   [[Moïse|Moïse, Moïse]] !
+   – [[Moïse|Je]] suis là, répondit [[Moïse|Moïse]].
+5) [[Dieu|Dieu]] lui dit : N’approche pas d’ici, ôte [[Moïse|tes]] sandales, car le lieu où [[Moïse|tu]] te tiens est un lieu saint.
+6) Puis [[Dieu|il]] ajouta : [[Dieu|Je]] suis le [[Dieu|Dieu]] de tes ancêtres, le [[Dieu|Dieu]] d’[[Abraham|Abraham]], le [[Dieu|Dieu]] d’[[Isaac|Isaac]] et le [[Dieu|Dieu]] de [[Jacob|Jacob]].
+   Alors [[Moïse|Moïse]] se couvrit le visage car il craignait de regarder [[Dieu|Dieu]].
+7) L’[[Dieu|Eternel]] reprit : [[Dieu|J]]’ai vu la détresse de [[Israël|mon peuple]] en [[Egypte|Egypte]] et [[Dieu|j]]’ai entendu les cris que lui font pousser ses oppresseurs. Oui, [[Dieu|je]] sais ce qu’il souffre.
+8) C’est pourquoi je suis descendu pour le délivrer des [[Egypte|Egyptiens]], pour le faire sortir d’[[Egypte|Egypte]] et le conduire vers un bon et vaste pays, un pays ruisselant de lait et de miel ; celui qu’habitent les [[Canaan|Cananéens]], les [[Hittites|Hittites]], les [[Amorrites|Amoréens]], les [[Phéréziens|Phéréziens]], les [[Héviens|Héviens]] et les [[Jébusiens|Yebousiens]].
+9) A présent, les cris des [[Israël|Israélites]] sont parvenus jusqu’à [[Dieu|moi]] et [[Dieu|j]]’ai vu à quel point les [[Egypte|Egyptiens]] [[Israël|les]] oppriment.
+10) Va donc maintenant : [[Dieu|je]] [[Moïse|t]]’envoie vers le [[Pharaon|pharaon]], pour que tu fasses sortir d’[[Egypte|Egypte]] les [[Israël|Israélites]], mon peuple.
+11) [[Moïse|Moïse]] dit à [[Dieu|Dieu]] :
+    Qui suis-[[Moïse|je, moi]], pour aller trouver le [[Pharaon|pharaon]] et pour faire sortir les [[Israël|Israélites]] d’[[Egypte|Egypte]] ?
+12) – Sache que [[Dieu|je]] serai avec [[Moïse|toi]], lui répondit [[Dieu|Dieu]]. Et voici le signe auquel on reconnaîtra que c’est [[Dieu|moi]] qui [[Moïse|t]]’ai envoyé : quand [[Moïse|tu]] auras fait sortir le peuple hors d’[[Egypte|Egypte]], vous [[Dieu|m]]’adorerez sur [[Mont Sinaï|cette montagne-ci]].
+13) [[Moïse|Moïse]] reprit : [[Moïse|J]]’irai donc trouver les [[Israël|Israélites]] et [[Moïse|je]] leur dirai : « Le [[Dieu|Dieu]] de [[Israël|vos]] ancêtres m’a envoyé vers vous. » Mais s’ils [[Moïse|me]] demandent : « Quel est [[Dieu|son]] nom ? » que leur répondrai-[[Moïse|je]] ?
+14) Alors [[Dieu|Dieu]] dit à [[Moïse|Moïse]] : [[Yahweh|Je suis celui qui est]]. Puis [[Dieu|il]] ajouta : Voici ce que [[Moïse|tu]] diras aux [[Israël|Israélites]] : [[Yahweh|Je suis]] [[Moïse|m]]’a envoyé vers [[Israël|vous]].
+15) Puis [[Moïse|tu]] [[Israël|leur]] diras : « L’[[Dieu|Eternel, le Dieu]] de [[Israël|vos]] ancêtres, le [[Dieu|Dieu]] d’[[Abraham|Abraham]], d’[[Isaac|Isaac]] et de [[Jacob|Jacob]] [[Moïse|m]]’a envoyé vers [[Israël|vous]]. C’est là [[Dieu|mon]] nom pour l’éternité, c’est sous ce nom que l’on se souviendra de [[Dieu|moi]] pour tous les temps.
+16) Va donc, réunis les responsables d’[[Israël|Israël]] et dis-leur : L’[[Dieu|Eternel, le Dieu]] de [[Israël|vos]] ancêtres, le [[Dieu|Dieu]] d’[[Abraham|Abraham]], d’[[Isaac|Isaac]] et de [[Jacob|Jacob]] [[Moïse|m]]’est apparu et [[Moïse|m]]’a dit : [[Dieu|J]]’ai résolu d’intervenir en [[Israël|votre]] faveur au regard du traitement qu’on vous inflige en [[Egypte|Egypte]].
+17) Aussi ai-[[Dieu|je]] décidé de [[Israël|vous]] faire sortir d’[[Egypte|Egypte]], où [[Israël|vous]] êtes en proie à l’oppression, pour [[Israël|vous]] conduire dans le pays des [[Canaan|Cananéens]], des [[Hittites|Hittites]], des [[Amorrites|Amoréens]], des [[Phéréziens|Phéréziens]], des [[Héviens|Héviens]] et des [[Jébusiens|Yebousiens]], dans un pays ruisselant de lait et de miel. »
+18) Les responsables d’[[Israël|Israël]] [[Moïse|t]]’écouteront et [[Moïse|tu]] iras trouver le [[Pharaon|pharaon]] avec eux pour lui dire : « L’[[Dieu|Eternel, le Dieu]] des [[Israël|Hébreux]], est venu nous trouver. Maintenant, veuille donc [[Israël|nous]] accorder la permission de faire trois journées de marche dans le désert pour aller offrir un sacrifice à l’[[Dieu|Eternel]] [[Israël|notre]] [[Dieu|Dieu]]. »
+19) [[Dieu|Moi, je]] sais que le [[Pharaon|pharaon]] ne [[Israël|vous]] permettra pas de partir s’il n’y est pas contraint avec puissance.
+20) C’est pourquoi [[Dieu|j]]’interviendrai et [[Dieu|je]] frapperai l’[[Egypte|Egypte]] de toutes sortes de prodiges que [[Dieu|j]]’accomplirai au milieu d’elle. Après cela, [[Pharaon|il]] [[Israël|vous]] renverra.
+21) [[Dieu|Je]] ferai gagner à ce peuple la faveur des [[Egypte|Egyptiens]], de sorte qu’à [[Israël|votre]] départ, vous ne vous en irez pas les mains vides.
+22) Chaque femme demandera à sa voisine et à celle qui habite chez elle des ustensiles d’argent et d’or ainsi que des vêtements. Vous les donnerez à porter à vos fils et vos filles. Ainsi [[Israël|vous]] dépouillerez les [[Egypte|Egyptiens]].
 ## Chapitre 6
 ### Versets 1 à 13
 Intitulé **[[Dieu]] annonce son intervention** par [[Bible#^358f23|BDS]]
@@ -65,6 +119,14 @@ Intitulé **La purification rituelle** par [[Bible#^358f23|BDS]]
 14) [[Moïse]] redescendit de la montagne vers le peuple pour lui faire accomplir les rites de purification. Ils lavèrent aussi leurs vêtements.
 15) Puis [[Moïse|il]] leur dit : Tenez-vous prêts pour après-demain. Abstenez-vous d’ici-là de tout rapport sexuel.
 ## Chapitre 33
+## Versets 7 à 11
+Intitulé **La tente de la Rencontre** par [[Bible#^358f23|BDS]]
+
+7) [[Moïse|Moïse]] prit une tente et la dressa pour lui à l’extérieur du camp à une bonne distance. [[Moïse|Il]] l’appelait tente de la Rencontre. Celui qui voulait consulter l’[[Dieu|Eternel]] devait sortir du camp pour se rendre à la tente de la Rencontre.
+8) Chaque fois que [[Moïse|Moïse]] sortait pour aller à cette tente, [[Israël|le peuple]] se levait et chacun se tenait à l’entrée de sa tente pour suivre [[Moïse|Moïse]] du regard jusqu’à ce qu’[[Moïse|il]] soit entré dans la tente.
+9) Dès qu’[[Moïse|il]] y pénétrait, la colonne de nuée descendait et se tenait à l’entrée de la tente, et l’[[Dieu|Eternel]] s’entretenait avec [[Moïse|Moïse]].
+10) Tout [[Israël|le peuple]] voyait la colonne de nuée se tenir à l’entrée de la tente et le peuple tout entier se levait et se prosternait, chacun à l’entrée de sa tente.
+11) L’[[Dieu|Eternel]] s’entretenait avec [[Moïse|Moïse]] directement comme un homme parle avec son ami. Puis [[Moïse|Moïse]] regagnait le camp ; mais son jeune assistant [[Josué|Josué]], fils de [[Noun|Noun]], restait dans la tente.
 ### Versets 12 à 23
 Intitulé **[[Moïse]] prie l'[[Dieu|Eternel]] d'accompagner son peuple** par [[Bible#^358f23|BDS]]
 

@@ -206,8 +206,8 @@ Intitulé **L'alliance de [[Dieu]] avec [[Abraham|Abram]]** par [[Bible#^358f23|
 17) Lorsque le soleil fut couché et que l’obscurité fut totale, un tourbillon de fumée et une torche de feu passèrent soudain entre les animaux partagés.
 18) Ce jour-là, l’[[Dieu|Eternel]] fit alliance avec [[Abraham|Abram]] et lui dit : Je promets de donner à ta descendance tout ce pays, depuis le fleuve d’[[Egypte]] jusqu’au grand fleuve, l’[[Tigre & Euphrate|Euphrate]],
 19) le pays des Qéniens, des Qeniziens, des Qadmonéens,
-20) des [[Hittites|Hittites]], des Phéréziens, des Rephaïm,
-21) des [[Amorrites|Amoréens]], des [[Canaan|Cananéens]], des Guirgasiens et des Yebousiens.
+20) des [[Hittites|Hittites]], des [[Phéréziens|Phéréziens]], des Rephaïm,
+21) des [[Amorrites|Amoréens]], des [[Canaan|Cananéens]], des Guirgasiens et des [[Jébusiens|Yebousiens]].
 ## Chapitre 26
 ### Versets 1 à 11
 Intitulé **[[Isaac]] à [[Guérar]]**

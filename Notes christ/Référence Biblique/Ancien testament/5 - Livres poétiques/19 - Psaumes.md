@@ -503,6 +503,60 @@ Intitulé **Le Roi-Prêtre** par [[Bible#^358f23|BDS]]
 ## Chapitre 139
 Intitulé **[[Dieu|Seigneur]], tu sais tout de [[David|moi]]** par [[Bible#^358f23|BDS]]
 
+1) *Au chef de chœur. Psaume de [[David|David]].*
+   [[Dieu|Eternel]], ╵tu [[David|me]] sondes ╵et tu me connais.
+2) [[Dieu|Toi]], tu sais quand je [[David|m]]’assieds ╵et quand je me lève.
+   De loin, [[Dieu|tu]] discernes ╵tout ce que [[David|je]] pense.
+3) [[Dieu|Tu]] sais quand [[David|je]] marche ╵et quand je me couche,
+   et tous [[David|mes]] chemins ╵[[Dieu|te]] sont familiers.
+4) Bien avant qu’un mot ╵vienne sur [[David|mes]] lèvres,
+   [[Dieu|Eternel]], ╵tu sais déjà tout ╵ce que [[David|je]] vais dire.
+5) [[Dieu|Tu]] [[David|m]]’entoures ╵par-derrière et par-devant,
+   et [[Dieu|tu]] mets ta main sur [[David|moi]].
+6) Merveilleux savoir ╵hors de [[David|ma]] portée,
+   savoir trop sublime ╵pour que [[David|je]] l’atteigne.
+7) Où pourrais-[[David|je]] aller ╵loin de [[Dieu|ton Esprit]] ?
+   Où pourrais-[[David|je]] fuir ╵hors de [[Dieu|ta]] présence ?
+8) Si [[David|je]] monte au ciel ╵[[Dieu|tu]] es là,
+   et si [[David|je]] descends ╵au séjour des morts, ╵[[Dieu|t]]’y voilà !
+9) Si [[David|j]]’emprunte ╵les ailes de l’aube
+   et que [[David|j]]’aille demeurer ╵aux confins des mers,
+10) là aussi [[Dieu|ta]] main ╵[[David|me]] dirigera,
+    [[Dieu|ton]] bras droit ╵[[David|me]] tiendra.
+11) Et si [[David|je me]] dis : ╵« Du moins les ténèbres ╵m’envelopperont »,
+    alors la nuit même ╵se change en lumière ╵tout autour de moi.
+12) Pour [[Dieu|toi]], même les ténèbres ╵ne sont pas obscures
+    et la nuit est claire ╵comme le plein jour :
+    lumière ou ténèbres ╵pour [[Dieu|toi]] sont pareilles.
+13) [[Dieu|Tu]] m’as fait ce que [[David|je]] suis,
+    et [[Dieu|tu]] [[David|m]]’as tissé ╵dans le ventre de [[David|ma]] mère.
+14) [[David|Je]] [[Dieu|te]] loue ╵d’avoir fait de moi ╵une créature ╵aussi merveilleuse :
+    [[Dieu|tu]] fais des merveilles,
+    et [[David|je]] le reconnais bien.
+15) Mon corps n’était pas caché ╵à [[Dieu|tes]] yeux
+    quand, dans le secret, ╵[[David|je]] fus façonné
+    et tissé ╵comme dans les profondeurs ╵de la terre.
+16) [[David|Je]] n’étais encore ╵qu’une masse informe, ╵mais [[Dieu|tu]] [[David|me]] voyais
+    et, dans [[Dieu|ton]] registre, ╵se trouvaient déjà inscrits
+    tous les jours ╵que [[Dieu|tu]] [[David|m]]’avais destinés
+    alors qu’aucun d’eux ╵n’existait encore.
+17) Combien [[Dieu|tes]] desseins, ô [[Dieu|Dieu]], ╵sont, pour moi, impénétrables,
+    et comme ils sont innombrables !
+18) Si [[David|je]] les comptais,
+    ils seraient bien plus nombreux ╵que les grains de sable ╵sur les bords des mers.
+    Voici, [[David|je]] m’éveille, ╵[[David|je]] suis encore avec [[Dieu|toi]].
+19) Puisses-[[Dieu|tu]], ô [[Dieu|Dieu]], ╵faire mourir le méchant !
+    Que les hommes sanguinaires ╵partent loin de [[David|moi]] !
+20) Ils se servent de [[Dieu|ton]] nom ╵pour leurs desseins criminels,
+    eux, [[Dieu|tes]] adversaires, ╵l’utilisent pour tromper.
+21) [[Dieu|Eternel]], ╵comment donc ne pas haïr ╵ceux qui [[Dieu|te]] haïssent,
+    et ne pas prendre en dégoût ╵ceux qui [[Dieu|te]] combattent ?
+22) Eh bien, [[David|je]] leur voue ╵une haine extrême,
+    et les considère ╵comme [[David|mes]] ennemis mêmes.
+23) Sonde-[[David|moi]], ô [[Dieu|Dieu]], ╵pénètre mon cœur,
+    examine-[[David|moi]], ╵et pénètre les pensées ╵qui [[David|me]] bouleversent !
+24) Considère si [[David|je]] suis ╵le chemin du mal
+    et dirige-[[David|moi]] ╵sur la voie ╵prescrite depuis toujours !
 ## Chapitre 143
 Intitulé **Conduis-moi dans tes voies !** par [[Bible#^358f23|BDS]]
 

@@ -1,2 +1,3 @@
-3eme fils de [[Jacob]]. Il a engendré la tribu de Lévi ou dit les lévitiques.
+3eme fils de [[Jacob]], et fils de [[Léa]].
+Il a engendré la tribu de Lévi ou dit **les lévitiques**.
 Les lévitiques étaient ceux disposés à s'occuper du temple du temps d'[[Israël]], surtout depuis ce qu'a décidé le roi [[David]].

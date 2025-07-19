@@ -1,0 +1,2 @@
+Région englobant le nord-ouest de l'Arabie, le sud d'[[Edom]] et l'est du [[Sinaï]]
+Le nom de cette région fait suite à la tribut qui y vivait, dont son nom est tiré de **Madian**, un des descendant d'[[Abraham]]

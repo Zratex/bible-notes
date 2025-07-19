@@ -44,7 +44,8 @@ sur la TERRE [...]"
 ```
 "terre" -> s'analyser sur notre vie à propos de la volonté de [[Dieu]]
 C'est aussi une étape d'humiliation, venir auprès de [[Dieu]] tel qu'on est réellement
--> écho avec les sandales que [[Moïse]] a du retirer lors de la scène du buisson ardent (Plus de détails : [[Là où tout commence]])
+> écho avec les sandales que [[Moïse]] a du retirer lors de la scène du buisson ardent
+> ->Plus de détails dans cette note : [[Là où tout commence#La sainteté du lieu|Là où tout commence - La sainteté du lieu]]
 
 Prier à voix haute :
 - tips nous permettant de nous focaliser sur la prière
