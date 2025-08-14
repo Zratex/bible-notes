@@ -1,0 +1,2 @@
+Second fils de [[Isaï]], il a donc comme grand frère [[Eliab (fils d'Isaï)|Eliab]], et est le grand frère de [[Shamma]] ou encore [[David]].
+Il a travaillé dans l'armée [[Israël|israélienne]] à l'époque de [[Saül]]

@@ -147,14 +147,14 @@ Intitulé **[[Abraham|Abram]] en [[Egypte]]** par [[Bible#^358f23|BDS]]
 #### Versets 18 à 20
 Sortie d'Egypte :
 
-18) Alors le pharaon convoqua [[Abraham|Abram]] et lui dit : Qu’est-ce que tu m’as fait là ? Pourquoi ne m’as-tu pas dit qu’elle était ta femme ?
+18) Alors le [[Pharaon|pharaon]] convoqua [[Abraham|Abram]] et lui dit : Qu’est-ce que tu m’as fait là ? Pourquoi ne m’as-tu pas dit qu’elle était [[Sarah|ta femme]] ?
 19) Pourquoi l’as-tu présentée comme ta sœur ? A cause de cela, j’en ai fait ma femme.
     Maintenant, voilà ta femme ; reprends-la et va-t’en !
 20) Et le pharaon chargea ses gens de le reconduire avec sa femme et avec tout ce qu’il possédait.
 ## Chapitre 13
 ### Versets 1 à 13
 Intitulé **[[Abraham|Abram]] se fixe au pays de Canaan** par [[Bible#^358f23|BDS]]
-1) [[Abraham|Abram]] quitta donc l’[[Egypte]] avec sa femme et tout ce qu’il possédait en direction du [[Néguev]]. [[Loth]] était avec lui.
+1) [[Abraham|Abram]] quitta donc l’[[Egypte]] avec [[Sarah|sa femme]] et tout ce qu’il possédait en direction du [[Néguev]]. [[Loth]] était avec lui.
 2) [[Abraham|Abram]] était très riche en troupeaux, en argent et en or.
 3) D’étape en étape, il retourna du [[Néguev]] jusqu’à Béthel, au lieu où il avait auparavant établi son campement, entre Béthel et Aï,
 4) c’est-à-dire à l’endroit où était l’autel qu’il avait précédemment érigé, et il y pria l’[[Dieu|Eternel]].

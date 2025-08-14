@@ -10,13 +10,13 @@ En [[Jésus]], nous sommes appelés à quitter de là nous venons pour la volont
 ## la séparation
 
 [[Abraham]] a connu beaucoup de déceptions en essayant de suivre [[Dieu]]
-[[Genèse#Versets 18 à 20|Genèse 12:18-20]] et [[Genèse#Versets 1 à 13|Genèse 13:1]]  : ils furent chassés d'Égypte.
+[[Genèse#Versets 18 à 20|Genèse 12:18-20]] et [[Genèse#Versets 1 à 13|Genèse 13:1]]  : ils furent chassés d'[[Egypte]].
 >Il ne faut pas regarder aux circonstances, mais a la volonté du Seigneur.
 
 Ce qui importe pour [[Dieu]] -> [[9&10 - Samuel#Verset 7|1 Samuel 16:7]]
 
 [[Loth]] a vu la belle vallée, alors que [[Dieu]] avaient vu le mauvais [[Positionnement du cœur|cœur]] de ceux qui y habitaient.
-Dû au fait que [[Loth]] avait une volonté différente de [[Dieu]], il se dû de se séparer de [[Abraham]].
+Dû au fait que [[Loth]] avait une volonté différente de [[Dieu]], il dû de se séparer de [[Abraham]].
 
 [[Dieu]] peux nous prévenir, comme ce fut le cas avec [[Jonas]]. Mais ce "**stop**" peux être de forme différente.
 

@@ -1,1 +1,1 @@
-Abiatar (ou **Abiathar**), fils de [[Achimélech]]) est un grand prêtre de l'époque de la fin de vie de [[David]]
+Abiatar (ou **Abiathar**), fils de [[Achimélech]], est un grand prêtre de l'époque de la fin de vie de [[David]]

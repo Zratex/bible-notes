@@ -60,7 +60,7 @@ Intérêt de la persévérance : parabole du juge inique :
 - prier nous rapproche du cœur de [[Dieu]], et donc nous permet à force d'être aligné
 - la persévérance n'est pas inutile
 
-`13` : prier à être victorieux fasse au péché
+`13` : prier à être victorieux face au péché
 Fin par action de grâce, louange et adoration
 
 `14-15` : [[Jésus]] insiste sur le pardon, pour qu'on ait pas de la haine/rancune/amertume, car cela peut nous éloigner de ce que [[Dieu]] veux nous apporter, ou de nous retrouver en hypocrisie entre notre prière et notre cœur

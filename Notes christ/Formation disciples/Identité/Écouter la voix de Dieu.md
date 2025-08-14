@@ -2,10 +2,10 @@ Message apporté par Lucas le 21/05/2025
 
 Quand est ce qu'on laisse du temps à [[Dieu]] de nous parler durant les temps de prière ?
 ## Entendre et écouter
-`Romains 12:1-2` : il faut être né de l'esprit pour distinguer les paroles de [[Dieu]]
+[[6 - Romains#Versets 1 et 2|Romains 12:1-2]] : il faut être né de l'esprit pour distinguer les paroles de [[Dieu]]
 
-Écoutons et mettons en pratique sa parole ?
-Car celà peut être à l'encontre de la chair et des désirs
+Écoutons-nous et mettons-nous en pratique sa parole ?
+Car cela peut être à l'encontre de la chair et des désirs
 ## dimension de foi
 Les paroles de [[Dieu]] sont à prendre avec foi : y croire que c'est une vérité
 `Hebreux 11:6` 

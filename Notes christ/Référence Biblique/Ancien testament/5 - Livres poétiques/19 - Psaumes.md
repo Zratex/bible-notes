@@ -1,3 +1,8 @@
+Recueil de psaumes et quantiques écrits par divers auteurs, dont notamment :
+- [[David]]
+	- Parfois la cour de [[David]] (par exemple des chefs de cœurs)
+- Les descendants de [[Qoré]]
+- `Asaph`
 Les psaumes 113 à 118 sont les psaumes chantés au repas de la Pâque.
 ## Chapitre 2
 Intitulé **L'intronisation du Roi** par [[Bible#^358f23|BDS]]

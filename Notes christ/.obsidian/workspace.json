@@ -13,29 +13,58 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Formation disciples/Prière, louange et adoration.md",
+                "file": "Formation disciples/Identité/Écouter la voix de Dieu.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Prière, louange et adoration"
+              "title": "Écouter la voix de Dieu"
             }
           },
           {
-            "id": "f6fae990c21cd673",
+            "id": "a88d407d046665cb",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Là où tout commence.md",
+                "file": "Référence Biblique/Nouveau testament/4 - Lettres générales/18 - Hébreux.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Là où tout commence"
+              "title": "18 - Hébreux"
+            }
+          },
+          {
+            "id": "7fedc7ec926080b6",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Personnages/Ancien testament/Zorobabel.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "Zorobabel"
+            }
+          },
+          {
+            "id": "2a3914b613820601",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "1er Evangile - Matthieu"
             }
           }
-        ]
+        ],
+        "currentTab": 2
       }
     ],
     "direction": "vertical"
@@ -191,36 +220,39 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "421c4b7eacca3376",
+  "active": "7fedc7ec926080b6",
   "lastOpenFiles": [
-    "Là où tout commence.md",
-    "Formation disciples/Prière, louange et adoration.md",
-    "Référence Biblique/Ancien testament/2 - La loi de Dieu/2 - Exode.md",
-    "Personnages/Ancien testament/Noun.md",
+    "Personnages/Ancien testament/Yehoyada.md",
+    "Personnages/Ancien testament/Tsadoq.md",
+    "Personnages/Ancien testament/Shiphra.md",
+    "Personnages/Ancien testament/Samson.md",
+    "Personnages/Ancien testament/Salathiel.md",
+    "Personnages/Ancien testament/Néhémie.md",
+    "Personnages/Ancien testament/Ruth.md",
+    "Personnages/Ancien testament/Noémi.md",
+    "Personnages/Ancien testament/Moïse.md",
+    "Personnages/Ancien testament/Melchisédek.md",
     "Personnages/Ancien testament/Josué.md",
-    "Définitions/Yahweh.md",
-    "Lieux historiques/Régions géographiques/Mont Sinaï.md",
-    "Lieux historiques/Régions géographiques/Sinaï.md",
-    "Lieux historiques/Royaumes/Egypte.md",
-    "Référence Biblique/Ancien testament/1 - Le commencement/Genèse.md",
-    "Lieux historiques/Royaumes/Phéréziens.md",
+    "Personnages/Ancien testament/Job.md",
+    "Personnages/Ancien testament/Jéthro.md",
+    "Personnages/Ancien testament/Esdras.md",
+    "Personnages/Ancien testament/Elkana.md",
+    "Personnages/Ancien testament/Eliézer.md",
+    "Personnages/Ancien testament/Eliab (pallouite).md",
+    "Personnages/Ancien testament/Datan.md",
+    "Personnages/Ancien testament/Patriarches/Canaan (personnage).md",
+    "Personnages/Ancien testament/Benaya.md",
+    "Personnages/Ancien testament/Balaam.md",
+    "Personnages/Ancien testament/Anne.md",
+    "Personnages/Ancien testament/Alexandre le Grand.md",
+    "Lieux historiques/Villes/Alexandrie.md",
+    "Personnages/Ancien testament/Achimélech.md",
+    "Personnages/Ancien testament/Abner.md",
+    "Personnages/Ancien testament/Rois d'Israel/Famille de David/Enfants de David",
+    "Personnages/Ancien testament/Rois d'Israel/Famille de David",
+    "Personnages/Ancien testament/Patriarches",
     "Lieux historiques/Images/Egypte.PNG.0.pdnSave",
     "Lieux historiques/Images/Egypte.PNG",
-    "Lieux historiques/Royaumes/Royaume de Judée.md",
-    "Lieux historiques/Villes/Jérusalem.md",
-    "Lieux historiques/Villes/Jébus.md",
-    "Lieux historiques/Royaumes/Jébusiens.md",
-    "Personnages/Ancien testament/Canaan (personnage).md",
-    "Lieux historiques/Régions géographiques/Canaan.md",
-    "Lieux historiques/Royaumes/Héviens.md",
-    "Lieux historiques/Royaumes/Amorrites.md",
-    "Personnages/Ancien testament/Famille d'Abraham/Fils de Jacob/Lévi.md",
-    "Personnages/Ancien testament/Famille d'Abraham/Fils de Jacob/Juda.md",
-    "Personnages/Ancien testament/Famille d'Abraham/Fils de Jacob/Issacar.md",
-    "Personnages/Ancien testament/Jéthro.md",
-    "Lieux historiques/Royaumes/Hittites.md",
-    "Lieux historiques/Royaumes/Arménie.md",
-    "Lieux historiques/Royaumes/Syrie.md",
     "Lieux historiques/Images/Arménie.PNG",
     "Lieux historiques/Images/Pitom.PNG",
     "Lieux historiques/Images/Ramsès city.PNG",
@@ -232,9 +264,6 @@
     "Personnages/Ancien testament/Juges",
     "Personnages/Nouveau testament/~syncthing~Jacques (épistolier).md.tmp",
     "Personnages/~syncthing~Satan.md.tmp",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/~syncthing~9 - Galates.sync-conflict-20250524-111505-4D4KN2W.md.tmp",
-    "Formation disciples/Identité/~syncthing~Nouvelle vie pour nouvelle identité.sync-conflict-20250524-110635-4D4KN2W.md.tmp",
-    "Formation disciples/Identité",
     "Lieux historiques/Images/Césarée de Philippe.PNG",
     "Lieux historiques/Images/Capharnaüm.PNG",
     "Lieux historiques/Images/Chorazin.PNG",
