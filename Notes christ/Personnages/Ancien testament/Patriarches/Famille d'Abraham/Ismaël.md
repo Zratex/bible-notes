@@ -1,1 +1,1 @@
-Premier fils d'[[Abraham]], il est l'ancêtre des musulmans
+Premier fils d'[[Abraham]] et [[Agar]], il est l'ancêtre des musulmans

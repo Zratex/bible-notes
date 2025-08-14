@@ -8,7 +8,7 @@ Quand est ce qu'on laisse du temps à [[Dieu]] de nous parler durant les temps d
 Car cela peut être à l'encontre de la chair et des désirs
 ## dimension de foi
 Les paroles de [[Dieu]] sont à prendre avec foi : y croire que c'est une vérité
-`Hebreux 11:6` 
+[[18 - Hébreux#Chapitre 11|Hébreux 11:6]] (le chapitre entier développe cette idée)
 
 La [[Bible]] est donc une parole vivante, si on prend ces paroles par la foi.
 

@@ -95,40 +95,43 @@ Intitulé **Foi et endurance - la foi des témoins de l'ancienne alliance** par 
 2) C’est parce qu’ils ont eu cette foi que les hommes des temps passés ont été approuvés par [[Dieu|Dieu]].
 3) Par la foi, nous comprenons que l’univers a été harmonieusement organisé par la parole de [[Dieu|Dieu]], et qu’ainsi le monde visible tire son origine de l’invisible.
 4) Par la foi, [[Abel|Abel]] a offert à [[Dieu|Dieu]] un sacrifice meilleur que celui de [[Caïn|Caïn]]. Grâce à elle, [[Abel|il]] a été reconnu comme juste par [[Dieu|Dieu]] qui a témoigné lui-même qu’il approuvait ses dons, et grâce à elle [[Abel|Abel]] parle encore, bien que mort.
-5) Par la foi, [[Hénok|Hénok]] a été enlevé auprès de [[Dieu|Dieu]] pour échapper à la mort et on ne le trouva plus, parce que Dieu l’avait enlevé. En effet, avant de nous parler de son enlèvement, l’Ecriture lui rend ce témoignage : il était agréable à Dieu.
-6) Or, sans la foi, il est impossible de lui être agréable. Car celui qui s’approche de Dieu doit croire qu’il existe et qu’il récompense ceux qui se tournent vers lui.
-
-7Par la foi, Noé a construit un bateau pour sauver sa famille : il avait pris au sérieux la révélation qu’il avait reçue au sujet d’événements qu’on ne voyait pas encore. En agissant ainsi, il a condamné le monde. Et Dieu lui a accordé d’être déclaré juste en raison de sa foi.
-
-8Par la foi, Abraham a obéi à l’appel de Dieu qui lui ordonnait de partir pour un pays qu’il devait recevoir plus tard en héritage. Il est parti sans savoir où il allait. 9Par la foi, il a séjourné en étranger dans le pays qui lui avait été promis, vivant sous des tentes, de même qu’Isaac et Jacob qui sont héritiers avec lui de la même promesse. 10Car il attendait la cité aux fondements inébranlables dont Dieu lui-même est l’architecte et le constructeur.
-
-11Par la foi, Sara, elle aussi, qui était stérile, a été rendue capable de devenir mère alors qu’elle en avait depuis longtemps passé l’âge. En effet, elle était convaincue que celui qui avait fait la promesse est fidèle. 12C’est pourquoi aussi, d’un seul homme – plus encore : d’un homme déjà marqué par la mort – sont issus des descendants aussi nombreux que les étoiles du ciel et que les grains de sable qu’on ne saurait compter sur le rivage de la mer.
-
-13C’est dans la foi que tous ces gens sont morts sans avoir reçu ce qui leur avait été promis. Mais ils l’ont vu et salué de loin, et ils ont reconnu qu’ils étaient eux-mêmes étrangers et voyageurs sur la terre. 14Ceux qui parlent ainsi montrent clairement qu’ils recherchent une patrie. 15En effet, s’ils avaient eu la nostalgie de celle qu’ils avaient quittée, ils auraient eu l’occasion d’y retourner. 16En fait, c’est une meilleure patrie qu’ils désirent, c’est-à-dire la patrie céleste. Aussi Dieu n’a pas honte d’être appelé « leur Dieu », et il leur a préparé une cité.
-
-17Par la foi, Abraham a offert Isaac lorsque Dieu l’a mis à l’épreuve. Oui, il était en train d’offrir son fils unique, lui qui avait eu la promesse, 18et à qui Dieu avait dit : C’est par Isaac que te sera suscitée une descendance. 19Dieu, estimait-il, est assez puissant pour ressusciter un mort. Et son fils lui a été rendu : c’est une préfiguration.
-
-20Par la foi aussi, Isaac a béni Jacob et Esaü, en vue de l’avenir. 21Par la foi, Jacob a béni, peu avant sa mort, chacun des fils de Joseph et s’est prosterné pour adorer Dieu, en prenant appui sur l’extrémité de son bâton.
-
-22Par la foi, Joseph, à la fin de sa vie, a évoqué la sortie d’Egypte des descendants d’Israël, et a donné des instructions au sujet de ses ossements.
-
-23Par la foi, Moïse, après sa naissance, a été tenu caché pendant trois mois par ses parents, car en voyant combien cet enfant était beau, ils ne se sont pas laissés intimider par le décret du roi.
-
-24Par la foi, Moïse, devenu adulte, a refusé d’être reconnu comme le fils de la fille du pharaon. 25Il a choisi de prendre part aux souffrances du peuple de Dieu plutôt que de jouir – momentanément – d’une vie dans le péché. 26Car, estimait-il, subir l’humiliation que Christ devait connaître constituait une richesse bien supérieure aux trésors de l’Egypte : il avait, en effet, les yeux fixés sur la récompense à venir.
-
-27Par la foi, il a quitté l’Egypte sans craindre la fureur du roi et il est resté ferme, en homme qui voit le Dieu invisible. 28Par la foi, il a célébré la Pâque et a fait répandre du sang sur les linteaux des portes pour que l’ange exterminateur ne touche pas les fils aînés des Israélites.
-
-29Par la foi, les Israélites ont traversé la mer Rouge comme une terre sèche ; alors que les Egyptiens, qui ont essayé d’en faire autant, ont été engloutis.
-
-30Par la foi, les murailles de Jéricho se sont écroulées quand le peuple en eut fait le tour pendant sept jours.
-
-31Par la foi, Rahab la prostituée n’est pas morte avec ceux qui étaient désobéissants envers Dieu, parce qu’elle avait accueilli avec bienveillance les Israélites envoyés en éclaireurs.
-
-32Que dirai-je encore ? Le temps me manquerait pour parler en détail de Gédéon, de Baraq, de Samson, de Jephté, de David, de Samuel et des prophètes. 33Grâce à la foi, ils ont remporté la victoire sur des royaumes, exercé la justice, obtenu la réalisation de promesses, fermé la gueule des lions. 34Ils ont éteint des feux violents, ont échappé au tranchant de l’épée. Ils ont été remplis de force alors qu’ils étaient faibles. Ils se sont montrés vaillants dans les batailles, ils ont mis en fuite des armées ennemies ; 35des femmes ont vu leurs morts ressusciter pour leur être rendus.
-
-D’autres, en revanche, ont été torturés ; ils ont refusé d’être délivrés, afin d’obtenir ce qui est meilleur : la résurrection. 36D’autres encore ont enduré les moqueries, le fouet, ainsi que les chaînes et la prison. 37Certains ont été lapidés, d’autres ont été torturés, sciés en deux ou mis à mort par l’épée. D’autres ont mené une vie errante, vêtus de peaux de moutons ou de chèvres, dénués de tout, persécutés et maltraités, 38eux dont le monde n’était pas digne. Ils ont erré dans les déserts et sur les montagnes, vivant dans les cavernes et les antres de la terre.
-
-39Dieu a approuvé tous ces gens à cause de leur foi, et pourtant, aucun d’eux n’a reçu ce qu’il leur avait promis. 40C’est que Dieu avait prévu quelque chose de meilleur pour nous : ils ne devaient donc pas parvenir sans nous à la perfection.
+5) Par la foi, [[Hénok|Hénok]] a été enlevé auprès de [[Dieu|Dieu]] pour échapper à la mort et *[[Genèse#Chapitre 5|on ne le trouva plus, parce que Dieu l’avait enlevé]]*. En effet, avant de nous parler de son enlèvement, l’[[Ancien Testament|Ecriture]] lui rend ce témoignage : *[[Genèse#Chapitre 5|il était agréable à Dieu]]*.
+6) Or, sans la foi, il est impossible de [[Dieu|lui]] être agréable. Car celui qui s’approche de [[Dieu|Dieu]] doit croire qu’[[Dieu|il]] existe et qu’[[Dieu|il]] récompense ceux qui se tournent vers [[Dieu|lui]].
+7) Par la foi, [[Noé|Noé]] a construit un bateau pour sauver sa famille : il avait pris au sérieux la révélation qu’il avait reçue au sujet d’événements qu’on ne voyait pas encore. En agissant ainsi, il a condamné le monde. Et [[Dieu|Dieu]] [[Noé|lui]] a accordé d’être déclaré juste en raison de sa foi.
+8) Par la foi, [[Abraham|Abraham]] a obéi à l’appel de [[Dieu|Dieu]] qui lui ordonnait de partir pour un pays qu’il devait recevoir plus tard en héritage. Il est parti sans savoir où il allait.
+9) Par la foi, [[Abraham|il]] a séjourné en étranger dans le pays qui lui avait été promis, vivant sous des tentes, de même qu’[[Isaac|Isaac]] et [[Jacob|Jacob]] qui sont héritiers avec [[Abraham|lui]] de la même promesse.
+10) Car il attendait la cité aux fondements inébranlables dont [[Dieu|Dieu]] lui-même est l’architecte et le constructeur.
+11) Par la foi, [[Sarah|Sara]], elle aussi, qui était stérile, a été rendue capable de devenir mère alors qu’elle en avait depuis longtemps passé l’âge. En effet, elle était convaincue que [[Dieu|celui]] qui avait fait la promesse est fidèle.
+12) C’est pourquoi aussi, d’un seul homme – plus encore : d’un homme déjà marqué par la mort – sont issus des descendants *[[Genèse#Chapitre 15|aussi nombreux que les étoiles du ciel et que les grains de sable qu’on ne saurait compter sur le rivage de la mer]]*.
+13) C’est dans la foi que tous ces gens sont morts sans avoir reçu ce qui leur avait été promis. Mais ils l’ont vu et salué de loin, et ils ont reconnu qu’ils étaient eux-mêmes étrangers et voyageurs sur la terre.
+14) Ceux qui parlent ainsi montrent clairement qu’ils recherchent une patrie.
+15) En effet, s’ils avaient eu la nostalgie de celle qu’ils avaient quittée, ils auraient eu l’occasion d’y retourner.
+16) En fait, c’est une meilleure patrie qu’ils désirent, c’est-à-dire la patrie céleste. Aussi [[Dieu|Dieu]] n’a pas honte d’être appelé « leur Dieu », et [[Dieu|il]] leur a préparé une cité.
+17) Par la foi, [[Abraham|Abraham]] a offert [[Isaac|Isaac]] lorsque [[Dieu|Dieu]] l’a mis à l’épreuve. Oui, [[Abraham|il]] était en train d’offrir [[Abraham|son]] [[Isaac|fils unique]], lui qui avait eu la promesse,
+18) et à qui [[Dieu|Dieu]] avait dit : *[[Genèse#Versets 8 à 21|C’est par Isaac que te sera suscitée une descendance]]*.
+19) [[Dieu|Dieu]], estimait-il, est assez puissant pour ressusciter un mort. Et son fils lui a été rendu : c’est une préfiguration.
+20) Par la foi aussi, [[Isaac|Isaac]] a béni [[Jacob|Jacob]] et [[Esaü|Esaü]], en vue de l’avenir.
+21) Par la foi, [[Jacob|Jacob]] a béni, peu avant sa mort, chacun des fils de [[Joseph|Joseph]] et s’est prosterné pour adorer [[Dieu|Dieu]], en prenant appui sur l’extrémité de son bâton.
+22) Par la foi, [[Joseph|Joseph]], à la fin de sa vie, a évoqué la sortie d’[[Egypte|Egypte]] des descendants d’[[Israël|Israël]], et a donné des instructions au sujet de ses ossements.
+23) Par la foi, [[Moïse|Moïse]], après [[Moïse|sa]] naissance, a été tenu caché pendant trois mois par ses parents, car en voyant combien cet enfant était beau, ils ne se sont pas laissés intimider par le décret du [[Pharaon|roi]].
+24) Par la foi, [[Moïse|Moïse]], devenu adulte, a refusé d’être reconnu comme le fils de la fille du [[Pharaon|pharaon]].
+25) Il a choisi de prendre part aux souffrances du peuple de [[Dieu|Dieu]] plutôt que de jouir – momentanément – d’une vie dans le péché.
+26) Car, estimait-il, subir l’humiliation que [[Jésus|Christ]] devait connaître constituait une richesse bien supérieure aux trésors de l’[[Egypte|Egypte]] : il avait, en effet, les yeux fixés sur la récompense à venir.
+27) Par la foi, [[Moïse|il]] a quitté l’[[Egypte|Egypte]] sans craindre la fureur du [[Pharaon|roi]] et il est resté ferme, en homme qui voit le [[Dieu|Dieu]] invisible.
+28) Par la foi, [[Moïse|il]] a célébré la Pâque et a fait répandre du sang sur les linteaux des portes pour que l’ange exterminateur ne touche pas les fils aînés des [[Israël|Israélites]].
+29) Par la foi, les [[Israël|Israélites]] ont traversé la [[Mer Rouge|mer Rouge]] comme une terre sèche ; alors que les [[Egypte|Egyptiens]], qui ont essayé d’en faire autant, ont été engloutis.
+30) Par la foi, les murailles de [[Jéricho|Jéricho]] se sont écroulées quand le peuple en eut fait le tour pendant sept jours.
+31) Par la foi, [[Rahab|Rahab]] la prostituée n’est pas morte avec ceux qui étaient désobéissants envers [[Dieu|Dieu]], parce qu’[[Rahab|elle]] avait accueilli avec bienveillance les [[Israël|Israélites]] envoyés en éclaireurs.
+32) Que dirai-je encore ? Le temps me manquerait pour parler en détail de [[Gédéon]], de [[Baraq|Baraq]], de [[Samson|Samson]], de [[Jephté|Jephté]], de [[David|David]], de [[Samuel|Samuel]] et des prophètes.
+33) Grâce à la foi, ils ont remporté la victoire sur des royaumes, exercé la justice, obtenu la réalisation de promesses, fermé la gueule des lions.
+34) Ils ont éteint des feux violents, ont échappé au tranchant de l’épée. Ils ont été remplis de force alors qu’ils étaient faibles. Ils se sont montrés vaillants dans les batailles, ils ont mis en fuite des armées ennemies ;
+35) des femmes ont vu leurs morts ressusciter pour leur être rendus.
+    D’autres, en revanche, ont été torturés ; ils ont refusé d’être délivrés, afin d’obtenir ce qui est meilleur : la résurrection.
+36) D’autres encore ont enduré les moqueries, le fouet, ainsi que les chaînes et la prison.
+37) Certains ont été lapidés, d’autres ont été torturés, sciés en deux ou mis à mort par l’épée. D’autres ont mené une vie errante, vêtus de peaux de moutons ou de chèvres, dénués de tout, persécutés et maltraités,
+38) eux dont le monde n’était pas digne. Ils ont erré dans les déserts et sur les montagnes, vivant dans les cavernes et les antres de la terre.
+39) [[Dieu|Dieu]] a approuvé tous ces gens à cause de leur foi, et pourtant, aucun d’eux n’a reçu ce qu’il leur avait promis.
+40) C’est que [[Dieu|Dieu]] avait prévu quelque chose de meilleur pour nous : ils ne devaient donc pas parvenir sans nous à la perfection.
 ## Chapitre 12
 ### Versets 1 à 13
 Intitulé **Courir avec endurance** par [[Bible#^358f23|BDS]]
