@@ -34,6 +34,13 @@
         "a": 1,
         "rgb": 3884766
       }
+    },
+    {
+      "query": "path:Définitions  ",
+      "color": {
+        "a": 1,
+        "rgb": 6084269
+      }
     }
   ],
   "collapse-display": false,
@@ -46,6 +53,6 @@
   "repelStrength": 10,
   "linkStrength": 1,
   "linkDistance": 201,
-  "scale": 1.3559530141065954,
-  "close": true
+  "scale": 0.17856171379181557,
+  "close": false
 }

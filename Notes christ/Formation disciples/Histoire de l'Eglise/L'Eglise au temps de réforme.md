@@ -1,32 +1,43 @@
 Apporté par Lucas le 02/05/2025, qui fait suite à [[L'Eglise primitive jusqu'avant la réforme]]
-## Contexte
-### 1 Église avant réforme
-Pouvoir politique incontesté en Europe, soumission papale.
--> monarchies de droits divin
-Très grand contrôle des terres et richesses par l'église.
-Pouvoir judiciaire car tout le monde DOIT être fidèle. Sinon, excommunions (pression sociale).
-L'église détenait le savoir (lecture, prix de l'enseignement etc) et est le précepte de l'école, et des courants artistiques de l'époque.
-Début des traductions, car la Bible était basé sur qu'une seule traduction de l'antiquité en grecque dont personne n'osait traduire pendant plusieurs siècles.
-### 2 Renaissance et humanisme
-1492-1610
-Les savoirs viennent d'ailleurs que l'église.
-Le classicisme pousse vers les textes de l'antiquité (pas que de la [[Bible]]).
--> les textes d'origines de la [[Bible]] avaient été délaissés jusque là
-Humanisme : bonté envers l'humain, où le but est de rendre tout le plus accessible possible, dont la [[Bible]]
-La vie de foi était extrêmement complexe
-### 3 indulgences systématiques
-Indulgences (de l'époque) : pèlerinages et dons (souffrances infligées) pour pardonner des péchés
-Concept de purgatoire apporté :
-- pas mentionné dans la Bible
-- dénie le concept de l'enfer 
-Les indulgences réduisent le temps dans le purgatoire.
-L'église catholique n'a jamais reconnu, car ça a été décidé par des papes, et leurs décisions ne sont pas contestables.
-### 4 Technologie
+## 1 - Contexte
+### 1.1 Pouvoir de l'Église avant la réforme
+L'Eglise a un pouvoir politique incontesté en Europe, et cela s'illustre notamment par :
+- soumission papale de son organisation et d'une grande partie du continent
+- monarchies de droits divin
+- très grand contrôle des terres et richesses par l'église.
+- Pouvoir judiciaire car tout le monde DOIT être fidèle. Sinon, excommunions (pression sociale)
+- Détenteur du savoir (lecture, prix de l'enseignement etc)
+	- Contrôle de l'ancêtre des écoles
+	- Contrôle presque complet des courants artistiques
+
+Mais cette période c'est le début des traductions de la [[Bible]]
+-> Jusque là la [[Bible]] était basée sur qu'une seule traduction de l'antiquité en grecque dont personne n'osait traduire pendant plusieurs siècles.
+### 1.2 Renaissance et humanisme
+```
+Période : 1492-1610
+```
+Ce qui change :
+- Les savoirs viennent d'ailleurs que l'église
+- Le classicisme pousse vers les textes antiques
+	- Avantage : A savoir que les textes d'origines de la [[Bible]] avaient été délaissés jusque là
+	- Conséquence : Ce mouvement pousse aussi vers les textes antiques autre que la [[Bible]] (exemple : littérature grecque)
+![[Humanisme]]
+### 1.3 indulgences systématiques
+2 concepts introduits :
+- [[Indulgences]]
+- [[Purgatoire]]
+![[Indulgences]]
+
+![[Purgatoire]]
+
+L'église catholique n'a jamais reconnu les indulgences, car ça a été décidé par des papes, et leurs décisions ne sont pas contestables.
+### 1.4 Technologie
+
 L'imprimerie en 1450 permet la diffusion de la [[Bible]] en langue locale à moindre coup.
 Ça intéresse la population, ce qui mène à une vague d'alphabétisation.
 Période missionnaire relancée avec la découverte de les Amériques.
 Réseaux de communication plus performantes (universités, routes commerciales) donc meilleure diffusion.
-### 5 Politique
+### 1.5 Politique
 Les politiques en ont marres du Pape, qui de plus est influencé par le saint empire germanique.
 François 1er a pris le contrôle de l'église en France au Concordat de Bologne (1516) pour reprendre les terres.
 

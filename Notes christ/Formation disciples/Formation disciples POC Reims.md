@@ -7,7 +7,7 @@ Cette note sera un peu un hub de toutes les notes qui seront liées à ces sessi
 Le premier thème porte sur l'histoire de l'[[Eglise]] :
 - Partie 1 : [[L'Eglise primitive jusqu'avant la réforme]]
 	- Echelle de temps : `~30 à 1517`
-- Partie 2 : Réforme de 1517 et la révolution française
+- Partie 2 : [[L'Eglise au temps de réforme]]
 	- Echelle de temps : `1517 à ?`
 #### L'intérêt de l'histoire de l'Eglise
 ()
