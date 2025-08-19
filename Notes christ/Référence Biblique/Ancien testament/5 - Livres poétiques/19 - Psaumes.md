@@ -505,6 +505,69 @@ Intitulé **Le Roi-Prêtre** par [[Bible#^358f23|BDS]]
    il écrase des chefs ╵de par la terre entière.
 7) En chemin, le roi s’abreuve au torrent,
    puis relève la tête.
+## Chapitre 118
+Intitulé **[[Dieu|Son]] amour est éternel** par [[Bible#^358f23|BDS]]
+
+1) Célébrez l’[[Dieu|Eternel]], ╵car il est bon,
+   car son amour dure à toujours !
+2) Proclamez-le, ╵habitants d’[[Israël|Israël]] :
+   « Oui, [[Dieu|son]] amour dure à toujours ! »
+3) Proclamez-le, ╵descendants d’[[Aaron|Aaron]] :
+   « Oui, [[Dieu|son]] amour dure à toujours ! »
+4) Proclamez-le, ╵vous tous qui craignez l’[[Dieu|Eternel]] :
+   « Oui, [[Dieu|son]] amour dure à toujours ! »
+5) Du fond de ma détresse, ╵j’ai fait appel à l’[[Dieu|Eternel]],
+   et [[Dieu|il]] m’a répondu ╵en me faisant échapper au danger.
+6) L’[[Dieu|Eternel]] est pour moi, ╵je n’aurai pas de crainte,
+   que me feraient les hommes  ?
+7) L’[[Dieu|Eternel]] est pour moi, ╵il vient à mon secours.
+   Je peux donc regarder en face ╵tous ceux qui me haïssent.
+8) Mieux vaut se réfugier ╵auprès de l’[[Dieu|Eternel]]
+   que de compter sur les humains.
+9) Mieux vaut avoir recours ╵à l’[[Dieu|Eternel]],
+   que de compter ╵sur les grands de ce monde.
+10) J’étais encerclé de partout ╵par tous les peuples ennemis,
+    mais grâce à l’[[Dieu|Eternel]], ╵je les ai massacrés.
+11) Ils m’enserraient de plus en plus ;
+    mais, grâce à l’[[Dieu|Eternel]], ╵je les ai massacrés.
+12) Ils m’avaient encerclé ╵comme un essaim d’abeilles,
+    mais ils se sont éteints ╵comme un feu de broussailles ;
+    oui, grâce à l’[[Dieu|Eternel]], ╵je les ai massacrés.
+13) On m’a violemment bousculé ╵pour me faire tomber,
+    mais l’[[Dieu|Eternel]] m’a secouru.
+14) L’[[Dieu|Eternel]] est ma force, ╵il est le sujet de mes chants  ;
+    [[Dieu|il]] m’a sauvé.
+15) Des cris de joie, des cris de délivrance éclatent, ╵dans les tentes des justes !
+    Car l’[[Dieu|Eternel]] agit avec puissance,
+16) l’[[Dieu|Eternel]] lève la main pour intervenir,
+    oui l’[[Dieu|Eternel]] agit avec puissance.
+17) Non, je ne mourrai pas, ╵je resterai en vie
+    et je raconterai ╵ce que fait l’[[Dieu|Eternel]] !
+18) L’[[Dieu|Eternel]] m’a châtié ╵avec sévérité,
+    mais sans me livrer à la mort.
+19) Ouvrez-moi les portes de la justice
+    pour que je puisse entrer ╵et louer l’[[Dieu|Eternel]].
+20) C’est ici qu’est la porte ╵qui mène à l’[[Dieu|Eternel]] ;
+    les justes passeront par elle.
+21) Je [[Dieu|te]] célèbre ╵car [[Dieu|tu]] m’as exaucé,
+    car [[Dieu|tu]] as été mon sauveur.
+22) La pierre que les constructeurs ╵ont rejetée
+    est devenue ╵la pierre principale, ╵la pierre d’angle.
+23) C’est bien de l’[[Dieu|Eternel]] ╵que cela est venu,
+    et c’est un prodige à nos yeux.
+24) C’est là le jour ╵que l’[[Dieu|Eternel]] a fait ;
+    vivons-le dans la joie, ╵exultons d’allégresse !
+25) De grâce, ô [[Dieu|Eternel]], ╵accorde le salut  !
+    De grâce, ô [[Dieu|Eternel]], ╵accorde la victoire !
+26) Oui, béni soit celui qui vient ╵au nom de l’[[Dieu|Eternel]] !
+    Nous vous bénissons tous ╵de la maison de l’[[Dieu|Eternel]]  !
+27) L’[[Dieu|Eternel est Dieu]] et [[Dieu|il]] nous éclaire.
+    Entrez dans le cortège, ╵des rameaux dans les mains,
+    allez jusqu’aux coins de l’autel.
+28) Tu es mon [[Dieu|Dieu]], je te louerai,
+    je t’exalterai, ô mon [[Dieu|Dieu]] !
+29) Célébrez l’[[Dieu|Eternel]], ╵car il est bon,
+    car son amour dure à toujours !
 ## Chapitre 139
 Intitulé **[[Dieu|Seigneur]], tu sais tout de [[David|moi]]** par [[Bible#^358f23|BDS]]
 

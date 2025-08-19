@@ -30,7 +30,7 @@ Ce qui change :
 
 ![[Purgatoire]]
 
-L'église catholique n'a jamais reconnu les indulgences, car ça a été décidé par des papes, et leurs décisions ne sont pas contestables.
+L'église catholique n'a jamais reconnu les indulgences, car ça a été décidé par des [[Pape|papes]], et leurs décisions ne sont pas contestables.
 ### 1.4 Technologie
 Les avancées technologiques permettent une meilleure diffusion de la [[Bible]] ainsi que de l'évangile :
 - L'imprimerie dès 1450 permet la diffusion de la [[Bible]] en langue locale à moindre coup
@@ -38,61 +38,72 @@ Les avancées technologiques permettent une meilleure diffusion de la [[Bible]] 
 - Vague missionnaire relancée avec la découverte des Amériques
 - Réseaux de communication plus performantes (universités, routes commerciales)
 ### 1.5 Politique
-Les politiques en ont marres du Pape, qui de plus est influencé par le saint empire germanique.
-François 1er a pris le contrôle de l'église en France au Concordat de Bologne (1516) pour reprendre les terres.
+Certains politiques en ont marre de l'influence du [[Pape]] dans les affaires des royaumes, qui lui même est de plus est influencé par le [[Saint-Empire Romain Germanique]].
+Conséquence, 2 types de nations :
+- Ceux qui ont acceptés le pouvoir du [[Pape]] :
+	- [[Saint-Empire Romain Germanique]] et les peuples germains dans leur ensemble
+	- Les peuples nordiques (et scandinaves)
+- Ceux qui ont refusés le pouvoir du [[Pape]] :
+	- [[François 1er]] a pris le contrôle de l'église en [[France]] au Concordat de Bologne (1516) pour reprendre les terres
+		- ça a causé beaucoup de tensions entre la [[France]] et le [[Saint-Empire Romain Germanique]]
+	- L'[[UK|Angleterre]] beaucoup plus tard (développé dans la suite de cette note)
+## 2 - Réforme de [[Martin Luther|Luther]]
+### 2.1 Réforme basée sur la Parole
+A savoir que les idées de la réforme était une tendance de l'époque, mais pas pris sérieusement tant qu'elles ne venaient pas d'un membre de l'Eglise. C'est pourquoi on attribue la réforme à [[Martin Luther]] puisse qu'il est le premier religieux à s'être positionné contre les principe de l'église catholique.
 
-Les pays germains et scandinaves ont grandement acceptés 
-## 2 - Réforme de Luther
-### 1 Réforme basée sur la parole
-La réforme était en tendance, mais personne n'était légitime tant qu'il n'y a pas quelqu'un qui vient de l'église. Ce qui n'est pas le cas de Luther.
-Luther affiche 95 thèses sur des portes et places publiques en développant 4 idées principales :
-- Romains 1:17 : les indulgences sont contraires à la Bible (sans l'église pas de salut)
-- Ephesiens 2:8-9 les indulgences servent à rien
-- Matthieu 4:17 être chrétien est quelque chose qui se devient, on ne l'est pas automatiquement, et ça se fait par la repentance
-- actes 4:12 seul [[Jésus]] sauvé, et non les gens de l'église, ce qui remet en cause le pouvoir des sacres et l'autorité du Pape
--> comme le Pape est le représentant sur Terre selon la Bible, c'était lui qui devait pardonner, ou ses vassaux
-> Scandale papaux en parallèle
-### 2 Répercussions des thèses
-Beaucoup de personnes étaient pour Luther pour éviter les indulgences.
-La foi devient un engagement personnel.
-Luther met en avant que seul la [[Bible]] compte, et non pas la tradition (contrairement au catholicisme qui a la [[Bible]] comme base mais les traditions importes plus que tout)
+A savoir que :
+- [[Martin Luther]] ne voulait pas créer un courant théologique contraire à l'église catholique, mais de réformer celle ci
+- [[Martin Luther]] était un prêtre catholique, mais n'était pas converti. Il a eut pour la fun fact le discernement du [[Saint-Esprit]], ce qui lui a mené à faire ces actions, en lisant le livre [[6 - Romains]]
 
-Luther s'est converti au travers du discernement du [[Saint-Esprit]] en lisant [[6 - Romains]]
+En effet, [[Martin Luther]] affiche 95 thèses sur des portes et places publiques en développant 4 idées principales :
+- [[6 - Romains#Versets 16 à 17|Romains 1:17]] : les [[Indulgences]] sont contraires à la [[Bible]]
+- [[10 - Ephésiens#Versets 1 à 10|Ephesiens 2:8-9]] : les [[Indulgences]] ne servent à rien
+- [[1er Evangile - Matthieu#Versets 12 à 25|Matthieu 4:17]] : être chrétien est quelque chose qui se devient, on ne l'est pas automatiquement, et ça se fait **par la repentance**
+- [[Actes#Versets 1 à 22|Actes 4:12]] : ==seul [[Jésus]] sauve==, et non les gens de l'Eglise, ce qui **remet en cause** le pouvoir des sacres (monarchies droits divins) et **l'autorité du [[Pape]]**
+	- comme le [[Pape]] est le représentant sur Terre selon l'église catholique, c'était lui qui devait pardonner, ou ses vassaux
+> Scandale [[Pape|papaux]] en parallèle de ces histoires
+### 2.2 Répercussions des thèses
+- Beaucoup de supports à [[Martin Luther|Luther]] majoritairement pour éviter les [[Indulgences]]
+- La foi devient un engagement personnel
 
-1520 Pape Léon X : menace Luther d'excommunication par une lettre. Luther brûle sa menace 
-1521 Diète de Worms : Charles Quint essaie de contrôler Luther, mais finalement dévient hors la loi
-Frédéric de Saxe le protège, et Luther traduit la Bible en allemand
+[[Martin Luther|Luther]] met en avant que **seul la [[Bible]] compte**, et non pas la tradition (contrairement au catholicisme qui a la [[Bible]] comme base mais les traditions importes plus que tout)
+-> Plus développé plus tard dans cette note à propos de ce qu'est le Luthéranisme
 
-Pov croyants :
-Réprimande catholique (inquisitions).
-Quelques princes protestants dans les peuples germains, pour attirer les élites.
-Plusieurs guerres civiles.
-Paix d'Augsbourg ou Westfalli : tolérance protestantisme au Saint Empire germanique 1555
-### 3 Luthéranisme
+Enchaînement des événements :
+- 1520 : [[Pape|Pape]] Léon X menace [[Martin Luther|Luther]] d'excommunication par une lettre. [[Martin Luther|Luther]] brûle sa menace
+- 1521 "Diète de Worms" : Charles Quint (dirigeant du [[Saint-Empire Romain Germanique]]) essaie de contrôler [[Martin Luther|Luther]], mais finalement rend [[Martin Luther|Luther]] hors la loi
+- Frédéric de [[Saxe]] [[Martin Luther|le]] protège, et [[Martin Luther|Luther]] a profité de ce temps pour traduire la [[Bible|Bible]] en [[Allemagne#L'allemand (langue)|allemand]]
+- 1555 : Paix d'Augsbourg (ville en [[Westphalie]]) : tolérance du protestantisme dans le [[Saint-Empire Romain Germanique]]
+
+Conséquences du point de vue croyants :
+- Réprimande catholique (inquisitions)
+- Quelques princes [[Allemagne#L'allemand (langue)|allemands]] deviennent protestants pour attirer les élites
+- Plusieurs guerres civiles
+### 2.3 Luthéranisme
 Luther a été contraint de quitter l'église catholique, ce qui a créé des mouvements en Europe centrale et du nord.
 Principes :
 - sola scriptura : [[Bible]] est la seule source d'autorité religieuse
 - sola fide : salut s'obtient par la foi seule
 - sola gratia : la grâce de [[Dieu]] permet d'être sauvé
 - rejet de l'autorité papale, car il ne doit pas y avoir d'intermédiaire avec [[Dieu]]
-## Réforme calvaniste
-### 1 Zwingli
+## 3 - Réforme calvaniste
+### 3.1 Zwingli
 En parallèle de Luther, Zwingli (origine suisse) : colloque de Marbourg en 1529 pour essayer de collaborer, mais à cause d'1 point il n'y a pas d'entraide
 Zwingli va être à l'origine de l'église réformée, repris par Calvin.
 
 Impact surtout en Suisse et Alpes françaises.
-### 2 Église réformée
+### 3.2 Église réformée
 Prédestination absolue : [[Dieu]] choisi en avance qui est sauvé, donc il y a selon ce courant des personnes définitivement perdues, ce qui omet le libre arbitre (problématique amoindrie dans d'autres traductions)
 Simplicité du culte (là où les statues ornements etc sont courantes dans les autres courants)
 Gouvernance ecclésiastique : remise en place du précepte du berger (pasteur), donc celui qui guide mais qui n'est pas un intermédiaire avec [[Dieu]]
 Discipline stricte pour être des témoins dans la société.
-### 3 Divergences Luthéranisme
+### 3.3 Divergences Luthéranisme
 Divergences qui défini leur vie de foi, principalement sur la doctrine du salut (foi contre prédestination)
 Point non accord la cène : Luther voyais une transfiguration de [[Jésus]] soit le fait de le re-sacrifier, tandis que l'église réformée vois ça comme un devoir de mémoire.
-### 4 Protestantisme en France
+### 3.4 Protestantisme en France
 Les protestants étaient surtout présents dans l'est de la France avec Guillaume Farel dans le Grand Est et Calvin au Sud Est.
 Huguenots : protestants calvinistes qui prennent les , ce qui Saint-Barthelemie en 1572 suivi de la révocation de l'édit de Nantes en 1685
-## Réforme anglicane
+## 4 - Réforme anglicane
 ### Contexte politique
 Henry VIII monarque aux 6 épouses se défini catholique et grand défenseur de la foi par le Pape car démonstrations contre Luther.
 Concurrent culturel à François 1er.
@@ -123,7 +134,7 @@ Marie (Bloody Marie) est revenue au pouvoir par des conservateurs catholiques. E
 
 Elisabeth 1ere fait l'église anglicane qui est un compromis entre protestantisme et catholicisme.
 Persécutions pour tout ceux qui n'accepte pas ça, en particulier ceux qui voulaient une fois plus simple, ce qui mène aux migrations pour les colonies américaines.
-## Réforme anabaptiste
+## 5 - Réforme anabaptiste
 ### Contexte
 1525 Zurich mouvement radicale pour être différent des catholiques mais par la violence, ce qui mène à la révolte de Munster 1534-1535
 > Persécuté par l'église réformée et les luthériens
@@ -134,12 +145,12 @@ Confession de Schleitheim qui rejette enfin la violence, ce qui engendre beaucou
 Mode de vie assez stricte voir secteur, mais toujours pas le renouveau du POV du [[Saint-Esprit]]
 
 Grande perte de savoir technique de la France vers les USA
-## Contre-Réforme
-### 1 Contexte
+## 6 - Contre-Réforme
+### 6.1 Contexte
 Faire face à l'église protestante, l'église catholique se réforme pour reimposer sa légitimité.
 Concile de Trente (1545-1563) pour réaffirmer les écritures de la [[Bible]] et les apocryphes.
 Les prêtres sont mieux formés pour essayer d'éviter de reproduire la corruption et des cas comme Luther.
-### 2 Ordres religieux
+### 6.2 Ordres religieux
 Jésuite
 1534 par Ignace et Loyola
 Défenseurs catholiques et missionnaires
@@ -148,9 +159,9 @@ Capucins, carmélites réformés, oratoriens etc cherchent une fois plus sincèr
 Lassaliens mets en place les écoles catholiques en gros.
 > Le but est que même les non religieux soient convaincus du catholicisme
 > Car selon eux, on est sauvé par la Sainte Église (d'où leur nom), et non par [[Jésus]]
-### 3 Inquisitions et censure
+### 6.3 Inquisitions et censure
 Accès à la Bible est toujours restreint : l'église faisait croire que la [[Bible]] était trop complexe à comprendre pour ceux qui n'étaient pas du clergé.
-## Courant des lumières
+## 7 - Courant des lumières
 ### Contexte
 Éloge de la raison et critique de la foi et l'église : guerre idéologique nourrit sur les erreurs de l'église catholique
 Tout est remis en cause.

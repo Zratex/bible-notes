@@ -4,7 +4,7 @@ Lettre de [[Paul]] envers les [[Romains]]
 Intitulé **Le résumé de l'[[Note sur l'évangile|Evangile]]** par [[Bible#^358f23|BDS]] :
 
 16) Car je n’ai pas honte de l’[[Note sur l'évangile|Evangile]] : c’est la puissance de [[Dieu]] par laquelle il sauve tous ceux qui croient, les Juifs en premier lieu et aussi les non-Juifs.
-17) En effet, cet [[Note sur l'évangile|Evangile]] nous révèle en quoi consiste la justice que [[Dieu]] accorde : elle est reçue par la foi et rien que par la foi, comme il est dit dans l’Ecriture : *Le juste vivra grâce à la foi*
+17) En effet, cet [[Note sur l'évangile|Evangile]] nous révèle en quoi consiste la justice que [[Dieu]] accorde : elle est reçue par la foi et rien que par la foi, comme il est dit dans l’[[Ancien Testament|Ecriture]] : *[[35 - Habakuk#Versets 1 à 4|Le juste vivra grâce à la foi]]*
 ## Chapitre 5
 Intitulé **La vie nouvelle en [[Jésus|Christ]], par l’[[Saint-Esprit|Esprit]]** par [[Bible#^358f23|BDS]]
 ### Versets 1 à 11

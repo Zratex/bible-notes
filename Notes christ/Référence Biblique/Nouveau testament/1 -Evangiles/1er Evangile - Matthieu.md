@@ -22,6 +22,30 @@ Intitulé **Généalogie de [[Jésus|Jésus-Christ]]** par [[Bible#^4cfe93|LSG]]
 15) Éliud engendra Éléazar; Éléazar engendra Matthan; Matthan engendra Jacob;
 16) Jacob engendra [[Joseph de Nazareth|Joseph]], l’époux de [[Marie|Marie]], de laquelle est né [[Jésus|Jésus]], qui est appelé [[Jésus|Christ]].
 17) Il y a donc en tout quatorze générations depuis [[Abraham|Abraham]] jusqu’à [[David|David]], quatorze générations depuis [[David|David]] jusqu’à la déportation à [[Babylone|Babylone]], et quatorze générations depuis la déportation à [[Babylone|Babylone]] jusqu’au [[Jésus|Christ]].
+## Chapitre 4
+### Versets 12 à 25
+Intitulé **[[Jésus]] à [[Capharnaüm|Capernaüm]] et en [[Galilée|Galilée]]** par [[Bible#^358f23|BDS]]
+
+12) Quand [[Jésus|Jésus]] apprit que [[Jean Baptiste|Jean]] avait été emprisonné, [[Jésus|il]] se retira en [[Galilée|Galilée]],
+13) mais [[Jésus|il]] ne resta pas à [[Nazareth|Nazareth]]. Il alla s’établir à [[Capharnaüm|Capernaüm]], une ville située au bord [[Galilée|du lac]], dans les territoires de [[Zabulon|Zabulon]] et de [[Nephthali|Nephtali]].
+14) Ainsi s’accomplit cette parole du prophète [[Esaïe|Esaïe]] qui avait annoncé :
+15) *[[23 - Esaïe#Verset 23|Ecoute, ô toi, terre de Zabulon ╵et toi, terre de Nephtali,]]*
+    *[[23 - Esaïe#Verset 23|route de la mer, ╵située au-delà du Jourdain,]]*
+    *[[23 - Esaïe|ô toi, Galilée des populations étrangères :]]*
+16) *[[23 - Esaïe#Versets 1 à 4|Le peuple qui vivait dans les ténèbres]]*
+    *[[23 - Esaïe#Versets 1 à 4|a vu briller une grande lumière,]]*
+    *[[23 - Esaïe#Versets 1 à 4|et sur ceux qui habitaient dans le pays]]*
+    *[[23 - Esaïe#Versets 1 à 4|sur lequel planait l’ombre de la mort,]]*
+    *[[23 - Esaïe#Versets 1 à 4|une lumière s’est levée.]]*
+17) A partir de ce moment, [[Jésus|Jésus]] commença à prêcher en public en disant : **Changez, car le royaume des cieux est proche.**
+18) Un jour qu’[[Jésus|il]] marchait au bord du [[Galilée|lac de Galilée]], il vit deux frères : [[Simon Pierre|Simon]] (qu’on appelle aussi [[Simon Pierre|Pierre]]), et [[André|André]], [[Simon Pierre|son]] frère, qui lançaient un filet dans [[Galilée|le lac]], car ils étaient pêcheurs.
+19) [[Jésus|Il]] leur dit : **Suivez-moi et [[Jésus|je]] ferai de vous des pêcheurs d’hommes.**
+20) Ils abandonnèrent aussitôt leurs filets et [[Jésus|le]] suivirent.
+21) Poursuivant [[Jésus|son]] chemin, [[Jésus|il]] vit deux autres frères : [[Jacques (apôtre)|Jacques]], fils de [[Zébédée|Zébédée]], et [[Jean|Jean]], [[Jacques (apôtre)|son]] frère. Ils étaient dans leur bateau avec [[Zébédée|Zébédée]], leur père, et ils réparaient leurs filets. [[Jésus|Il]] les appela
+22) et, aussitôt, ils laissèrent leur bateau, quittèrent [[Zébédée|leur père]], et [[Jésus|le]] suivirent.
+23) [[Jésus|Jésus]] parcourait toute la [[Galilée|Galilée]], [[Jésus|il]] enseignait dans les synagogues, proclamait la bonne nouvelle du royaume des cieux et guérissait les gens de toutes maladies et de toutes infirmités.
+24) Bientôt, on entendit parler de [[Jésus|lui]] dans toute la [[Syrie|Syrie]]. On [[Jésus|lui]] amena tous ceux qui étaient atteints de diverses maladies et souffraient de divers maux : ceux qui étaient sous l’emprise de démons ainsi que des épileptiques et des paralysés, et [[Jésus|il]] les guérit tous.
+25) Des foules nombreuses se mirent à [[Jésus|le]] suivre ; elles étaient venues de la [[Galilée|Galilée]], de la [[Décapole|région des « Dix Villes »]], de [[Jérusalem|Jérusalem]], de la [[Judée|Judée]] et du territoire transjordanien.
 ## Chapitre 5
 Première partie de ce qui est appelé le "serment sur la montage " par [[Jésus]]
 ### Versets 1 et 2

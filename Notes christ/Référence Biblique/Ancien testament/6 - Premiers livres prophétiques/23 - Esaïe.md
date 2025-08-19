@@ -1,4 +1,27 @@
 Livre rédigé par [[Esaïe]]
+## Chapitre 8
+### Verset 23
+Intitulé **Des ténèbres à la lumière** par [[Bible#^358f23|BDS]]
+
+23) Mais les ténèbres ne régneront pas à toujours sur ce pays envahi par l’angoisse. Si, dans les temps passés, [[Dieu|Dieu]] a couvert d’opprobre tout le pays de [[Zabulon|Zabulon]] et le pays de [[Nephthali|Nephtali]], dans les temps à venir, il couvrira de gloire la route de la mer, au-delà du [[Jourdain|Jourdain]], la [[Galilée|Galilée]] des populations étrangères.
+## Chapitre 9
+### Versets 1 à 4
+1) Le peuple qui marchait ╵dans les ténèbres
+   verra briller ╵une grande lumière :
+   elle resplendira
+   sur ceux qui habitaient ╵le pays dominé ╵par d’épaisses ténèbres.
+2) O [[Dieu|Eternel,╵tu]] fais abonder l’allégresse,
+   [[Dieu|tu]] fais jaillir ╵une très grande joie
+   et l’on se réjouit devant [[Dieu|toi]] ╵tout comme au temps de la moisson,
+   ou comme on crie de joie ╵lors du partage d’un butin.
+3) Car le joug qui pesait sur lui,
+   le bâton qui frappait son dos,
+   le gourdin de son oppresseur,
+   [[Dieu|toi, tu]] les as brisés ╵tout comme au jour ╵de la défaite de [[Madian|Madian]].
+4) Toute chaussure de guerrier ╵qui martèle le sol,
+   et tout manteau ╵que l’on a roulé dans le sang
+   seront livrés aux flammes,
+   pour être consumés.
 ## Chapitre 13
 Intitulé **Contre [[Babylone]]** par [[Bible#^358f23|BDS]]
 

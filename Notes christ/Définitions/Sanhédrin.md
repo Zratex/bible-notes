@@ -1,0 +1,1 @@
+==Sanhédrin== ("Grand-Conseil" en français) : assemblée siégeante constitué majoritairement de religieux juifs (peu importe le courant) faisant office d'assemblée législative et cour suprême d'[[Israël]].
