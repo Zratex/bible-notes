@@ -1,0 +1,3 @@
+**Benito Mussolini** était un dictateur voulant définitivement réunifier la nation [[Italie|italienne]] sur la période 1920-1945. C'est un acteur majeur du conflit européen de la seconde guerre mondiale.
+Beaucoup de choses à dire à son propos mais si il fait figure de ces notes c'est parce qu'il est le fondateur du [[Vatican]] moderne
+>Plus d'informations à son propos : https://fr.wikipedia.org/wiki/Benito_Mussolini

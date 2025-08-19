@@ -32,17 +32,17 @@ Ce qui change :
 
 L'église catholique n'a jamais reconnu les indulgences, car ça a été décidé par des papes, et leurs décisions ne sont pas contestables.
 ### 1.4 Technologie
-
-L'imprimerie en 1450 permet la diffusion de la [[Bible]] en langue locale à moindre coup.
-Ça intéresse la population, ce qui mène à une vague d'alphabétisation.
-Période missionnaire relancée avec la découverte de les Amériques.
-Réseaux de communication plus performantes (universités, routes commerciales) donc meilleure diffusion.
+Les avancées technologiques permettent une meilleure diffusion de la [[Bible]] ainsi que de l'évangile :
+- L'imprimerie dès 1450 permet la diffusion de la [[Bible]] en langue locale à moindre coup
+	- L'intérêt de la population envers la lecture dont la [[Bible]] mène à une vague d'alphabétisation
+- Vague missionnaire relancée avec la découverte des Amériques
+- Réseaux de communication plus performantes (universités, routes commerciales)
 ### 1.5 Politique
 Les politiques en ont marres du Pape, qui de plus est influencé par le saint empire germanique.
 François 1er a pris le contrôle de l'église en France au Concordat de Bologne (1516) pour reprendre les terres.
 
 Les pays germains et scandinaves ont grandement acceptés 
-## Réforme de Luther
+## 2 - Réforme de Luther
 ### 1 Réforme basée sur la parole
 La réforme était en tendance, mais personne n'était légitime tant qu'il n'y a pas quelqu'un qui vient de l'église. Ce qui n'est pas le cas de Luther.
 Luther affiche 95 thèses sur des portes et places publiques en développant 4 idées principales :
