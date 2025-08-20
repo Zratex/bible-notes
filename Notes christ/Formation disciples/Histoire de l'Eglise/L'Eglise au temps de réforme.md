@@ -67,7 +67,7 @@ En effet, [[Martin Luther]] affiche 95 thèses sur des portes et places publique
 - La foi devient un engagement personnel
 
 [[Martin Luther|Luther]] met en avant que **seul la [[Bible]] compte**, et non pas la tradition (contrairement au catholicisme qui a la [[Bible]] comme base mais les traditions importes plus que tout)
--> Plus développé plus tard dans cette note à propos de ce qu'est le Luthéranisme
+-> Plus développé ici : [[L'Eglise au temps de réforme#2.3 Bases du Luthéranisme (et des mouvements protestants)|2.3]]
 
 Enchaînement des événements :
 - 1520 : [[Pape|Pape]] Léon X menace [[Martin Luther|Luther]] d'excommunication par une lettre. [[Martin Luther|Luther]] brûle sa menace
@@ -79,30 +79,44 @@ Conséquences du point de vue croyants :
 - Réprimande catholique (inquisitions)
 - Quelques princes [[Allemagne#L'allemand (langue)|allemands]] deviennent protestants pour attirer les élites
 - Plusieurs guerres civiles
-### 2.3 Luthéranisme
-Luther a été contraint de quitter l'église catholique, ce qui a créé des mouvements en Europe centrale et du nord.
-Principes :
-- sola scriptura : [[Bible]] est la seule source d'autorité religieuse
-- sola fide : salut s'obtient par la foi seule
-- sola gratia : la grâce de [[Dieu]] permet d'être sauvé
-- rejet de l'autorité papale, car il ne doit pas y avoir d'intermédiaire avec [[Dieu]]
-## 3 - Réforme calvaniste
+### 2.3 Bases du Luthéranisme (et des mouvements protestants)
+[[Martin Luther]] a été contraint de quitter l'église catholique, ce qui a créé des mouvements en Europe centrale et du nord.
+Principes fondamentaux :
+- sola scriptura : [[Bible]] est la **seule source d'autorité religieuse**
+- sola fide : **salut s'obtient par la foi seule**
+- sola gratia : **la grâce de [[Dieu]] permet d'être sauvé**
+- rejet de l'autorité [[Pape|papale]], car il ne doit pas y avoir d'intermédiaire avec [[Dieu]]
+Ces bases sont la base du protestantisme et non seulement le Luthéranisme : protestant car l'autorité du [[Pape]] y est protesté
+>Le luthéranisme a aussi d'autres principes, résumées ici : [[Luthéranisme]]
+## 3 - Réforme calviniste
 ### 3.1 Zwingli
-En parallèle de Luther, Zwingli (origine suisse) : colloque de Marbourg en 1529 pour essayer de collaborer, mais à cause d'1 point il n'y a pas d'entraide
-Zwingli va être à l'origine de l'église réformée, repris par Calvin.
+En parallèle de [[Martin Luther]], [[Ulrich Zwingli|Zwingli]] (origine [[Suisse|suisse]]) : colloque de Marbourg en 1529 pour essayer de collaborer avec ceux qui suivent [[Martin Luther]], mais à cause d'1 point il n'y a pas d'entraide (développé en 3.3)
+[[Ulrich Zwingli]] va être à l'origine de l'église réformée, repris par [[Calvin]].
 
-Impact surtout en Suisse et Alpes françaises.
+Impact surtout en [[Suisse]] et Alpes [[France|françaises]].
 ### 3.2 Église réformée
-Prédestination absolue : [[Dieu]] choisi en avance qui est sauvé, donc il y a selon ce courant des personnes définitivement perdues, ce qui omet le libre arbitre (problématique amoindrie dans d'autres traductions)
-Simplicité du culte (là où les statues ornements etc sont courantes dans les autres courants)
-Gouvernance ecclésiastique : remise en place du précepte du berger (pasteur), donc celui qui guide mais qui n'est pas un intermédiaire avec [[Dieu]]
-Discipline stricte pour être des témoins dans la société.
-### 3.3 Divergences Luthéranisme
-Divergences qui défini leur vie de foi, principalement sur la doctrine du salut (foi contre prédestination)
-Point non accord la cène : Luther voyais une transfiguration de [[Jésus]] soit le fait de le re-sacrifier, tandis que l'église réformée vois ça comme un devoir de mémoire.
+Eglise protestante qui suit ces principes :
+- [[Prédestination]] (problématique amoindrie dans d'autres traductions)
+- Simplicité du culte
+	- Il faut savoir que les statues, ornements etc sont courantes dans les autres courants protestants de l'époque, car ce sont des restes de traditions catholiques
+- Gouvernance ecclésiastique : remise en place du précepte du berger ([[Pasteur]]), donc **celui qui guide** mais qui n'est pas un intermédiaire avec [[Dieu]] (contrairement aux catholiques)
+- Discipline stricte pour être des témoins dans la société
+### 3.3 Divergences entre courants protestants
+Divergences qui pourtant défini leur vie de foi, principalement sur la doctrine du salut (par exemple la foi classique contre la [[Prédestination]])
+Point non accord majeur entre l'[[Calvinisme|église réformée]] et le [[Luthéranisme]] : **la question de la cène**
+- [[Martin Luther]] voyais une transfiguration de [[Jésus]], soit le fait de le re-sacrifier
+	- Pareil pour les catholiques
+- L'église réformée vois ça comme un devoir de mémoire.
 ### 3.4 Protestantisme en France
-Les protestants étaient surtout présents dans l'est de la France avec Guillaume Farel dans le Grand Est et Calvin au Sud Est.
-Huguenots : protestants calvinistes qui prennent les , ce qui Saint-Barthelemie en 1572 suivi de la révocation de l'édit de Nantes en 1685
+Les protestants étaient surtout présents dans l'est de la [[France]] avec Guillaume Farel dans le Grand Est et [[Calvin]] au Sud Est. Mais le protestantisme n'était pas accepté par le reste de la population du royaume.
+
+Conséquences : Guerres de religions
+- Huguenots : protestants [[Calvinisme|calvinistes]] qui prennent les armes
+- 1562 : début guerres de religions
+	- 1572 massacre de la Saint-Barthélémie en 1572
+- 1578 : édit de Nantes par Henry IV pour mettre fin officiellement aux guerres de religion
+	- En résumé : une "tolérance" du protestantisme en [[France]]
+- 1685 : révocation de l'édit de Nantes par Louis XIV suite à de nouvelles tensions depuis les années 1620s
 ## 4 - Réforme anglicane
 ### Contexte politique
 Henry VIII monarque aux 6 épouses se défini catholique et grand défenseur de la foi par le Pape car démonstrations contre Luther.

@@ -1,0 +1,2 @@
+Fédération majoritairement [[Allemagne#L'allemand (langue)|allemande]] au vu de son histoire avec le [[Saint-Empire Romain Germanique]], mais ayant une partie [[France#Le français (langue)|française]] et [[Italie|italienne]], est un pays coincé dans les hauteurs des Alpes.
+Aujourd'hui c'est un pays principalement connu pour ses richesses et surtout son non positionnement.

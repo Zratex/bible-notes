@@ -1,0 +1,1 @@
+Pasteur du Sud-Est de la [[France]] à l'époque de [[Martin Luther]] et [[Ulrich Zwingli]] dont le [[Calvinisme]] porte son nom

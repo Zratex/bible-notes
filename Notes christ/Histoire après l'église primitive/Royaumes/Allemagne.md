@@ -5,7 +5,7 @@ Héritiers du [[Saint-Empire Romain Germanique]], ce pays a été fondé par les
 
 Cette nation est appelée par plusieurs noms :
 - Germany (nom en anglais d'origine [[Romains|latine]], d'où vient l'appellation du **peuple germain**)
-- Allemagne (nom français, utilisé aussi en espagnol par exemple, nom du peuple germanique autour des frontières [[France|franco]]-suisses)
+- Allemagne (nom français, utilisé aussi en espagnol par exemple, nom du peuple germanique autour des frontières [[France|franco]]-[[Suisse|suisses]])
 - ==Deutschland== (nom donnée par les allemands eux même)
 ## L'allemand (langue)
 L'allemand est la langue parlée par cette nation. Elle a donc d'autres noms en fonction des autres langues :

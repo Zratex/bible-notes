@@ -11,7 +11,7 @@ En fonction de l'époque sa taille a été grandement variable, mais les pays ac
 - L'[[Allemagne]] (considéré comme son héritier)
 - L'[[Italie]]
 	- En particulier les états [[Pape|Pontificaux]]
-- La Suisse
-- L'Autriche
+- La [[Suisse]]
+- L'[[Autriche]]
 - La Slovénie
 ![[Saint Empire Romain Germanique.gif]]
