@@ -11,7 +11,7 @@ Cette nation est appelée par plusieurs noms :
 L'allemand est la langue parlée par cette nation. Elle a donc d'autres noms en fonction des autres langues :
 - Allemands (nom français). Appellation utilisée notamment en :
 	- [[France|français]]
-	- espagnol
+	- [[Espagne#L'espagnol (langue)|espagnol]]
 - German (nom anglais). Appellation utilisée notamment en :
 	- [[UK#Anglais|anglais]]
 - **Deutsh**. Appellation utilisée notamment en :

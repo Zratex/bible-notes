@@ -1,0 +1,1 @@
+Région au centre nord de l'[[Espagne]], c'était un royaume à part avant son unification

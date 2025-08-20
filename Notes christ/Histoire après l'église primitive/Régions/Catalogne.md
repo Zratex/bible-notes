@@ -1,0 +1,1 @@
+Région sur la côte Nord-Est (côté Méditerranée) de l'[[Espagne]], bordé au nord par la [[France]] et à l'ouest par l'[[Aragon]]. La région est surtout connue pour avoir comme chef lieu **Barcelone**

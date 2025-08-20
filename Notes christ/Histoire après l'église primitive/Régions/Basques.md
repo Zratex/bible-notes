@@ -1,0 +1,1 @@
+Région sur la côte nord est (côté Atlantique) de l'[[Espagne]], ainsi que le sud-ouest de la [[France]]. Elle a notamment à son Est la région d'[[Aragon]]

@@ -8,4 +8,4 @@ Résumé de ses principes :
 - Rejet de l'autorisé du [[Pape]]
 	- Mais l'église est toujours gouvernée par des sortes de prêtres
 - Maintiens des statues, ornements etc dans le culte
-- POV sur la cène : transfiguration donc re-sacrification de [[Jésus]] (comme les catholiques)
+- POV sur la cène : [[Transsubstantiation]] (comme les catholiques)

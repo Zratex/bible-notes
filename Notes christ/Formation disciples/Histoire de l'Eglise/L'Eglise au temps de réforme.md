@@ -118,40 +118,44 @@ Conséquences : Guerres de religions
 	- En résumé : une "tolérance" du protestantisme en [[France]]
 - 1685 : révocation de l'édit de Nantes par Louis XIV suite à de nouvelles tensions depuis les années 1620s
 ## 4 - Réforme anglicane
-### Contexte politique
-Henry VIII monarque aux 6 épouses se défini catholique et grand défenseur de la foi par le Pape car démonstrations contre Luther.
-Concurrent culturel à François 1er.
+### 4.1 Contexte politique
+```
+A noter que c'est très complexe à résumer, et je n'ai peut être pas bien noté tous les éléments
+```
+[[Henry VIII]] monarque d'[[UK|Angleterre]] aux 6 épouses se défini grand défenseur de la foi catholique par le [[Pape]], car mise en place d'argumentations contre ceux de [[Martin Luther]].
 
-Catherine d'Aragon 
-Marie
+Il se marie avec [[Catherine d'Aragon]], mais demande l'annulation en 1530 car pas de successeur (soit les garçons mourraient trop vites, soit il eut des filles).
+[[Charles Quint]], étant le neveu de [[Catherine d'Aragon]] et voulant sauver son honneur, fait pression sur le [[Pape]] pour qu'il refuse.
+Le divorce n'ayant point permis été permis par le [[Pape]], [[Henry VIII]] cherche avec `Thomas More` pour justifier le divorce au travers des [[3 - Lévitique]] de manière tordue.
 
-Henry demande à ce que le mariage soit annulé en 1530 car pas de successeur, mais le divorce n'était pas possible. Donc il cherche avec Thomas Moore pour justifier le divorce au travers des [[3 - Lévitique]] de manière tordue.
+Mariage avec [[Anne Boleyn]] en 1533, et [[Henry VIII]] le justifie en quittant l'église de [[Rome]] (donc il n'est plus sous l'autorité du [[Pape]]), mais reste fondamentalement catholique.
+[[Edouard VI]], son successeur, introduit des préceptes protestants, car venant l'[[Ecosse]] il a des origines protestantes.
 
-Charles Quint neveu de Catherine, donc le pape refuse.
+[[Mary 1st|Bloody Mary]], mise au pouvoir de l'[[UK|Angleterre]] par des conservateurs catholiques suite au décès d'[[Edouard VI]], essaie de réinstaurer l'église catholique et l'autorité du [[Pape]], accentuant grandement les persécutions envers les protestants.
 
-Mariage avec Ann Boleyn en 1533, et le justifie en quittant l'église de Rome ce qui créer la réforme anglicane.
+[[Elizabeth 1st]] reprend le pouvoir après la mort de [[Mary 1st|Bloody Mary]] et fonde l'**église anglicane** en 1559 pour stopper les tensions religieuses en [[UK|Angleterre]] : c'est un **compromis entre protestantisme et catholicisme**.
+### 4.2 Doctrine anglicane d'origine
+Spécificité de ce courant (certaines doctrines ont aujourd'hui changées) :
+- Plan politique (depuis [[Henry VIII]]) :
+	- Acte de suprématie : religion d'état où le roi d'[[UK|Angleterre]] en est le chef
+	- Sacrements et structure ecclésiastique
+	- 6 articles 1539 : réaffirmation de textes catholiques
+	- Suppression des monastères à but monétaire
+	- [[Bible]] doit être obligatoirement en [[UK#L'anglais (langue)|anglais]]
+		- Première traduction de la [[Bible]] dans une langue européenne autre que le latin
+- Plan théologique (depuis [[Edouard VI]]) :
+	- Transition protestantisme inspirée du [[Luthéranisme]]
+	- Book of Common Prayer (1549, v2 en )
+		- Livre répertoriant un registre de prières à réciter, ainsi que les pratiques de l'anglicanisme
+	- Abolition de la [[Transsubstantiation]]
+	- Suppression des ornements
+>Le reste est très similaire au catholicisme
 
-Persécution envers les 
-### Doctrine d'origine
-Acte de suprématie : religion d'état où le roi est le chef
-Sacrements et structure ecclésiastique
-6 articles 1539 : réaffirmation de textes catholiques
-Suppression des monastères à but monétaire
-Bible doit être obligatoirement en anglais
-Rupture politique, mais pas encore théologique jusqu'a Edouard IV élevé dans la foi protestante en Écosse. Les réformes :
-Transition protestantisme inspirée du Luthéranisme
-Book of Common Prayer
-Abolition de la transsubstantiation
-Suppression des ornements
-
-Marie (Bloody Marie) est revenue au pouvoir par des conservateurs catholiques. Elle essaie de réinstaurer des préceptes catholiques.
-
-Elisabeth 1ere fait l'église anglicane qui est un compromis entre protestantisme et catholicisme.
-Persécutions pour tout ceux qui n'accepte pas ça, en particulier ceux qui voulaient une fois plus simple, ce qui mène aux migrations pour les colonies américaines.
+Persécutions pour tout ceux qui n'accepte pas l'anglicanisme, en particulier ceux qui voulaient une fois plus simple, ce qui mène aux migrations pour les colonies américaines (dont les [[USA]]).
 ## 5 - Réforme anabaptiste
 ### Contexte
-1525 Zurich mouvement radicale pour être différent des catholiques mais par la violence, ce qui mène à la révolte de Munster 1534-1535
-> Persécuté par l'église réformée et les luthériens
+1525 Zurich (ville [[Suisse]]) mouvement radicale pour être différent des catholiques mais par la violence, ce qui mène à la révolte de Munster (ville [[Allemagne|allemande]]) en 1534-1535
+> Mouvement persécuté par l'[[Calvinisme|église réformée]] et les [[Luthéranisme|luthériens]]
 ### doctrines
 Critique baptême des enfants qui est un contre-sens du Luthéranisme (dont le nom anabaptiste)
 Opposition à l'église et l'état, et veulent une séparation entre les 2

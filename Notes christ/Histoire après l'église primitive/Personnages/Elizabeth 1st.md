@@ -1,0 +1,2 @@
+Elizabeth first, reine d'[[UK|Angleterre]] suite au décès de [[Mary 1st]], est la fille d'[[Henry VIII]] et [[Anne Boleyn]], et donc la demi-soeur de [[Mary 1st]] et [[Edouard VI]]
+C'est elle qui officialise la **réforme anglicane**

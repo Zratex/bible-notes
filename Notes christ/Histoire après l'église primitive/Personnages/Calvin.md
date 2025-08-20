@@ -1,1 +1,2 @@
-Pasteur du Sud-Est de la [[France]] à l'époque de [[Martin Luther]] et [[Ulrich Zwingli]] dont le [[Calvinisme]] porte son nom
+Jean Calvin est un [[Pasteur]] du Sud-Est de la [[France]] à l'époque de [[Martin Luther]] et [[Ulrich Zwingli]] dont le [[Calvinisme]] porte son nom
+>Plus d'informations à son propos : https://fr.wikipedia.org/wiki/Jean_Calvin

@@ -1,0 +1,1 @@
+Devient reine d'[[UK|Angleterre]] suite à son mariage avec [[Henry VIII]], avec qui elle eut pour fille [[Elizabeth 1st]]
