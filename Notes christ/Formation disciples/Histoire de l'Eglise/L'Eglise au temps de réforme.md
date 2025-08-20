@@ -153,30 +153,35 @@ Spécificité de ce courant (certaines doctrines ont aujourd'hui changées) :
 
 Persécutions pour tout ceux qui n'accepte pas l'anglicanisme, en particulier ceux qui voulaient une fois plus simple, ce qui mène aux migrations pour les colonies américaines (dont les [[USA]]).
 ## 5 - Réforme anabaptiste
-### Contexte
-1525 Zurich (ville [[Suisse]]) mouvement radicale pour être différent des catholiques mais par la violence, ce qui mène à la révolte de Munster (ville [[Allemagne|allemande]]) en 1534-1535
-> Mouvement persécuté par l'[[Calvinisme|église réformée]] et les [[Luthéranisme|luthériens]]
-### doctrines
-Critique baptême des enfants qui est un contre-sens du Luthéranisme (dont le nom anabaptiste)
-Opposition à l'église et l'état, et veulent une séparation entre les 2
-Confession de Schleitheim qui rejette enfin la violence, ce qui engendre beaucoup de courants à l'origine de l'évangélisme les Baptistes et quakers qui s'exportent aux USA alimentant l'abolition de l'esclavage.
-Mode de vie assez stricte voir secteur, mais toujours pas le renouveau du POV du [[Saint-Esprit]]
+### 5.1 Contexte
+1525 Zurich (ville [[Suisse]]) un mouvement radicale pour être différent des catholiques mais par la violence se lève
+Ce qui mène à la révolte de Munster (ville [[Allemagne|allemande]]) en 1534-1535
+> Ce Mouvement est persécuté par l'[[Calvinisme|église réformée]] et les [[Luthéranisme|luthériens]]
+### 5.2 - Doctrines
+- Critique baptême des enfants qui est un contre-sens du [[Luthéranisme]] (d'où le nom **anabaptiste**)
+- Opposition à l'église et l'état, et veulent une séparation entre les 2
+- Confession de Schleitheim (ville [[Suisse]]) qui rejette enfin la violence
+	- Engendre beaucoup de courants à l'origine de l'évangélisme, comme les Baptistes et Quakers qui s'exportent aux [[USA]], alimentant l'abolition de l'esclavage.
+- Mode de vie assez stricte voir sectaire, mais toujours pas le renouveau du POV du [[Saint-Esprit]]
 
-Grande perte de savoir technique de la France vers les USA
-## 6 - Contre-Réforme
+Puisse qu'ils sont persécutés, la migration des anabaptistes ainsi que les mouvements qui en découle va générer une grande perte de savoir technique de notamment la [[France]] vers les [[USA]] (ce qui donnera plus tard naissance aux jésuites en Europe pour combler ce vide).
+## 6 - Contre-Réforme catholique
 ### 6.1 Contexte
-Faire face à l'église protestante, l'église catholique se réforme pour reimposer sa légitimité.
-Concile de Trente (1545-1563) pour réaffirmer les écritures de la [[Bible]] et les apocryphes.
-Les prêtres sont mieux formés pour essayer d'éviter de reproduire la corruption et des cas comme Luther.
+L'église catholique a perdue sa légitimité et popularité.
+Pour faire face à l'église protestante, l'église catholique se réforme pour se réimposer.
+- Concile de Trente (1545-1563) pour réaffirmer les écritures de la [[Bible]] et les [[Apocryphes]]
+- Les prêtres sont mieux formés pour essayer d'éviter de reproduire :
+	- les cas de corruption
+	- les cas de "rébellion" comme [[Martin Luther]]
 ### 6.2 Ordres religieux
 Jésuite
 1534 par Ignace et Loyola
 Défenseurs catholiques et missionnaires
 Le principe des jésuites est de réformer les élites perdues aux USA, pour avoir une influence politique.
-Capucins, carmélites réformés, oratoriens etc cherchent une fois plus sincère sans remettre en cause les principes catholiques.
+Capucins, carmélites réformés, oratoriens etc cherchent une foi plus sincère sans remettre en cause les principes catholiques.
 Lassaliens mets en place les écoles catholiques en gros.
 > Le but est que même les non religieux soient convaincus du catholicisme
-> Car selon eux, on est sauvé par la Sainte Église (d'où leur nom), et non par [[Jésus]]
+> Car selon eux, on est sauvé par la Sainte Église (d'où le nom catholique), et non par [[Jésus]]
 ### 6.3 Inquisitions et censure
 Accès à la Bible est toujours restreint : l'église faisait croire que la [[Bible]] était trop complexe à comprendre pour ceux qui n'étaient pas du clergé.
 ## 7 - Courant des lumières

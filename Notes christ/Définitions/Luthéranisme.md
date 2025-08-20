@@ -7,5 +7,7 @@ Résumé de ses principes :
 - Sola Gratia
 - Rejet de l'autorisé du [[Pape]]
 	- Mais l'église est toujours gouvernée par des sortes de prêtres
-- Maintiens des statues, ornements etc dans le culte
-- POV sur la cène : [[Transsubstantiation]] (comme les catholiques)
+- Quelques restes du catholicisme :
+	- Maintiens des statues, ornements etc dans le culte
+	- Les enfants sont baptisés à leur naissance
+	- POV sur la cène : [[Transsubstantiation]]
