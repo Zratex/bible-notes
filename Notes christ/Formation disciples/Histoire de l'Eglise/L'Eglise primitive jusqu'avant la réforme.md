@@ -17,7 +17,7 @@ Donc on va surtout retracer l'histoire des églises locales.
 **L'église locale est importante dans notre vie :** le [[Saint-Esprit]] envoie des messages aux églises (ex: les lettres dans le [[Nouveau testament]]), et des parties de ces messages nous sont adressées individuellement. 
 [[1er Evangile - Matthieu#Versets 13 à 20|Matthieu 16:17]]
 
-`Aftes 9:31` : les églises locales sont bien localisées dans
+`Actes 9:31` : les églises locales sont bien localisées dans
 ### La mission de l'Eglise
 L'église locale a pour mission :
 - Annoncer l'[[Note sur l'évangile|Evangile]]
@@ -27,32 +27,34 @@ Puisse que c'est notre mission, faire l'un sans l'autre c'est concrètement de l
 Il n'y a pas plus fiable que la [[Bible]] en texte historique.
 ->il y a plusieurs milliers de textes différents sur plusieurs âges et dans différents endroits
 
-L'histoire de l'Eglise reflète aussi l'échec de l'homme, et l'œuvre souveraine de [[Dieu]].
+L'histoire de l'[[Eglise]] reflète aussi l'échec de l'homme, et l'œuvre souveraine de [[Dieu]]. (cf [[Conclusions de l'histoire l'Eglise]])
 C'est vraiment difficile de se définir chrétien sans vivre avec l'[[Eglise]]
 Vivre sans [[Eglise]] ce n'est pas un chrétien. Car même dans la persécution l'église peut se réunir.
-## 1 L'église persécutées
-30-313
-### 1 Les origines
-L'ascension de [[Jésus]] n'est pas a oublié
-Les enseignements des apôtres ont beaucoup aidés aux origines de l'église.
-La conversation de [[Paul]] a bougé énormément de choses, surtout chez les gréco-romains.
--> les grecques correspondent souvent aux païens dans la [[Bible]]
+## 1 - L'église persécutées
+Période de temps : 30-313
+### 1.1 Les origines de l'église avant la persécution
+L'ascension de [[Jésus]] n'est pas à oublier. La bonne nouvelle est partagée :
+- Les enseignements des [[Apôtres]] ont beaucoup aidés aux fondations de l'[[Eglise]]
+- La conversation de [[Paul]] a bougé énormément de choses, surtout chez les gréco-[[Romains|romains]].
+-> les grecques correspondent souvent à l'image des païens dans la [[Bible]]
 
-Les prêches de l'évangile étaient basées sur l'[[Ancien Testament]], et les lettres de [[Simon Pierre]] et [[Paul]] ont beaucoup circuler.
-> Même sans les [[4 Evangiles premiers pas]], par le [[Saint-Esprit]] et la puissance et révélation de [[Jésus]] l'évangile pouvait être annoncé
+Les prêches de l'évangile étaient basées sur l'[[Ancien Testament]], et les lettres de [[Simon Pierre|Pierre]] et [[Paul]] qui ont beaucoup circuler entre églises.
+> Même sans les [[4 Evangiles premiers pas|4 Evangiles]], par le [[Saint-Esprit]] et la puissance et révélation de [[Jésus]], l'évangile pouvait être annoncé
 
-70 destruction de [[Jérusalem]] ce qui diffuse l'évangile
-### 2 causes persécutions
-Ils refusaient le culte des dieux, dirigents, et le culte du temple comme la [[La Loi de Dieu]]
+70s : destruction de [[Jérusalem]]
+- Contexte : les [[Zélotes]] ont lancés une rébellion en [[Israël]], ce qui a mené à la destruction de [[Jérusalem]] par la réprimande [[Romains|romaine]]
+- <u>Conséquences :</u>
+	- Chute progressive d'[[Israël]]
+	- Accélération de la diffusion des [[4 Evangiles premiers pas|4 évangiles]], car les [[Apôtres]] étaient principalement basés sur [[Jérusalem]]
+### 1.2 Les causes alimentant les futures persécutions
+Ce dont les chrétiens étaient régulièrement accusés par les [[Romains]] (et [[Israël|juifs]]) :
+- Refusaient du culte envers des dieux, dirigeants, et le culte du temple comme la [[La Loi de Dieu]]
+- Le culte de [[Jésus]] était pris pour du cannibalisme : mauvaise interprétation de la cène
+- Accusation immoralité vu par l'extérieur : le fait que les chrétiens vivent ensemble faisait penser aux orgies qui étaient communs à l'époque
+- Christianisme considéré par les chrétiens comme la **seule vraie foi**, contrairement aux religions et états de l'époque.
 
-[[Jésus]] faisait peur sur l'aspect du cannibalisme qui est une mauvaise interprétation de la cène.
-
-Immoralité des chrétiens vu par l'extérieur : le fait qu'ils vivent ensemble faisait penser aux orgies qui étaient communs à l'époque
-
-Les chrétiens pensent qu'on a la seule vraie fois contrairement aux religions et états de l'époque.
-
-Le conflit avec les juifs est présent depuis [[Actes]], car selon eux c'est une hérésie.
-### 3 persécutions romaines
+De plus, les conflit entre chrétiens et juifs sont présents depuis [[Actes]], car selon les juifs : c'est une hérésie.
+### 1.3 Les persécutions romaines
 Une fois l'église de [[Rome]], Neiron
 64-68 : accusés d'avoir brûler [[Rome]], probablement le moment où [[Simon Pierre]] et [[Paul]] ont été exécutés
 
@@ -60,7 +62,7 @@ Plus le temps passait, plus les nobles se convertissaient.
 
 Trajan : punir les chrétiens si dénoncés
 
-Marc Aurèle intensifie les persécutions en particulier en Gaule, car vrai source de foi : martyrs gaulois
+Marc Aurèle intensifie les persécutions en particulier en Gaule (ancien nom de la région correspondant à la [[France]]), car vrai source de foi : martyrs gaulois
 
 Sévère jusqu'à 211 : peine de mort
 
@@ -69,7 +71,7 @@ Dès : persécution impériale, sacrifiés aux dieux romains
 Valeriants : vise les évêques (bergers/pasteurs) et les prêtres (les serviteurs de l'église). Dépouillement
 
 Galère : 303-311 destruction complète de tous ce qui touche de prêt ou de loin aux chrétiens
-### 4 - réactions
+### 1.4 Réactions
 Origine du mot martyr : mourir plutôt que de renier sa foi
 On a encore le témoignage de certains, comme Cyprien de Carthage
 
@@ -79,9 +81,9 @@ Conséquences : ça a renforcé le christianisme, car les martyrs ont fait conve
 Développement de la théologie :
 - apologie (prouver avec des arguments)
 - ceux qui donnent la parole telle quelle
-### 5 - Édit de Milan
+### 1.5 Édit de Milan
 À la fin de Galère, il autorise la foi mais seulement chez soit.
-Constantin a sa femme chrétienne. Il a eut une vision de la croix puis se convertit, et ensuite écrit l'édit de Milan en 313
+Constantin a sa femme chrétienne. Il a eut une vision de la croix puis se convertit, et ensuite écrit l'édit de Milan (ville au nord de l'[[Italie]]) en 313
 > La persécution a répandue le christianisme, mais ça a coûté cher. Cependant l'église a été renforcée
 
 Les églises de l'époque n'avait pas de dogme : elles suivaient [[Jésus]] et le [[Saint-Esprit]]

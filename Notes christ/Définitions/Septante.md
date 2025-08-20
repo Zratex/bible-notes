@@ -1,5 +1,5 @@
 Autre version canonique du point de vue des catholiques et orthodoxes de l'[[Ancien Testament]].
->Depuis le canon défini après la révolte lancée par les [[zélotes]], il est **peu utilisé par les juifs**, car non considéré comme canon puisse que **ces textes sont grecques et non hébreux**
+>Depuis le canon défini après la révolte lancée par les [[Zélotes]], il est **peu utilisé par les juifs**, car non considéré comme canon puisse que **ces textes sont grecques et non hébreux**
 
 Dans les autres courants chrétiens, certains de ces livres (non présents dans le [[Tanakh]]) sont considérés comme des [[Apocryphes]], et cela inclus :
 - Tobit

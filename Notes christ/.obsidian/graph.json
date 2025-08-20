@@ -5,7 +5,7 @@
   "showAttachments": false,
   "hideUnresolved": false,
   "showOrphans": true,
-  "collapse-color-groups": true,
+  "collapse-color-groups": false,
   "colorGroups": [
     {
       "query": "path:\"Lieux historiques\"",
@@ -41,6 +41,13 @@
         "a": 1,
         "rgb": 6084269
       }
+    },
+    {
+      "query": "path:\"Formation disciples/Histoire de l'Eglise\"  ",
+      "color": {
+        "a": 1,
+        "rgb": 16774912
+      }
     }
   ],
   "collapse-display": false,
@@ -53,6 +60,6 @@
   "repelStrength": 10,
   "linkStrength": 1,
   "linkDistance": 201,
-  "scale": 0.4920582221851928,
+  "scale": 0.35097305606632123,
   "close": false
 }

@@ -8,3 +8,5 @@ Le temps de la [[L'Eglise au temps de réforme|réforme]] a illustré les fausse
 Là où la religion catholique voulait représenter l'[[Eglise]] chrétienne dans son universalité, les fausses doctrines qui y sont intégrés et qui ont été fortement relevés ont générés des problèmes et une perte d'intérêt/légitimité envers celle ci.
 
 Cela s'illustre par les nombreux débats théologiques qui ont eut lieu accompagné de l'échec du cœur des Hommes, et ces désaccords ont générés de nombreux courants chrétiens si on s'attarde simplement à l'Europe, avec des conséquences sur toute la société européenne (et américaine, puisse que c'était les périodes coloniales).
+
+Comprendre cette histoire permet de mieux comprendre le contexte historique dans lequel on se trouve.
