@@ -1,7 +1,7 @@
 Apporté par Lucas le 02/05/2025, qui fait suite à [[L'Eglise primitive jusqu'avant la réforme]]
 ## 1 - Contexte
 ### 1.1 Pouvoir de l'Église avant la réforme
-L'Eglise a un pouvoir politique incontesté en Europe, et cela s'illustre notamment par :
+L'église a un pouvoir politique incontesté en Europe, et cela s'illustre notamment par :
 - soumission papale de son organisation et d'une grande partie du continent
 - monarchies de droits divin
 - très grand contrôle des terres et richesses par l'église.
@@ -19,8 +19,8 @@ Période : 1492-1610
 Ce qui change :
 - Les savoirs viennent d'ailleurs que l'église
 - Le classicisme pousse vers les textes antiques
-	- Avantage : A savoir que les textes d'origines de la [[Bible]] avaient été délaissés jusque là
-	- Conséquence : Ce mouvement pousse aussi vers les textes antiques autre que la [[Bible]] (exemple : littérature grecque)
+	- <u>Avantage :</u> A savoir que les textes d'origines de la [[Bible]] avaient été délaissés jusque là
+	- <u>Conséquence :</u> Ce mouvement pousse aussi vers les textes antiques autre que la [[Bible]] (exemple : littérature grecque)
 ![[Humanisme]]
 ### 1.3 indulgences systématiques
 2 concepts introduits :
@@ -39,7 +39,7 @@ Les avancées technologiques permettent une meilleure diffusion de la [[Bible]] 
 - Réseaux de communication plus performantes (universités, routes commerciales)
 ### 1.5 Politique
 Certains politiques en ont marre de l'influence du [[Pape]] dans les affaires des royaumes, qui lui même est de plus est influencé par le [[Saint-Empire Romain Germanique]].
-Conséquence, 2 types de nations :
+<u>Conséquence, 2 types de nations :</u>
 - Ceux qui ont acceptés le pouvoir du [[Pape]] :
 	- [[Saint-Empire Romain Germanique]] et les peuples germains dans leur ensemble
 	- Les peuples nordiques (et scandinaves)
@@ -75,7 +75,7 @@ Enchaînement des événements :
 - Frédéric de [[Saxe]] [[Martin Luther|le]] protège, et [[Martin Luther|Luther]] a profité de ce temps pour traduire la [[Bible|Bible]] en [[Allemagne#L'allemand (langue)|allemand]]
 - 1555 : Paix d'Augsbourg (ville en [[Westphalie]]) : tolérance du protestantisme dans le [[Saint-Empire Romain Germanique]]
 
-Conséquences du point de vue croyants :
+<u>Conséquences du point de vue croyants :</u>
 - Réprimande catholique (inquisitions)
 - Quelques princes [[Allemagne#L'allemand (langue)|allemands]] deviennent protestants pour attirer les élites
 - Plusieurs guerres civiles
@@ -110,7 +110,7 @@ Point non accord majeur entre l'[[Calvinisme|église réformée]] et le [[Luthé
 ### 3.4 Protestantisme en France
 Les protestants étaient surtout présents dans l'est de la [[France]] avec Guillaume Farel dans le Grand Est et [[Calvin]] au Sud Est. Mais le protestantisme n'était pas accepté par le reste de la population du royaume.
 
-Conséquences : Guerres de religions
+<u>Conséquences :</u> Guerres de religions
 - Huguenots : protestants [[Calvinisme|calvinistes]] qui prennent les armes
 - 1562 : début guerres de religions
 	- 1572 massacre de la Saint-Barthélémie en 1572
@@ -174,26 +174,31 @@ Pour faire face à l'église protestante, l'église catholique se réforme pour 
 	- les cas de corruption
 	- les cas de "rébellion" comme [[Martin Luther]]
 ### 6.2 Ordres religieux
-Jésuite
-1534 par Ignace et Loyola
-Défenseurs catholiques et missionnaires
-Le principe des jésuites est de réformer les élites perdues aux USA, pour avoir une influence politique.
-Capucins, carmélites réformés, oratoriens etc cherchent une foi plus sincère sans remettre en cause les principes catholiques.
-Lassaliens mets en place les écoles catholiques en gros.
-> Le but est que même les non religieux soient convaincus du catholicisme
-> Car selon eux, on est sauvé par la Sainte Église (d'où le nom catholique), et non par [[Jésus]]
+Jésuite :
+- 1534 par Ignace et Loyola
+- Défenseurs catholiques et missionnaires
+- Le principe des jésuites est de réformer en Europe les élites perdues parties aux [[USA]], pour avoir une influence politique
+Capucins, carmélites réformés, oratoriens etc sont des ordres cherchant une foi plus sincère, sans remettre en cause les principes catholiques.
+Les Lassaliens mettent en place durant cette période les écoles catholiques.
+> Le but est que même **les non religieux soient convaincus du catholicisme**
+> Car **selon eux**, on est sauvé par la Sainte Église (d'où le nom catholique), et non par [[Jésus]]
 ### 6.3 Inquisitions et censure
-Accès à la Bible est toujours restreint : l'église faisait croire que la [[Bible]] était trop complexe à comprendre pour ceux qui n'étaient pas du clergé.
+L'accès à la [[Bible]] est toujours restreint : l'église faisait croire que la [[Bible]] était trop complexe à comprendre pour ceux qui n'étaient pas du clergé.
 ## 7 - Courant des lumières
-### Contexte
+### 7.1 Contexte
 Éloge de la raison et critique de la foi et l'église : guerre idéologique nourrit sur les erreurs de l'église catholique
-Tout est remis en cause.
-Athéisme et déisme (Dieu existe mais pas comme on le connait) se répand chez les élites.
-### Révolution française
-1789 fin privilèges église
-1790 constitution où les prêtres doivent prêter serment à l'état : les jurés et réfractaires
-1792 déchristianisation en France dû à la Terreur jusqu'à la séparation concrète en 1901 et 1905 redonnant un minimum de droits aux religions dans leur globalité
-### Église en transformation
+>Tout est remis en cause
+
+<u>Conséquence :</u> Athéisme et [[Déisme]] se répand chez les élites.
+### 7.2 Révolution française
+- 1789 : fin privilèges église (et fin influence du [[Pape]])
+- 1790 : l'église est maintenue en [[France]], mais la constitution force les prêtres doivent prêter serment à l'état
+	- Jurés : ceux qui prêtent allégeance à l'état
+	- Réfractaires : ceux qui refusent l'allégeance à l'état, mais plutôt au [[Pape]]
+- 1792 : déchristianisation en [[France]] dû à la Terreur
+- 1901 puis 1905 : **séparation concrète de l'état et l'église**, mais un droit aux religions dans leur globalité est donné
+### 7.3 Église en transformation
 Religion affaiblie en Europe, car la pensée philosophique de l'époque est hostile à la foi (le fameux "Dieu est mort")
-Immigration encore plus massive aux USA
-Réveil au 18eme siècle aux USA, car redécouverte de la [[Bible]]
+<u>Conséquences :</u>
+- Immigration encore plus massive des chrétiens européens aux [[USA]]
+- Réveil au 18eme siècle aux [[USA]], car redécouverte de la [[Bible]]

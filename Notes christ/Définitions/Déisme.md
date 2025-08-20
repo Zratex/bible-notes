@@ -1,0 +1,1 @@
+==Déisme :== Courant de pensé qui s'arrête à croire que [[Dieu]] est celui qui a conçu l'univers

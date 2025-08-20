@@ -8,7 +8,7 @@ Le premier thème porte sur l'histoire de l'[[Eglise]] :
 - Partie 1 : [[L'Eglise primitive jusqu'avant la réforme]]
 	- Echelle de temps : `~30 à 1517`
 - Partie 2 : [[L'Eglise au temps de réforme]]
-	- Echelle de temps : `1517 à ?`
+	- Echelle de temps : `1517 à ~1792`
 #### L'intérêt de l'histoire de l'Eglise
 ()
 Etudier son histoire nous donne de véritable enseignement pour notre foi.
