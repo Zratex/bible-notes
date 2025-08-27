@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Formation disciples/Histoire de l'Eglise/L'Eglise primitive jusqu'avant la réforme.md",
+                "file": "Définitions/Vulgate.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "L'Eglise primitive jusqu'avant la réforme"
+              "title": "Vulgate"
             }
           }
         ]
@@ -94,7 +94,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Vie équilibré.md",
+                "file": "Définitions/Septante.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -104,7 +104,7 @@
                 "unlinkedCollapsed": true
               },
               "icon": "links-coming-in",
-              "title": "Backlinks for Vie équilibré"
+              "title": "Backlinks for Septante"
             }
           },
           {
@@ -113,12 +113,12 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "Vie équilibré.md",
+                "file": "Définitions/Septante.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               },
               "icon": "links-going-out",
-              "title": "Outgoing links from Vie équilibré"
+              "title": "Outgoing links from Septante"
             }
           },
           {
@@ -128,7 +128,9 @@
               "type": "tag",
               "state": {
                 "sortOrder": "frequency",
-                "useHierarchy": true
+                "useHierarchy": true,
+                "showSearch": false,
+                "searchQuery": ""
               },
               "icon": "lucide-tags",
               "title": "Tags"
@@ -140,10 +142,13 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "Vie équilibré.md"
+                "file": "Définitions/Septante.md",
+                "followCursor": false,
+                "showSearch": false,
+                "searchQuery": ""
               },
               "icon": "lucide-list",
-              "title": "Outline of Vie équilibré"
+              "title": "Outline of Septante"
             }
           },
           {
@@ -160,12 +165,12 @@
               "title": "All properties"
             }
           }
-        ]
+        ],
+        "currentTab": 1
       }
     ],
     "direction": "horizontal",
-    "width": 300,
-    "collapsed": true
+    "width": 300
   },
   "left-ribbon": {
     "hiddenItems": {
@@ -179,6 +184,22 @@
   },
   "active": "412ad4b021e16018",
   "lastOpenFiles": [
+    "Définitions/Vulgate.md",
+    "Définitions/Septante.md",
+    "Formation disciples/Histoire de l'Eglise/L'Eglise primitive jusqu'avant la réforme.md",
+    "Formation disciples/Histoire de l'Eglise/L'Eglise au temps des réformes.md",
+    "Formation disciples/Histoire de l'Eglise/Personnages/Jérôme de Stridon.md",
+    "Définitions/Apocryphes.md",
+    "Lieux historiques/Régions géographiques/Panomie.md",
+    "Lieux historiques/Régions géographiques/Pannonia_SPQR.png",
+    "Lieux historiques/Régions géographiques/Non confirmé 889258.crdownload",
+    "Définitions/Tanakh.md",
+    "Définitions/La Loi de Dieu.md",
+    "Formation disciples/Formation disciples POC Reims.md",
+    "Lieux historiques/Villes/Rome.md",
+    "Formation disciples/Histoire de l'Eglise/Royaumes/Saint-Empire Romain Germanique.md",
+    "Formation disciples/Histoire de l'Eglise/Personnages/Charlemagne.md",
+    "Formation disciples/Histoire de l'Eglise/Royaumes/Italie.md",
     "Lieux historiques/Royaumes/Israël.md",
     "Lieux historiques/Royaumes/Assyrie.md",
     "Lieux historiques/Royaumes/Syrie.md",
@@ -191,20 +212,6 @@
     "Lieux historiques/Régions géographiques/Anti-Liban.md",
     "Lieux historiques/Régions géographiques/Mont Nebo.md",
     "Lieux historiques/Régions géographiques/Montagne de Hor.md",
-    "Lieux historiques/Régions géographiques/Palestine.md",
-    "Formation disciples/Histoire de l'Eglise/L'Eglise primitive jusqu'avant la réforme.md",
-    "Définitions/Zélotes.md",
-    "Formation disciples/Histoire de l'Eglise/Conclusions de l'histoire l'Eglise.md",
-    "Formation disciples/Histoire de l'Eglise/L'Eglise au temps de réforme.md",
-    "Formation disciples/Formation disciples POC Reims.md",
-    "Définitions/Déisme.md",
-    "Définitions/Luthéranisme.md",
-    "Formation disciples/Histoire de l'Eglise/Personnages/Mary 1st.md",
-    "Formation disciples/Histoire de l'Eglise/Personnages/Edouard VI.md",
-    "Formation disciples/Histoire de l'Eglise/Personnages/Elizabeth 1st.md",
-    "Définitions/Transsubstantiation.md",
-    "Définitions/Calvinisme.md",
-    "Formation disciples/Histoire de l'Eglise/Personnages/Henry VIII.md",
     "Formation disciples/Histoire de l'Eglise/Régions/Images/Saxe.png",
     "Histoire après l'église primitive/Régions/Images/Non confirmé 197929.crdownload",
     "Formation disciples/Histoire de l'Eglise/Régions/Images/Westphalia_x3.svg.png",
@@ -217,13 +224,11 @@
     "Formation disciples/Histoire de l'Eglise/Royaumes/Images",
     "Histoire après l'église primitive/Royaumes/Nouveau dossier",
     "Formation disciples/Histoire de l'Eglise/Royaumes",
-    "Formation disciples/Histoire de l'Eglise/Personnages",
     "Lieux historiques/Images/Mer rouge.png",
     "Lieux historiques/Images/Aqaba.png",
     "Lieux historiques/Images/Egypte.PNG",
     "Lieux historiques/Images/Arménie.PNG",
     "Lieux historiques/Images/Pitom.PNG",
-    "Lieux historiques/Images/Ramsès city.PNG",
-    "Lieux historiques/Images/Méditerranée.png"
+    "Lieux historiques/Images/Ramsès city.PNG"
   ]
 }

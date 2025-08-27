@@ -31,7 +31,9 @@ L'histoire de l'[[Eglise]] reflète aussi l'échec de l'homme, et l'œuvre souve
 C'est vraiment difficile de se définir chrétien sans vivre avec l'[[Eglise]]
 Vivre sans [[Eglise]] ce n'est pas un chrétien. Car même dans la persécution l'église peut se réunir.
 ## 1 - L'église persécutées
-Période de temps : 30-313
+```
+Période : 30-313
+```
 ### 1.1 Les origines de l'église avant la persécution
 L'ascension de [[Jésus]] n'est pas à oublier. La bonne nouvelle est partagée :
 - Les enseignements des [[Apôtres]] ont beaucoup aidés aux fondations de l'[[Eglise]]
@@ -55,18 +57,14 @@ Ce dont les chrétiens étaient régulièrement accusés par les [[Romains]] (et
 
 De plus, les conflit entre chrétiens et juifs sont présents depuis [[Actes]], car selon les juifs : c'est une hérésie.
 ### 1.3 Les persécutions romaines
-Une fois l'église de [[Rome]], Neiron
-64-68 : accusés d'avoir brûler [[Rome]], probablement le moment où [[Simon Pierre]] et [[Paul]] ont été exécutés
-
-Plus le temps passait, plus les nobles se convertissaient.
-
-Trajan : punir les chrétiens si dénoncés
-
-Marc Aurèle intensifie les persécutions en particulier en Gaule (ancien nom de la région correspondant à la [[France]]), car vrai source de foi : martyrs gaulois
-
-Sévère jusqu'à 211 : peine de mort
-
-Dès : persécution impériale, sacrifiés aux dieux romains
+Plus le temps passait, plus les nobles [[Romains|romains]] se convertissaient.
+Une fois l'église de [[Rome]] fondée, l'empereur [[Romains|romain]] Néron prend le pouvoir
+- 64-68 : persécutions contre les chrétiens qui sont accusés d'avoir brûler [[Rome]]
+	- probablement le moment où [[Simon Pierre]] et [[Paul]] auraient été exécutés
+- 98-117 (règne de l'empereur [[Romains|romain]] `Trajan`) : les chrétiens sont punis si dénoncés
+- 161-180 (règne de l'empereur [[Romains|romain]] `Marc Aurèle`) : l'empereur intensifie les persécutions en particulier en Gaule (ancien nom de la région correspondant à la [[France]]), car vrai source de foi -> martyrs gaulois
+- 193-211 (règne de l'empereur [[Romains|romain]] `Sévère`) : peine de mort jusqu'à la fin du règne de cet empereur
+- 250-251 : persécution impériale où les chrétiens doivent être sacrifiés aux dieux [[Romains|romains]]
 
 Valeriants : vise les évêques (bergers/pasteurs) et les prêtres (les serviteurs de l'église). Dépouillement
 
@@ -88,16 +86,18 @@ Constantin a sa femme chrétienne. Il a eut une vision de la croix puis se conve
 
 Les églises de l'époque n'avait pas de dogme : elles suivaient [[Jésus]] et le [[Saint-Esprit]]
 ## 2 - l'église dominatrice
-313-1517
-L'édit de Milan jusqu'à la réforme protestante
-### 2 - tolérance puis religion officielle
+```
+Période : 313-1517
+Ce qui correspond à l'édit de Milan jusqu'à la réforme protestante
+```
+### 2.1 - tolérance puis religion officielle
 Constantin accorde des privilèges aux églises (fiscalité, posséder des biens, aides au bâtiments)
 Concil de Nicé 325 : contre arianisme, soit nier la divinité de [[Jésus]]
 -> créneau de Nicé déclare que la trinité est une réalité
 
 380-395 édit de [[Thessalonique]] annonce la religion de l'empire romain
 L'interdiction des autres cultures fait qu'il n'y avait pas le choix, soit pas l'amour de [[Dieu]], ce qui a causé des guerres
-### 3 - montée en puissance
+### 2.2 - montée en puissance de l'église
 Chute de [[Rome]] fait qu'il n'y avait plus de politique. L'[[Eglise]] a pris le rôle de l'autorité, ce qui a mené aux problèmes théologique, car ce n'est pas le rôle de l'église d'être 
 
 La foi a été imposé par les armes aux peuples barbares (romains, scandinaves...)
@@ -111,9 +111,12 @@ Monachisme : Saint Benoît créer ça au VIeme siècle environ
 Mais la [[Bible]] a pu être préservée
 > Pour montrer que dans l'histoire de l'Eglise, même si il y avait des erreurs et mauvaises décisions, il y avait quand même des bénédictions
 
-Charlemagne et son alliance avec le Pape : Saint Empire Romain Germanique. Donc le clergé se politise, et le pape a un vrai pouvoir sur le monde
--> mais [[Dieu]] n'a pas demandé à ce que l'on domine le monde
-### 4 - centralisation du pouvoir et réforme grégorienne
+[[Charlemagne]] allie son empire avec le [[Pape]] (alliance perdurant avec le [[Saint-Empire Romain Germanique]])
+<u>Conséquences :</u>
+- Politisation du clergé se politise
+- Le [[Pape]] obtient un vrai pouvoir sur le monde
+-> mais [[Dieu]] n'a pas demandé à ce que l'[[Eglise]] domine le monde
+### 2.3 - centralisation du pouvoir et réforme grégorienne
 Xieme siècle
 Simonie (Simon le magicien): le fait d'acheter sa position dans le clergé, ou 
 
@@ -126,7 +129,7 @@ Dictatus papeae : tout les rois doivent être soumis au pape.
 Le clergé n'est pas forcément lié au catholicisme, c'est le fait d'hiérarchisation
 
 Beaucoup de guerres de religions car les rois
-### 5 - croisades
+### 2.4 - croisades
 XI-XIIIeme siècle
 Urbain 2 appelle à libérer [[Jérusalem]] des sarasiens (musulmans de l'époque)
 
@@ -147,11 +150,11 @@ Déclarer que le pain et le vin son littéralement le corps de [[Jésus]], avec 
 Les personnes de l'époque entraient en place en cherchant à mettre des réformes pour marquer leur temps, tel des politiques
 
 Inquisitions catholique : Quatar (sud France) et vodois (Nord Italie) car ils ont été visités par le [[Saint-Esprit]]
-### 6 - déclin des Papes
+### 2.5 - déclin des Papes
 XII-XIVeme
 Captivité d'Avignon : papes en France
 Divisions entre le Pape de [[Rome]] et les orientaux. Ce qui a mené au Pape suprême
-### 7 - Préparation de la Réforme
+### 2.6 - Préparation de la Réforme
 XIV-XVeme
 Montée contestations sur la richesse du clergé.
 Développement de la lecture personnelle de la [[Bible]]
@@ -166,9 +169,8 @@ Catholique : veux dire universel
 
 Communauté persécutées -> pouvoir plus que considérable 
 On doit s'appuyer sur le spirituel pour avancer le [[Royaume de Dieu]], et non pour ses intérêts personnels
+## Réforme de 1517
+Suite : [[L'Eglise au temps des réformes]]
 
-## réforme de 1517
-(Suite plus tard)
-
-Aujourd'hui on a le problème inverse des juifs qui se convertissaient : on a la grâce facile du [[Saint-Esprit]], mais là discipline nous manque.
-La [[Bible]] a été réunie et formée au premier siècle. Il a été décidé des livres par le [[Saint-Esprit]], et des livres avec des histoires banales et fausses doctrines tel que la sacralisation de [[Marie]] ont été écartés à ces moments.
+Aujourd'hui on a le problème inverse des juifs qui se convertissaient : on a la grâce facile du [[Saint-Esprit]], mais la discipline nous manque.
+La [[Bible]] a été réunie et formée au premier siècle. Il a été décidé des livres par le discernement du [[Saint-Esprit]], et les [[Apocryphes]] ont été écartés à ces moments.

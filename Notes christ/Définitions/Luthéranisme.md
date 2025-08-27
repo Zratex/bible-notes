@@ -1,5 +1,5 @@
 ==Luthéranisme :== courant de pensé protestant créé suite par [[Martin Luther]]
->C'est une note résumée de ce qui est dit dans [[L'Eglise au temps de réforme]], où est développé les oppositions avec le [[Calvinisme|Calvanisme (Eglise réformée)]]
+>C'est une note résumée de ce qui est dit dans [[L'Eglise au temps des réformes]], où est développé les oppositions avec le [[Calvinisme|Calvanisme (Eglise réformée)]]
 
 Résumé de ses principes :
 - Sola Gratia

@@ -1,8 +1,9 @@
 Apporté par Lucas le 02/05/2025, qui fait suite à [[L'Eglise primitive jusqu'avant la réforme]]
+C'est la partie 2 de [[Formation disciples POC Reims#L'histoire de l'Eglise|l'histoire de l'Eglise]]
 ## 1 - Contexte
-### 1.1 Pouvoir de l'Église avant la réforme
-L'église a un pouvoir politique incontesté en Europe, et cela s'illustre notamment par :
-- soumission papale de son organisation et d'une grande partie du continent
+### 1.1 Pouvoir de l'église avant la réforme
+L'église catholique a un pouvoir politique incontesté en Europe, et cela s'illustre notamment par :
+- soumission [[Pape|papale]] de son organisation et d'une grande partie du continent
 - monarchies de droits divin
 - très grand contrôle des terres et richesses par l'église.
 - Pouvoir judiciaire car tout le monde DOIT être fidèle. Sinon, excommunions (pression sociale)
@@ -10,8 +11,11 @@ L'église a un pouvoir politique incontesté en Europe, et cela s'illustre notam
 	- Contrôle de l'ancêtre des écoles
 	- Contrôle presque complet des courants artistiques
 
-Mais cette période c'est le début des traductions de la [[Bible]]
--> Jusque là la [[Bible]] était basée sur qu'une seule traduction de l'antiquité en grecque dont personne n'osait traduire pendant plusieurs siècles.
+Mais cette période sera le début des traductions en langue locale de la [[Bible]]
+-> Jusque là, la [[Bible]] était basée sur qu'une seule traduction :
+- En Orient principalement : [[Septante]] en grecque
+- En Occident principalement : [[Vulgate]] en latin
+Et à cause de la situation qui avait causé le chaos des textes précédents la création de la [[Vulgate]] par [[Jérôme de Stridon]], personne n'osait traduire ces textes en langue locale pendant plusieurs siècles.
 ### 1.2 Renaissance et humanisme
 ```
 Période : 1492-1610
@@ -23,7 +27,7 @@ Ce qui change :
 	- <u>Conséquence :</u> Ce mouvement pousse aussi vers les textes antiques autre que la [[Bible]] (exemple : littérature grecque)
 ![[Humanisme]]
 ### 1.3 indulgences systématiques
-2 concepts introduits :
+2 concepts introduits dans l'église catholique :
 - [[Indulgences]]
 - [[Purgatoire]]
 ![[Indulgences]]
@@ -49,13 +53,13 @@ Certains politiques en ont marre de l'influence du [[Pape]] dans les affaires de
 	- L'[[UK|Angleterre]] beaucoup plus tard (développé dans la suite de cette note)
 ## 2 - Réforme de [[Martin Luther|Luther]]
 ### 2.1 Réforme basée sur la Parole
-A savoir que les idées de la réforme était une tendance de l'époque, mais pas pris sérieusement tant qu'elles ne venaient pas d'un membre de l'Eglise. C'est pourquoi on attribue la réforme à [[Martin Luther]] puisse qu'il est le premier religieux à s'être positionné contre les principe de l'église catholique.
+Les idées de la réforme était une tendance de l'époque, mais pas pris sérieusement tant qu'elles ne venaient pas d'un membre de l'église. C'est pourquoi on attribue la réforme à [[Martin Luther]] puisse qu'il est le premier religieux à s'être positionné contre les principe de l'église catholique.
 
 A savoir que :
 - [[Martin Luther]] ne voulait pas créer un courant théologique contraire à l'église catholique, mais de réformer celle ci
 - [[Martin Luther]] était un prêtre catholique, mais n'était pas converti. Il a eut pour la fun fact le discernement du [[Saint-Esprit]], ce qui lui a mené à faire ces actions, en lisant le livre [[6 - Romains]]
 
-En effet, [[Martin Luther]] affiche 95 thèses sur des portes et places publiques en développant 4 idées principales :
+En effet en 1517 (d'où le nom **réforme de 1517**), [[Martin Luther]] affiche 95 thèses sur des portes et places publiques en développant 4 idées principales :
 - [[6 - Romains#Versets 16 à 17|Romains 1:17]] : les [[Indulgences]] sont contraires à la [[Bible]]
 - [[10 - Ephésiens#Versets 1 à 10|Ephesiens 2:8-9]] : les [[Indulgences]] ne servent à rien
 - [[1er Evangile - Matthieu#Versets 12 à 25|Matthieu 4:17]] : être chrétien est quelque chose qui se devient, on ne l'est pas automatiquement, et ça se fait **par la repentance**
@@ -67,7 +71,7 @@ En effet, [[Martin Luther]] affiche 95 thèses sur des portes et places publique
 - La foi devient un engagement personnel
 
 [[Martin Luther|Luther]] met en avant que **seul la [[Bible]] compte**, et non pas la tradition (contrairement au catholicisme qui a la [[Bible]] comme base mais les traditions importes plus que tout)
--> Plus développé ici : [[L'Eglise au temps de réforme#2.3 Bases du Luthéranisme (et des mouvements protestants)|2.3]]
+-> Plus développé ici : [[L'Eglise au temps des réformes#2.3 Bases du Luthéranisme (et des mouvements protestants)|2.3]]
 
 Enchaînement des événements :
 - 1520 : [[Pape|Pape]] Léon X menace [[Martin Luther|Luther]] d'excommunication par une lettre. [[Martin Luther|Luther]] brûle sa menace

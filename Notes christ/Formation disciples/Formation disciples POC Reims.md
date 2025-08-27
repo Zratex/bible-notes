@@ -7,12 +7,10 @@ Cette note sera un peu un hub de toutes les notes qui seront liées à ces sessi
 Le premier thème porte sur l'histoire de l'[[Eglise]] :
 - Partie 1 : [[L'Eglise primitive jusqu'avant la réforme]]
 	- Echelle de temps : `~30 à 1517`
-- Partie 2 : [[L'Eglise au temps de réforme]]
+- Partie 2 : [[L'Eglise au temps des réformes]]
 	- Echelle de temps : `1517 à ~1792`
-#### L'intérêt de l'histoire de l'Eglise
-()
-Etudier son histoire nous donne de véritable enseignement pour notre foi.
-#### Recommandations de lectures
+L'intérêt de l'histoire de l'[[Eglise]] :  Donne de véritable enseignement pour notre foi d'aujourd'hui
+#### Recommandations de lectures pour approfondir l'histoire de l'Eglise
 Voici quelques livres pour approfondir l'histoire de l'[[Eglise]] :
 - Le [[Nouveau testament]] témoigne pleinement l'[[Eglise]] primitive. Et l'approfondissement peut se faire au travers de :
 	- Sa simple lecture

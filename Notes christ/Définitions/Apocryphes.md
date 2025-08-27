@@ -1,4 +1,4 @@
-==Apocryphe :== Bien souvent des livres dont l'église (ça dépend du courant) ne considère pas canon
+==Apocryphe :== Bien souvent des livres dont l'église (ça dépend du courant) ne considère pas canon. C'est un principe principalement mis en avant par [[Jérôme de Stridon]].
 
 Les raisons de pourquoi un livre est apocryphe sont bien souvent car :
 - L'authenticité du livre est douteuse

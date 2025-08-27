@@ -1,1 +1,1 @@
-Capitale de l'empire [[Romains]], et toujours la capitale de l'actuelle Italie, située au centre de l'Italie.
+Capitale de l'empire [[Romains]], et toujours la capitale de l'actuelle [[Italie]], située au centre de l'[[Italie]].

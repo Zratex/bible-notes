@@ -1,5 +1,5 @@
 Le Saint-Empire Romain Germanique est un empire millénaire puissant dans l'Europe centrale.
->Le principe de cet empire est qu'il se considère que l'hériter de l'empire [[Romains]], sous la tutelle du [[Pape]] à [[Rome]] 
+>Le principe de cet empire est qu'il se considère que l'hériter de l'empire [[Romains]], sous la tutelle du [[Pape]] à [[Rome]], héritage de l'alliance de [[Charlemagne]]
 
 La spécificité de cet empire est qu'il est assez similaire à un fonctionnement fédéral. Ce qu'il fait que **les peuples germains sont** (encore dans l'histoire moderne de l'[[Allemagne]]) **une nation très segmentée**, bien que généralement la langue communément parlée est l'[[Allemagne#L'allemand (langue)|allemand]]
 

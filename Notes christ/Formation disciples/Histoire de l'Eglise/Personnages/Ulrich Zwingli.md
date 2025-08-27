@@ -1,2 +1,2 @@
-Ulrich Zwingli est un [[Suisse]] qui va être à l'origine du mouvement de **l'église réformée**, qui suit le mouvement calviniste (voir la note à ce propos dans [[L'Eglise au temps de réforme]])
+Ulrich Zwingli est un [[Suisse]] qui va être à l'origine du mouvement de **l'église réformée**, qui suit le mouvement calviniste (voir la note à ce propos dans [[L'Eglise au temps des réformes]])
 >Plus d'informations à son propos : https://fr.wikipedia.org/wiki/Ulrich_Zwingli

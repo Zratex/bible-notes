@@ -9,5 +9,5 @@ Il eut de 6 femmes, dont notamment :
 - Jeanne Seymour
 	- Avec qui il eut pour fils [[Edouard VI]]
 >Pour plus d'informations à propos :
->- de l'histoire de la naissance du courant, c'est plus développé dans la note [[L'Eglise au temps de réforme]]
+>- de l'histoire de la naissance du courant, c'est plus développé dans la note [[L'Eglise au temps des réformes]]
 >- De qui est Henry VIII : https://fr.wikipedia.org/wiki/Henri_VIII

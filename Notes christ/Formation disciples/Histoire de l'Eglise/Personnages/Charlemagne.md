@@ -1,0 +1,2 @@
+Roi des [[France|francs]] entre 768 et 814, il est l'empereur de l'empire carolingien (nom de sa dynastie), qui à sa chute a mené au royaume de [[France]] et au [[Saint-Empire Romain Germanique]]
+Il allie son empire au [[Pape]], ce qui amorce la politisation du clergé

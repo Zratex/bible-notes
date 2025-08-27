@@ -1,6 +1,6 @@
 ==Calvinisme (ou Eglise réformée) :== courant de pensé protestant popularisé dans les régions alentours des Alpes.
 Ce mouvement théologique a été fondé par [[Ulrich Zwingli]] en [[Suisse]], mais porte son nom auprès du [[France|français]] [[Calvin]].
->C'est une note résumée de ce qui est dit dans [[L'Eglise au temps de réforme]], où est développé les oppositions avec le [[Luthéranisme]]
+>C'est une note résumée de ce qui est dit dans [[L'Eglise au temps des réformes]], où est développé les oppositions avec le [[Luthéranisme]]
 
 Résumé de ses principes :
 - Sola Gratia
