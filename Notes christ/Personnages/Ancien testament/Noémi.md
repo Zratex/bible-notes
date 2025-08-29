@@ -1,0 +1,1 @@
+Belle mère de [[Ruth]]

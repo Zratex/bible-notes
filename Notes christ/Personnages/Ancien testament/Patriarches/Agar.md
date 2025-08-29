@@ -1,0 +1,1 @@
+Servante d'[[Abraham]] d'origine d'[[Egypte]] qui eut pour fils [[Ismaël]] dont [[Abraham]] est le père

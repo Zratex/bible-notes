@@ -6,25 +6,25 @@ Intitulé **[[Jean Baptiste]], messager de [[Dieu]]** par [[Bible#^358f23|BDS]]
 
 1) Ici commence l’[[Note sur l'évangile|Evangile]] de [[Jésus|Jésus-Christ]], le Fils de [[Dieu]],
 2) selon ce qui est écrit dans le livre du prophète [[Esaïe]] :
-   *J’enverrai mon messager devant toi,*
-   *il te préparera le chemin.*
-3) *On entend la voix de quelqu’un ╵qui crie dans le désert :*
-	*Préparez le chemin pour le [[Jésus|Seigneur]],*
-	*faites-lui des sentiers droits.*
-4) [[Jean Baptiste|Jean]] parut. Il baptisait dans le désert. Il appelait les gens à se faire baptiser en signe d’un profond changement, afin de recevoir le pardon de leurs péchés.
-5) Tous les habitants de la [[Judée]] et de [[Jérusalem]] se rendaient auprès de [[Jean Baptiste|lui]]. Ils se faisaient baptiser par [[Jean Baptiste|lui]] dans le [[Jourdain]], en reconnaissant publiquement leurs péchés.
-6) [[Jean Baptiste|Jean]] était vêtu d’un vêtement de poils de chameau maintenu autour de la taille par une ceinture de cuir. Il se nourrissait de sauterelles et de miel sauvage.
-7) Et voici le message qu’[[Jean Baptiste|il]] proclamait : Après moi va venir quelqu’un qui est plus puissant que moi. [[Jean Baptiste|Je]] ne suis pas digne de me baisser devant [[Jésus|lui]] pour dénouer la lanière de ses sandales.
-8) Moi, [[Jean Baptiste|je]] vous ai baptisés dans l’eau, mais [[Jésus|lui]], il vous baptisera dans le [[Saint-Esprit]].
+   *[[39 - Malachie#Versets 1 à 5|J’enverrai mon messager devant toi,]]*
+   *[[39 - Malachie#Versets 1 à 5|il te préparera le chemin.]]*
+3) *[[23 - Esaïe#Versets 1 à 11|On entend la voix de quelqu’un ╵qui crie dans le désert :]]*
+	*[[23 - Esaïe#Versets 1 à 11|Préparez le chemin pour le Seigneur,]]*
+	*[[23 - Esaïe#Versets 1 à 11|faites-lui des sentiers droits.]]*
+3) [[Jean Baptiste|Jean]] parut. [[Jean Baptiste|Il]] baptisait dans le désert. Il appelait les gens à se faire baptiser en signe d’un profond changement, afin de recevoir le pardon de leurs péchés.
+4) Tous les habitants de la [[Judée]] et de [[Jérusalem]] se rendaient auprès de [[Jean Baptiste|lui]]. Ils se faisaient baptiser par [[Jean Baptiste|lui]] dans le [[Jourdain]], en reconnaissant publiquement leurs péchés.
+5) [[Jean Baptiste|Jean]] était vêtu d’un vêtement de poils de chameau maintenu autour de la taille par une ceinture de cuir. Il se nourrissait de sauterelles et de miel sauvage.
+6) Et voici le message qu’[[Jean Baptiste|il]] proclamait : Après [[Jean Baptiste|moi]] va venir quelqu’un qui est plus puissant que [[Jean Baptiste|moi]]. [[Jean Baptiste|Je]] ne suis pas digne de me baisser devant [[Jésus|lui]] pour dénouer la lanière de ses sandales.
+7) Moi, [[Jean Baptiste|je]] vous ai baptisés dans l’eau, mais [[Jésus|lui]], [[Jésus|il]] vous baptisera dans le [[Saint-Esprit]].
 ### Versets 14 à 20
 Intitulé **Ministère de [[Jésus]] en [[Galilée]]** par [[Bible#^358f23|BDS]], sous-titré **Les premiers disciples**
 
 14) Lorsque [[Jean Baptiste|Jean]] eut été arrêté, [[Jésus]] se rendit en [[Galilée]]. Il y prêcha la Bonne Nouvelle de l’[[Note sur l'évangile|Evangile]] qui vient de [[Dieu]].
 15) [[Jésus|Il]] disait : **Le temps est accompli. Le royaume de [[Dieu]] est proche. Changez et croyez à l’[[Note sur l'évangile|Evangile]].**
 16) Un jour, comme [[Jésus|il]] longeait le lac de [[Galilée]], il vit [[Simon Pierre|Simon]] et [[André]], son frère. Ils lançaient un filet dans le lac, car ils étaient pêcheurs.
-17) [[Jésus]] leur dit : **Suivez-moi et je ferai de vous des pêcheurs d’hommes.**
+17) [[Jésus]] leur dit : **Suivez-moi et [[Jésus|je]] ferai de vous des pêcheurs d’hommes.**
 18) Ils abandonnèrent aussitôt leurs filets et [[Jésus|le]] suivirent.
-19) Poursuivant son chemin, il vit, un peu plus loin, [[Jacques (apôtre)|Jacques]], fils de [[Zébédée]], et [[Jean]] son frère. Eux aussi étaient dans leur bateau et réparaient les filets.
+19) Poursuivant [[Jésus|son]] chemin, [[Jésus|il]] vit, un peu plus loin, [[Jacques (apôtre)|Jacques]], fils de [[Zébédée]], et [[Jean]] son frère. Eux aussi étaient dans leur bateau et réparaient les filets.
 20) Aussitôt, [[Jésus|il]] les appela. Ils laissèrent [[Zébédée]], leur père, dans le bateau, avec ses ouvriers, et suivirent [[Jésus]].
 ## Chapitre 7
 ### Versets 1 à 23

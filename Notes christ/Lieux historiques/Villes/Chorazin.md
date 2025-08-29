@@ -1,0 +1,2 @@
+**Chorazeïn** (ou **Chorazin**) est une ville d'[[Israël]] situé au nord du lac de [[Lieux historiques/Régions géographiques/Galilée|Galilée]], quelques kilomètres à l'ouest du [[Jourdain]] et au nord de [[Capharnaüm]]
+![[Chorazin.PNG]]

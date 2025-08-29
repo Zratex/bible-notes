@@ -1,0 +1,1 @@
+L'Écosse est un royaume du [[UK|Royaume-Uni]] dans la partie nord de l'île principale britannique

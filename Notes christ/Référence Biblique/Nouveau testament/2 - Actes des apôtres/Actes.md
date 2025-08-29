@@ -100,6 +100,33 @@ Intitulé **[[Simon Pierre|Pierre]] explique le miracle** par [[Bible#^358f23|BD
 24) Tous les prophètes qui ont parlé, depuis [[Samuel]] et ses successeurs, ont annoncé aussi d’avance les temps que nous vivons aujourd’hui.
 25) Vous êtes les héritiers de ces prophètes, les bénéficiaires de l’alliance que [[Dieu]] a conclue avec nos ancêtres lorsqu’il a promis à [[Abraham]] : [[Genèse#Versets 1 à 11|Toutes les familles de la terre seront bénies à travers ta descendance.]]
 26) C’est pour vous, en premier lieu, que [[Dieu]] a ressuscité [[Jésus|son serviteur]] ; et [[Dieu|il]] vous l’a envoyé pour vous bénir, en détournant chacun de vous de ses mauvaises actions.
+## Chapitre 4
+### Versets 1 à 22
+Intitulé **[[Simon Pierre|Pierre]] et [[Jean]] devant le [[Sanhédrin|Grand-Conseil]]** par [[Bible#^358f23|BDS]]
+
+1) Pendant qu’ils parlaient ainsi à la foule, survinrent quelques prêtres accompagnés du chef de la police du Temple et des membres du parti des [[Sadducéen|sadducéens]] :
+2) ils étaient irrités de voir les [[Apôtres|apôtres]] enseigner le peuple et leur annoncer que, puisque [[Jésus|Jésus]] était ressuscité, les morts ressusciteraient eux aussi.
+3) Ils les arrêtèrent donc et, comme il se faisait déjà tard, ils les jetèrent en prison jusqu’au lendemain.
+4) Cependant, parmi ceux qui avaient entendu leurs paroles, beaucoup crurent, ce qui porta le nombre des croyants à près de cinq mille hommes.
+5) Le lendemain, les chefs des Juifs, les responsables du peuple et les spécialistes de la [[La Loi de Dieu|Loi]] se réunirent à [[Jérusalem|Jérusalem]].
+6) Il y avait là, en particulier, [[Anân|Hanne]] le [[Grand-prêtre|grand-prêtre]], [[Caïphe|Caïphe]], Jean, Alexandre et tous les membres de la famille du [[Grand-prêtre|grand-prêtre]].
+7) Ils firent comparaître [[Simon Pierre|Pierre]] et [[Jean|Jean]], les placèrent au milieu de [[Sanhédrin|leur assemblée]] et les interrogèrent : Par quel pouvoir ou au nom de qui avez-vous fait cela ?
+8) Alors [[Simon Pierre|Pierre]], rempli de l’[[Saint-Esprit|Esprit Saint]], leur répondit :
+   Dirigeants et responsables de notre peuple !
+9) Nous sommes aujourd’hui interrogés sur le bien que nous avons fait à un infirme et sur la manière dont il a été guéri.
+10) Eh bien, sachez-le tous, et que tout le peuple d’[[Israël|Israël]] le sache : c’est au nom de [[Jésus|Jésus-Christ]] de [[Nazareth|Nazareth]] que nous avons agi, de ce [[Jésus|Jésus]] que vous avez crucifié et que [[Dieu|Dieu]] a ressuscité ; c’est grâce à [[Jésus|lui]] que cet homme se tient là, debout, devant vous, en bonne santé.
+11) [[Jésus|Il]] est *[[19 - Psaumes#Chapitre 118|la pierre rejetée par les constructeurs – par vous – et qui est devenue la pierre principale, la pierre d’angle]]*.
+12) C’est en [[Jésus|lui]] seul que se trouve le salut. Dans le monde entier, [[Dieu|Dieu]] n’a jamais donné le nom d’aucun autre homme par lequel nous devions être sauvés.
+13) Les membres du [[Sanhédrin|Grand-Conseil]] étaient étonnés de voir l’assurance de [[Simon Pierre|Pierre]] et de [[Jean|Jean]], car ils se rendaient compte que c’étaient des gens simples et sans instruction ; ils les reconnaissaient pour avoir été avec [[Jésus|Jésus]].
+14) Mais, comme ils voyaient, debout à côté d’eux, l’homme qui avait été guéri, ils ne trouvaient rien à répondre.
+15) Alors ils leur ordonnèrent de sortir de la salle et délibérèrent entre eux :
+16) Qu’allons-nous faire de ces gens-là ? disaient-ils. Car ils ont accompli un signe miraculeux évident et tous les habitants de [[Jérusalem|Jérusalem]] sont au courant. Nous ne pouvons pas le nier.
+17) Mais il ne faut pas que cela s’ébruite davantage parmi le peuple. Défendons-leur donc, sous peine de sanctions, de parler désormais à qui que ce soit au nom de [[Jésus|Jésus]].
+18) Là-dessus, ils les firent rappeler et leur interdirent formellement de parler ou d’enseigner au nom de [[Jésus|Jésus]].
+19) Mais [[Simon Pierre|Pierre]] et [[Jean|Jean]] leur répondirent : Jugez-en vous-mêmes : est-il juste devant [[Dieu|Dieu]] de vous obéir, plutôt qu’à [[Dieu|Dieu]] ?
+20) Quant à nous, nous ne pouvons pas garder le silence sur ce que nous avons vu et entendu.
+21) Après leur avoir fait de nouvelles menaces, ils les relâchèrent. En effet, ils n’avaient pas trouvé de moyen de les punir, parce que tout le peuple louait [[Dieu|Dieu]] pour ce qui venait d’arriver.
+22) L’homme qui avait été miraculeusement guéri était âgé de plus de quarante ans.
 ## Chapitre 8
 Intitulé **Témoins en [[Judée]] et en [[Samarie]]** par [[Bible#^358f23|BDS]]
 ### Versets 1 à 3

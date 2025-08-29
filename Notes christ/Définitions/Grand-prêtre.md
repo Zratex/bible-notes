@@ -1,0 +1,2 @@
+==Grand-prêtre :== Simplement le plus grand des prêtres en [[Israël]]. Lui ainsi que les prêtres juifs appartiennent à la lignée d'[[Aaron]].
+Après la reconstruction du Temple, il a la fonction de président du [[Sanhédrin]]

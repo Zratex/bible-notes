@@ -8,6 +8,21 @@ Intitulé **Un seul [[Note sur l'évangile|Evangile]]** par [[Bible#^358f23|BDS]
 8) Eh bien, si quelqu’un – même nous, même un ange du ciel – vous annonçait un [[Note sur l'évangile|Evangile]] différent de celui que nous vous avons annoncé, qu’il soit maudit  !
 9) [[Paul|Je]] l’ai déjà dit et je le répète maintenant : si quelqu’un vous prêche un autre [[Note sur l'évangile|Evangile]] que celui que vous avez reçu, qu’il soit maudit !
 10) Qu’en pensez-vous maintenant ? Est-ce la faveur des hommes que [[Paul|je]] recherche ou celle de [[Dieu]] ? Mon désir est-il de plaire aux hommes ? Si je cherchais encore à plaire aux hommes, je ne serais pas serviteur de [[Jésus|Christ]].
+## Chapitre 2
+### Versets 11 à 21
+Intitulé **[[Paul]] et [[Simon Pierre|Pierre]] à [[Antioche]]** par [[Bible#^358f23|BDS]]
+
+11) Mais, lorsque [[Simon Pierre|Pierre]] est venu à [[Antioche|Antioche]], [[Paul|je]] me suis opposé ouvertement à [[Simon Pierre|lui]], car [[Simon Pierre|il]] avait tort.
+12) En effet, avant l’arrivée de quelques personnes de l’entourage de [[Jacques (épistolier)|Jacques]], [[Simon Pierre|il]] prenait part aux repas communs avec les croyants non juifs ; mais après leur venue, [[Simon Pierre|il]] s’est esquivé et s’est tenu à l’écart, parce qu’[[Simon Pierre|il]] craignait les croyants d’origine juive.
+13) Comme [[Simon Pierre|lui]], les autres chrétiens d’origine juive se sont mis, eux aussi, à cacher leurs véritables convictions, au point que [[Barnabas|Barnabas]] lui-même s’est laissé entraîner par leur dissimulation.
+14) Mais quand [[Paul|j]]’ai vu qu’ils ne marchaient pas droit, selon la vérité de l’[[Note sur l'évangile|Evangile]], [[Paul|j]]’ai dit à [[Simon Pierre|Pierre]] devant tous les frères : « [[Simon Pierre|Toi]] qui es juif, [[Simon Pierre|tu]] vis comme un croyant d’origine païenne, et non comme un Juif. Comment peux-[[Simon Pierre|tu]] vouloir obliger les frères et sœurs d’origine païenne à vivre comme des Juifs ? »
+15) Nous qui sommes juifs de naissance, nous ne faisons pas partie de ces « pécheurs » que sont les païens.
+16) Cependant, nous avons compris qu’on est déclaré juste devant [[Dieu|Dieu]], non parce qu’on accomplit les œuvres que commande la [[La Loi de Dieu|Loi]], mais uniquement par la foi en [[Jésus|Jésus-Christ]]. C’est pourquoi nous avons, nous aussi, placé notre confiance en [[Jésus|Jésus-Christ]] pour être déclarés justes par la foi et non parce que nous aurions accompli ce que la [[La Loi de Dieu|Loi]] ordonne. Car *[[19 - Psaumes#Chapitre 143|personne ne sera déclaré juste devant Dieu]]* parce qu’il aura accompli ce qu’ordonne la [[La Loi de Dieu|Loi]].
+17) Mais si, en cherchant à être déclarés justes dans l’union avec [[Jésus|Christ]], nous avons montré par là même que nous étions des pécheurs comme les païens, cela signifie-t-il que [[Jésus|Christ]] est complice du péché ? Loin de là !
+18) Car si [[Paul|je]] remets en vigueur le régime de la [[La Loi de Dieu|Loi]] que [[Paul|j]]’ai abandonné, alors [[Paul|je]] me place moi-même dans la situation d’un homme qui transgresse la [[La Loi de Dieu|Loi]].
+19) Car c’est par la [[La Loi de Dieu|Loi]] que [[Paul|je]] suis mort au régime de la [[La Loi de Dieu|Loi]] afin de vivre pour [[Dieu|Dieu]]. En effet, [[Paul|je]] suis crucifié avec [[Jésus|Christ]].
+20) Ce n’est plus moi qui vis, c’est [[Jésus|Christ]] qui vit en moi. Ma vie en tant qu’homme, je la vis maintenant dans la foi au [[Jésus|Fils]] de [[Dieu|Dieu]] qui, par amour pour moi, s’est livré à la mort à ma place.
+21) Ainsi, [[Paul|je]] ne rejette pas la grâce de [[Dieu|Dieu]] car si c’est l’obéissance à la [[La Loi de Dieu|Loi]] qui permet d’être déclaré juste, alors [[Jésus|Christ]] est mort pour rien !
 ## Chapitre 3
 ### Versets 1 à 6
 Intitulé **Par la [[La Loi de Dieu|Loi]] ou par la foi ?** par [[Bible#^358f23|BDS]]
@@ -53,7 +68,7 @@ Intitulé **L'Esprit et l'homme livré à lui même** par [[Bible#^358f23|BDS]]
 14) Car la [[La Loi de Dieu|Loi]] se trouve accomplie tout entière par l’obéissance à cette seule parole : **Tu aimeras ton prochain comme toi-même.**
 15) Mais si vous vous blessez les uns les autres et si vous vous entre-déchirez, prenez garde ! vous vous détruirez mutuellement.
 16) Je vous dis donc ceci : menez votre vie dans la dépendance du [[Saint-Esprit]], et vous n’obéirez pas aux désirs qui animent l’homme livré à lui-même.
-17) Car ses désirs sont diamétralement opposés à ceux de l’[[Saint-Esprit|Esprit]] ; et l’Esprit a des désirs qui s’opposent à ceux de l’homme livré à lui-même. Les deux sont opposés l’un à l’autre, c’est pourquoi vous ne pouvez pas être votre propre maître.
+17) Car ses désirs sont diamétralement opposés à ceux de l’[[Saint-Esprit|Esprit]] ; et l’[[Saint-Esprit|Esprit]] a des désirs qui s’opposent à ceux de l’homme livré à lui-même. Les deux sont opposés l’un à l’autre, c’est pourquoi vous ne pouvez pas être votre propre maître.
 18) Mais si vous êtes conduits par l’[[Saint-Esprit|Esprit]], vous n’êtes plus sous le régime de la [[La Loi de Dieu|Loi]].
 19) Tout le monde voit bien ce qui procède de l’homme livré à lui-même : l’immoralité, les pratiques dégradantes et la débauche,
 20) l’adoration des idoles et la magie, les haines, les querelles, la jalousie, les accès de colère, les rivalités, les dissensions, les divisions,

@@ -1,0 +1,1 @@
+Cité-état fondée en 1929 par [[Mussolini]] localisée au sein de la ville de [[Rome]]. Cet état a pour but d'être la demeure des hauts fonctionnaires de l'église catholique, ainsi que la demeure du [[Pape]]

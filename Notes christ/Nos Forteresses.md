@@ -1,4 +1,4 @@
-Notes commencées par un message par Ulrich intitulé "Je renverse mes forteresses pour conquérir mon héritage" le 16 Juillet 2023.
+Notes commencées par un message par Ulrick intitulé "Je renverse mes forteresses pour conquérir mon héritage" le 16 Juillet 2023.
 
 [[7&8 - Corinthiens#Versets 1 à 4|2 Corinthiens 10:1-4]] qu'elles sont les forteresses : [[7&8 - Corinthiens#Versets 5 et 6|2 Corinthiens 10:5-6]]
 ## - Raisonnements

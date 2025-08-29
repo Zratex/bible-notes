@@ -1,0 +1,2 @@
+==Louange :== Déclarer quelqu'un/quelque chose qui est digne d'admiration, ou qui est de très grande estime pour celui qui loue. (définition inspiré du Dictionnaire Robert)
+>Cela se traduit par remercier [[Dieu]] en musique, reconnaître qui il est, déclaration d'amour

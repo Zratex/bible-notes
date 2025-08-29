@@ -1,0 +1,15 @@
+Troisième partie du [[Tanakh]] incluant dans l'ordre de l'époque :
+- Les **livres poétiques**, incluant :
+	- "Tehillim" ([[19 - Psaumes]])
+	- "Mishlei" ([[20 - Proverbes]])
+	- [[18 - Job]]
+- Les 5 rouleaux (ou "**Meguiloth**"), incluant :
+	- "Chir haChirim" ([[22 - Cantique des cantiques]])
+	- [[8 - Ruth]]
+	- "Eikha" ([[25 - Lamentations]])
+	- "Qohelet" ([[21 - Ecclésiaste]])
+	- [[16 - Esther]]
+- Les autres **livres historiques** :
+	- [[27 - Daniel]]
+	- [[14 - Esdras]] (dont [[15 - Néhémie]] aurait été extrait)
+	- [[12&13 - Chroniques]]

@@ -1,0 +1,1 @@
+==Porter sa croix :== être, après une démarche de [[Repentance]]/renoncement, avec [[Dieu]] en tout temps et dans ses œuvres

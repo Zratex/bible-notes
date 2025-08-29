@@ -4,39 +4,24 @@
     "type": "split",
     "children": [
       {
-        "id": "1932c992dd3a869d",
+        "id": "63e992e2e8c45ced",
         "type": "tabs",
         "children": [
           {
-            "id": "3644076f9a9a83b1",
+            "id": "a081a45f92df0e22",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Chemin vérité vie.md",
+                "file": "Définitions/Vulgate.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Chemin vérité vie"
-            }
-          },
-          {
-            "id": "0ea8bfd2775d59b7",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Marcher dans le royaume de Dieu.md",
-                "mode": "source",
-                "source": false
-              },
-              "icon": "lucide-file",
-              "title": "Marcher dans le royaume de Dieu"
+              "title": "Vulgate"
             }
           }
-        ],
-        "currentTab": 1
+        ]
       }
     ],
     "direction": "vertical"
@@ -68,7 +53,7 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "famille de dieu",
+                "query": "",
                 "matchingCase": false,
                 "explainSearch": false,
                 "collapseAll": false,
@@ -109,7 +94,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Vie équilibré.md",
+                "file": "Définitions/Septante.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -119,7 +104,7 @@
                 "unlinkedCollapsed": true
               },
               "icon": "links-coming-in",
-              "title": "Backlinks for Vie équilibré"
+              "title": "Backlinks for Septante"
             }
           },
           {
@@ -128,12 +113,12 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "Vie équilibré.md",
+                "file": "Définitions/Septante.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               },
               "icon": "links-going-out",
-              "title": "Outgoing links from Vie équilibré"
+              "title": "Outgoing links from Septante"
             }
           },
           {
@@ -143,7 +128,9 @@
               "type": "tag",
               "state": {
                 "sortOrder": "frequency",
-                "useHierarchy": true
+                "useHierarchy": true,
+                "showSearch": false,
+                "searchQuery": ""
               },
               "icon": "lucide-tags",
               "title": "Tags"
@@ -155,10 +142,13 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "Vie équilibré.md"
+                "file": "Définitions/Septante.md",
+                "followCursor": false,
+                "showSearch": false,
+                "searchQuery": ""
               },
               "icon": "lucide-list",
-              "title": "Outline of Vie équilibré"
+              "title": "Outline of Septante"
             }
           },
           {
@@ -175,12 +165,12 @@
               "title": "All properties"
             }
           }
-        ]
+        ],
+        "currentTab": 1
       }
     ],
     "direction": "horizontal",
-    "width": 300,
-    "collapsed": true
+    "width": 300
   },
   "left-ribbon": {
     "hiddenItems": {
@@ -192,53 +182,53 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "0ea8bfd2775d59b7",
+  "active": "412ad4b021e16018",
   "lastOpenFiles": [
-    "Définitions/Stades dans la foi/Enfants dans la foi.md",
-    "Définitions/Stades dans la foi/Jeunes dans la foi.md",
-    "Vie dans la famille de Dieu.md",
-    "Définitions/Stades dans la foi/Pères dans la foi.md",
-    "Daniel a ouvert les fenêtres.md",
-    "Marcher dans le royaume de Dieu.md",
-    "Définitions/Stades dans la foi",
-    "Chemin vérité vie.md",
-    "Définitions/Royaume de Dieu.md",
-    "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/9 - Galates.md",
-    "Référence Biblique/Ancien testament/1 - Le commencement/Genèse.md",
-    "Définitions/Parole de Dieu (Actes).md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/10 - Ephésiens.md",
-    "~syncthing~Marcher dans le royaume de Dieu.md.tmp",
-    "TCA spirituel.md",
-    "~syncthing~TCA spirituel.md.tmp",
-    "~syncthing~Untitled.md.tmp",
-    "Référence Biblique/Nouveau testament/4 - Lettres générales/22&23&24 - Livres de Jean.md",
-    "Personnages/Nouveau testament/Marie.md",
-    "Référence Biblique/Nouveau testament/1 -Evangiles/4eme Evangile - Jean.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/7&8 - Corinthiens.md",
-    "Lieux historiques/Régions géographiques/Samarie.md",
-    "Personnages/Dieu.md",
-    "Référence Biblique/Ancien testament/5 - Livres poétiques/19 - Psaumes.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/13&14 Thessaloniciens.md",
-    "Référence Biblique/Nouveau testament/4 - Lettres générales/20&21 - Pierre.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/15&16 - Timothée.md",
-    "Personnages/Ancien testament/Jannès&Jambrès.md",
-    "Référence Biblique/Nouveau testament/1 -Evangiles/2nd Evangile - Marc.md",
-    "Lieux historiques/Images/Le Caire.PNG",
-    "Lieux historiques/Images/Memphis.PNG",
-    "Lieux historiques/Images/Tanis.PNG",
-    "~syncthing~TEMP.md.tmp",
-    "~syncthing~Jésus populaire part 3.md.tmp",
-    "Notes perso",
-    "Personnages/Ancien testament/Rois d'Israel/Famille de David",
-    "~syncthing~Orgueil et humilité.md.tmp",
-    "Personnages/Ancien testament/Famille d'Abraham/Fils de Jacob/Petits-enfants de Jacob",
-    "Lieux historiques/Images/Pergame.PNG",
-    "Lieux historiques/Images/Hittites.png",
-    "Lieux historiques/Images/Cilicia.png",
-    "Lieux historiques/Images/Thessalonique.PNG",
-    "Lieux historiques/Images/Lycaonie.png",
-    "Lieux historiques/Images/Lystres.PNG",
-    "Lieux historiques/Images/Iconium.PNG"
+    "Définitions/Vulgate.md",
+    "Définitions/Septante.md",
+    "Formation disciples/Histoire de l'Eglise/L'Eglise primitive jusqu'avant la réforme.md",
+    "Formation disciples/Histoire de l'Eglise/L'Eglise au temps des réformes.md",
+    "Formation disciples/Histoire de l'Eglise/Personnages/Jérôme de Stridon.md",
+    "Définitions/Apocryphes.md",
+    "Lieux historiques/Régions géographiques/Panomie.md",
+    "Lieux historiques/Régions géographiques/Pannonia_SPQR.png",
+    "Lieux historiques/Régions géographiques/Non confirmé 889258.crdownload",
+    "Définitions/Tanakh.md",
+    "Définitions/La Loi de Dieu.md",
+    "Formation disciples/Formation disciples POC Reims.md",
+    "Lieux historiques/Villes/Rome.md",
+    "Formation disciples/Histoire de l'Eglise/Royaumes/Saint-Empire Romain Germanique.md",
+    "Formation disciples/Histoire de l'Eglise/Personnages/Charlemagne.md",
+    "Formation disciples/Histoire de l'Eglise/Royaumes/Italie.md",
+    "Lieux historiques/Royaumes/Israël.md",
+    "Lieux historiques/Royaumes/Assyrie.md",
+    "Lieux historiques/Royaumes/Syrie.md",
+    "Lieux historiques/Régions géographiques/Canaan.md",
+    "Lieux historiques/Régions géographiques/Cilicie.md",
+    "Lieux historiques/Régions géographiques/Mont Sinaï.md",
+    "Lieux historiques/Régions géographiques/Mont Hermon.md",
+    "Lieux historiques/Régions géographiques/Néguev.md",
+    "Lieux historiques/Régions géographiques/Sinaï.md",
+    "Lieux historiques/Régions géographiques/Anti-Liban.md",
+    "Lieux historiques/Régions géographiques/Mont Nebo.md",
+    "Lieux historiques/Régions géographiques/Montagne de Hor.md",
+    "Formation disciples/Histoire de l'Eglise/Régions/Images/Saxe.png",
+    "Histoire après l'église primitive/Régions/Images/Non confirmé 197929.crdownload",
+    "Formation disciples/Histoire de l'Eglise/Régions/Images/Westphalia_x3.svg.png",
+    "Histoire après l'église primitive/Régions/Images/Non confirmé 874392.crdownload",
+    "Formation disciples/Histoire de l'Eglise/Régions/Images",
+    "Histoire après l'église primitive/Régions/Nouveau dossier",
+    "Formation disciples/Histoire de l'Eglise/Régions",
+    "Formation disciples/Histoire de l'Eglise/Royaumes/Images/Saint Empire Romain Germanique.gif",
+    "Histoire après l'église primitive/Royaumes/Images/Non confirmé 119931.crdownload",
+    "Formation disciples/Histoire de l'Eglise/Royaumes/Images",
+    "Histoire après l'église primitive/Royaumes/Nouveau dossier",
+    "Formation disciples/Histoire de l'Eglise/Royaumes",
+    "Lieux historiques/Images/Mer rouge.png",
+    "Lieux historiques/Images/Aqaba.png",
+    "Lieux historiques/Images/Egypte.PNG",
+    "Lieux historiques/Images/Arménie.PNG",
+    "Lieux historiques/Images/Pitom.PNG",
+    "Lieux historiques/Images/Ramsès city.PNG"
   ]
 }

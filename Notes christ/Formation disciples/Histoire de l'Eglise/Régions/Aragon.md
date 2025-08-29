@@ -1,0 +1,1 @@
+Région de l'Est de l'[[Espagne]] entre à son Est la [[Catalogne]] et à son Ouest les pays, ce fut autrement un royaume avant l'unification de l'[[Espagne]]

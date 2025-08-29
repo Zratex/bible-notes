@@ -4,7 +4,7 @@ Lettre de [[Paul]] envers les [[Romains]]
 Intitulé **Le résumé de l'[[Note sur l'évangile|Evangile]]** par [[Bible#^358f23|BDS]] :
 
 16) Car je n’ai pas honte de l’[[Note sur l'évangile|Evangile]] : c’est la puissance de [[Dieu]] par laquelle il sauve tous ceux qui croient, les Juifs en premier lieu et aussi les non-Juifs.
-17) En effet, cet [[Note sur l'évangile|Evangile]] nous révèle en quoi consiste la justice que [[Dieu]] accorde : elle est reçue par la foi et rien que par la foi, comme il est dit dans l’Ecriture : *Le juste vivra grâce à la foi*
+17) En effet, cet [[Note sur l'évangile|Evangile]] nous révèle en quoi consiste la justice que [[Dieu]] accorde : elle est reçue par la foi et rien que par la foi, comme il est dit dans l’[[Ancien Testament|Ecriture]] : *[[35 - Habakuk#Versets 1 à 4|Le juste vivra grâce à la foi]]*
 ## Chapitre 5
 Intitulé **La vie nouvelle en [[Jésus|Christ]], par l’[[Saint-Esprit|Esprit]]** par [[Bible#^358f23|BDS]]
 ### Versets 1 à 11
@@ -46,7 +46,7 @@ Intitulé **La grâce : une excuse pour pécher ?** par [[Bible#^358f23|BDS]]
 7) Car celui qui est mort a été déclaré juste : il n’a plus à répondre du péché.
 8) Or, puisque nous sommes morts avec [[Jésus|Christ]], nous croyons que nous vivrons aussi avec [[Jésus|lui]].
 9) Car nous savons que [[Jésus|Christ]] ressuscité ne meurt plus ; la mort n’a plus de pouvoir sur lui.
-10) [[Jésus|Il]] est mort et c’est pour le péché qu’il est mort une fois pour toutes. Mais à présent, [[Jésus|il]] est vivant et [[Jésus|il]] vit pour [[Dieu]].
+10) [[Jésus|Il]] est mort et c’est pour le péché qu’[[Jésus|il]] est mort une fois pour toutes. Mais à présent, [[Jésus|il]] est vivant et [[Jésus|il]] vit pour [[Dieu]].
 11) Ainsi, vous aussi, considérez-vous comme morts pour le péché, et comme vivants pour [[Dieu]] dans l’union avec [[Jésus|Jésus-Christ]].
 12) Que le péché n’exerce donc plus sa domination sur votre corps mortel pour vous soumettre à ses désirs.
 13) Ne mettez pas vos membres et organes à la disposition du péché comme des armes au service du mal. Mais puisque vous étiez morts et que vous êtes maintenant vivants, offrez-vous vous-mêmes à [[Dieu]] et mettez les membres et organes de votre corps à sa disposition comme des instruments pour faire ce qui est juste.
@@ -55,7 +55,7 @@ Intitulé **La grâce : une excuse pour pécher ?** par [[Bible#^358f23|BDS]]
 16) Ne savez-vous pas qu’en vous mettant au service de quelqu’un comme des esclaves pour lui obéir, vous êtes effectivement les esclaves du maître à qui vous obéissez : ou bien du péché qui entraîne la mort, ou bien de l’obéissance qui conduit à une vie juste ?
 17) Mais [[Dieu]] soit loué ! Si, autrefois, vous étiez les esclaves du péché, vous avez maintenant obéi de tout cœur à l’enseignement fondamental auquel vous avez été soumis.
 18) Et, à présent, affranchis du péché, vous êtes devenus esclaves de la justice.
-19) – Je parle ici d’une manière très humaine, à cause de votre faiblesse naturelle. – De même que vous avez offert autrefois les membres et organes de votre corps en esclaves pour agir d’une manière immorale et qui ne respecte pas la [[La Loi de Dieu|Loi de Dieu]], offrez-les maintenant en esclaves à la justice pour devenir saints dans votre être et votre conduite.
+19) – [[Paul|Je]] parle ici d’une manière très humaine, à cause de votre faiblesse naturelle. – De même que vous avez offert autrefois les membres et organes de votre corps en esclaves pour agir d’une manière immorale et qui ne respecte pas la [[La Loi de Dieu|Loi de Dieu]], offrez-les maintenant en esclaves à la justice pour devenir saints dans votre être et votre conduite.
 20) Lorsque vous étiez encore esclaves du péché, vous étiez libres par rapport à la justice.
 21) Or, quels [[Fruit|fruits]] portiez-vous alors ? Des actes qui vous font rougir de honte aujourd’hui, car ils conduisent à la mort.
 22) Mais maintenant, affranchis du péché et devenus esclaves de [[Dieu]], le [[Fruit|fruit]] que vous portez, c’est une vie sainte, et le résultat auquel vous aboutissez, c’est la vie éternelle.
@@ -102,17 +102,16 @@ Intitulé **L’espérance au milieu des détresses présentes** par [[Bible#^35
 Intitulé **L'amour de [[Dieu]] : une assurance certaine** par [[Bible#^358f23|BDS]]
 
 31) Que dire de plus ? Si [[Dieu]] est pour nous, qui se lèvera contre nous ?
-32) [[Dieu|Lui]] qui n’a même pas épargné son propre [[Jésus|Fils]], mais l’a livré pour nous tous, comment ne nous donnerait-il pas aussi tout avec lui ?
+32) [[Dieu|Lui]] qui n’a même pas épargné son propre [[Jésus|Fils]], mais [[Jésus|l]]’a livré pour nous tous, comment ne nous donnerait-il pas aussi tout avec [[Dieu|lui]] ?
 33) Qui accusera encore les élus de [[Dieu]] ? [[Dieu]] lui-même les déclare justes.
-34) Qui les condamnera ? [[Jésus|Christ]] est mort, bien plus : il est ressuscité ! Il est à la droite de [[Dieu]] et il intercède pour nous.
+34) Qui les condamnera ? [[Jésus|Christ]] est mort, bien plus : [[Jésus|il]] est ressuscité ! [[Jésus|Il]] est à la droite de [[Dieu]] et [[Jésus|il]] intercède pour nous.
 35) Qu’est-ce qui pourra nous arracher à l’amour de [[Jésus|Christ]] ? La détresse ou l’angoisse, la persécution, la faim, la misère, le danger ou l’épée ?
 36) Car il nous arrive ce que dit l’[[Ancien Testament|Ecriture]] :
-    *A cause de toi, nous sommes exposés à la mort à longueur de jour.*
-    *On nous considère comme des moutons destinés à l’abattoir.*
-    (`Psaumes 44:23`)
+    *[[19 - Psaumes#Chapitre 44|A cause de toi, ╵nous sommes exposés à la mort ╵à longueur de jour.]]*
+    *[[19 - Psaumes#Chapitre 44|On nous considère ╵comme des moutons ╵destinés à l’abattoir.]]*
 37) Mais dans tout cela nous sommes bien plus que vainqueurs par celui qui nous a aimés.
 38) Oui, [[Paul|j]]’en ai l’absolue certitude : ni la mort ni la vie, ni les anges ni les dominations, ni le présent ni l’avenir, ni les puissances,
-39) ni ce qui est en haut ni ce qui est en bas (Autre traduction : `ni la hauteur, ni la profondeur`), ni aucune autre créature, rien ne pourra nous arracher à l’amour que [[Dieu]] nous a témoigné en [[Jésus|Jésus-Christ]] notre [[Seigneur]].
+39) [[19 - Psaumes#Chapitre 139|ni ce qui est en haut ni ce qui est en bas]], ni aucune autre créature, rien ne pourra nous arracher à l’amour que [[Dieu]] nous a témoigné en [[Jésus|Jésus-Christ]] notre [[Seigneur]].
 ## Chapitre 9
 ### Versets 14 à 23
 Intitulé **Le [[Dieu]] souverain est juste** par [[Bible#^358f23|BDS]]
@@ -170,3 +169,10 @@ Intitulé **[[Israël]] n'a pas eu la foi** par [[Bible#^358f23|BDS]]
     *Je me suis révélé ╵à ceux qui ne se souciaient pas de moi.*
 21) Mais parlant d’[[Israël]], il dit :
     *A longueur de journée, ╵j’ai tendu les mains ╵vers un peuple désobéissant et rebelle.*
+## Chapitre 12
+Intitulé **La vie d'un chrétien** par [[Bible#^358f23|BDS]]
+### Versets 1 et 2
+Intitulé **La vie d'un chrétien - S'offrir à [[Dieu]]** par [[Bible#^358f23|BDS]]
+
+1) [[Paul|Je]] vous recommande donc, frères et sœurs, à cause de cette immense bonté de [[Dieu|Dieu]], à lui offrir votre corps comme un sacrifice vivant, saint et qui plaise à [[Dieu|Dieu]]. Ce sera là de votre part un culte raisonnable.
+2) Ne prenez pas comme modèle le monde actuel, mais soyez transformés par le renouvellement de votre intelligence, pour pouvoir discerner la volonté de [[Dieu|Dieu]] : ce qui est bon, ce qui [[Dieu|lui]] plaît, ce qui est parfait.

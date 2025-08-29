@@ -1,0 +1,1 @@
+Beau-père de [[Moïse]], il était prêtre de la tribu de [[Madian]]

@@ -10,7 +10,7 @@ Il existe plusieurs versions de la Bible : ce sont des traductions différentes 
 - BDS (Bible du Semeur)
   Français courant datant de 2015 ^358f23
 - LSG (Louis Segond)
-  Français datant de 1910
+  Français datant de 1910 ^4cfe93
 - S21 (Segond 21)
   Basé sur la traduction de Louis Segond, mais avec les mots du 21eme siècle. ^46e624
 

@@ -1,0 +1,1 @@
+Anân (ou **Hanne**) est le [[Grand-prêtre]] précédent [[Caïphe]], mais ayant toujours une très grande influence dans le [[Sanhédrin]] à l'époque de [[Jésus]] 

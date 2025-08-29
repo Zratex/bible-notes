@@ -17,14 +17,31 @@ Il y a pas mal d'aspect géopolitiques (présents ou non) à propos de l'existen
 	- Montagnes :
 		- [[Montagne de Hor]]
 		- [[Mont Nebo]]
+		- [[Montagnes du Liban]]
+			- [[Mont Hermon]]
 	- [[Sinaï]]
+		- [[Mont Sinaï|Mont Sinaï (ou Mont Horeb)]]
 		- [[Néguev]]
 	- [[Jourdain]]
+	- [[Galilée]]
+	- [[Décapole]]
 	- ...
 - Royaumes voisins (très souvent ennemis) :
+	- [[Liban]]
 	- [[Egypte]]
 	- [[Philistins]] ([[Gaza]])
 	- [[Edom]]
 	- [[Moab]]
 	- [[Phénécie]]
 	- [[Amalec]]
+	- [[Assyrie]] puis [[Syrie]]
+	- ...
+- Empires ayant dominés les terres d'Israël :
+	- [[Assyrie]]
+	- [[Babylone]]
+	- Grecques
+	- [[Romains]] (créant l'état de [[Palestine]])
+	- Après la chute de l'empire [[Romains|romain]] :
+		- Dynasties arabes et/ou musulmanes
+		- Ottomans (ancêtre des turques, soit en [[Asie mineure]])
+		- [[UK|Royaume-Uni]]

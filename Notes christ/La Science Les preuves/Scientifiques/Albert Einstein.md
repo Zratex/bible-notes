@@ -1,5 +1,5 @@
-Considéré comme le **plus grand scientifique de tout les temps**, et la personnalité du XXeme siècle selon le journal *Times*, **Albert Einstein** est un physicien théoricien allemand né en 1879, et mort en 1955 dans le New Jersey aux USA. Il fuit aux Etats-Unis à cause de la tournure nazi de l'Allemagne, dû au fait qu'il était d'origine juive.
-Il obtins aussi la nationalité Suisse et Autrichienne entre temps.
+Considéré comme le **plus grand scientifique de tout les temps**, et la personnalité du XXeme siècle selon le journal *Times*, **Albert Einstein** est un physicien théoricien allemand né en 1879, et mort en 1955 dans le New Jersey aux USA. Il fuit aux Etats-Unis à cause de la tournure nazi de l'[[Allemagne]], dû au fait qu'il était d'origine juive.
+Il obtins aussi la nationalité [[Suisse|suisse]] et [[Autriche|autrichienne]] entre temps.
 
 Il eut comme femme Mileva Maric, puis Elsa Einstein.
 ## Découvertes

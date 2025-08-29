@@ -1,0 +1,1 @@
+Fils de [[Noun]], il a été le successeur de [[Moïse]]

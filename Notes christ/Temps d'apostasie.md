@@ -16,7 +16,7 @@ Message apporté par José le 20/10/2024
 
 > La voix de [[Caïn]] est de croire que par nos efforts, et non par l'aide de [[Jésus]], nous pouvons nous sauver
 
--> être chrétien sans repentance, et la dissociation du [[Saint-Esprit]] ne sert à rien
+-> être chrétien sans repentance, et sans la dissociation du [[Saint-Esprit]] ne sert à rien
 -> ce qui a de l'impact dans les cœurs c'est non pas notre avis par rapport à la [[Bible]], mais ce que dit la [[Bible]]. Il faut donc ==**notifier** quand on fait cette dissociation==
 
 [[Actes#Versets 1 à 35|Actes 15:1-3]] : l'apostasie peut nous mener à reculer dans l'[[Note sur l'évangile|évangile]], comme refaire des choses de l'[[Ancien Testament]] qui ne servent plus depuis l'accomplissement de [[Jésus]]

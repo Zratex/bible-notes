@@ -1,0 +1,2 @@
+==Pasteur :== dans les églises protestantes le paster est comme un berger, c'est à dire qu'il guide. Tel un berger qui guide les brebis du [[Jésus|maître]] (il y a beaucoup de parallèle à cette image développé dans la [[Bible]])
+>C'est à l'inverse des représentants catholiques qui, en particulier le [[Pape]], se présentent comme étant l'intermédiaire entre le peuple et [[Dieu]]

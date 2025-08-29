@@ -1,0 +1,1 @@
+Rama (aussi appelé Ramatha, mais ayant comme nom complet **Ramatheim-Zophim**, signifiant "les hauteurs des vues") était une petite ville à un peu plus de 9km au nord de [[Jérusalem]]

@@ -1,24 +1,26 @@
-Textes bibliques principalement tourné sur l'histoire d'[[Israël]] (par extension des juifs) et sa relation avec [[Dieu]], avant la naissance de [[Jésus]] sur Terre.
+L'ancien testament ([[Tanakh]] en hébreu) sont des textes bibliques principalement tournés sur l'histoire d'[[Israël]] (par extension des juifs) et sa relation avec [[Dieu]], avant la naissance de [[Jésus]] sur Terre.
 -> Donc il précède le [[Nouveau testament]]
 
-A comme appellation "la loi et les prophéties" ou "les Ecritures" dans le [[Nouveau testament]]
+Il a comme appellation "la loi et les prophéties" ou "**les Ecritures**" dans le [[Nouveau testament]]
 ## Composition
-- [[Genèse]]
-- Textes de [[La Loi de Dieu|la Loi]] :
-	- [[2 - Exode|Exode]]
-	- [[3 - Lévitique|Lévitique]]
-	- [[4 - Nombres|Nombres]]
-	- [[5 - Deutéronome|Deutéronome]]
+- La [[Torah]] :
+	- [[Genèse]]
+	- Textes de [[La Loi de Dieu|la Loi]] :
+		- [[2 - Exode|Exode]]
+		- [[3 - Lévitique|Lévitique]]
+		- [[4 - Nombres|Nombres]]
+		- [[5 - Deutéronome|Deutéronome]]
 - Premiers livres historiques :
-	- Josué
+	- [[6 - Josué|Josué]]
 	- Juges
-	- Ruth
+	- [[8 - Ruth|Ruth]]
 	- [[9&10 - Samuel#1 Samuel|1 Samuel]]
 	- [[9&10 - Samuel#2 Samuel|2 Samuel]]
 	- [[11&12 - Rois#1 Rois|1 Rois]]
 	- [[11&12 - Rois#2 Rois|2 Rois]]
 - Seconds livres historiques :
-	- 1 et 2 Chroniques
+	- [[12&13 - Chroniques#1 Chroniques|1 Chroniques]]
+	- [[12&13 - Chroniques#2 Chroniques|2 Chroniques]]
 	- Esdras
 	- [[15 - Néhémie|Néhémie]]
 	- [[16 - Esther|Esther]]
@@ -26,8 +28,8 @@ A comme appellation "la loi et les prophéties" ou "les Ecritures" dans le [[Nou
 	- [[18 - Job|Job]]
 	- [[19 - Psaumes|Psaumes]]
 	- [[20 - Proverbes|Proverbes]]
-	- Ecclésiaste
-	- Cantique des cantiques
+	- [[21 - Ecclésiaste|Ecclésiaste]]
+	- [[22 - Cantique des cantiques|Cantique des cantiques]]
 - Premiers livres prophétiques :
 	- [[23 - Esaïe|Esaïe]]
 	- [[24 - Jérémie|Jérémie]]

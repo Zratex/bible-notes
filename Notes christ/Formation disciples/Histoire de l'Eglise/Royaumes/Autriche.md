@@ -1,0 +1,3 @@
+Peuple germain (donc la langue officielle est l'[[Allemagne#L'allemand (langue)|allemand]]) qui a pour capitale Vienne situé au sud de l'actuelle [[Allemagne]].
+Cette nation était à la tête de l'empire d'**Autriche-Hongrie**, qui avait une très forte influence sur la confédération allemande, avant l'unification de l'[[Allemagne]] par les prusses.
+>Ce qui fait d'elle en quelque sorte une successeur illégitime du [[Saint-Empire Romain Germanique]]

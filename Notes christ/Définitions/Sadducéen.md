@@ -1,0 +1,1 @@
+==Sadducéen :== Membres d'un courant du judaïsme souvent associé aux prêtes et à l'aristocratie

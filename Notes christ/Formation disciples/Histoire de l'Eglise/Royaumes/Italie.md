@@ -1,0 +1,2 @@
+L'**Italie** est le pays hériter des terres d'origines de l'empire [[Romains]], qui a toujours comme capitale la ville de [[Rome]].
+Elle a dans son histoire accueillie les états [[Pape|pontificaux]], dont le [[Vatican]]

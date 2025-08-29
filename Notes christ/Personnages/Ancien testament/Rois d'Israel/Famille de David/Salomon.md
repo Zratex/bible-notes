@@ -1,1 +1,0 @@
-Dit l'homme le plus [[Sagesse|sage]], fils de [[David]]

@@ -1,1 +1,1 @@
-Ville d'[[Israël]] situé au nord du lac de [[Lieux historiques/Régions géographiques/Galilée|Galilée]], à l'est du [[Jourdain]]
+Ville d'[[Israël]] situé au nord du lac de [[Lieux historiques/Régions géographiques/Galilée|Galilée]], à l'est du [[Jourdain]] non loin de [[Capharnaüm]]

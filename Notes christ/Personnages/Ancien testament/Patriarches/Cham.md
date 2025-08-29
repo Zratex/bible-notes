@@ -1,0 +1,2 @@
+Fils de [[Noé]] ([[Genèse#Chapitre 5|Genèse 5:32]]), donc fils de [[Sem]] et [[Japhet]]
+>Il est donc un [[Patriarche]]

@@ -1,0 +1,1 @@
+Anne (ou **Hannah**, signifiant "grâce" ou "faveur" en hébreu) est la femme de [[Elkana]], et la mère de [[Samuel]]

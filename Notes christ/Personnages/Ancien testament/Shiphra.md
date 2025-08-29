@@ -1,0 +1,2 @@
+Sage-femme [[Egypte|egyptienne]] avec [[Poua]] qui s'occupait des femmes enceintes du peuple d'[[Israël]], qui a refusée de se plier aux ordres de [[Pharaon|pharaon]] car elle craignait [[Dieu]]
+-> [[2 - Exode#Chapitre 1|Exode 1:15-21]]

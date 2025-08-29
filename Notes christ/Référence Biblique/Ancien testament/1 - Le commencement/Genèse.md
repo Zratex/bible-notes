@@ -128,6 +128,41 @@ Intitulé **La rupture de l'[[Alliance (ou contrat)|alliance]]** par [[Bible#^35
 22) Puis [[Dieu|il]] dit : Voici que l’homme est devenu comme l’un de nous pour décider du bien et du mal. Maintenant il ne faudrait pas qu’il tende la main pour cueillir aussi du fruit de l’arbre de la vie, qu’il en mange et qu’il vive éternellement.
 23) Alors l’[[Dieu|Eternel Dieu]] le chassa du jardin d’Eden pour qu’il travaille le sol d’où il avait été tiré.
 24) Après avoir chassé l’homme, [[Dieu|il]] posta des chérubins à l’est du jardin d’Eden, avec une épée flamboyante tournoyant en tous sens pour barrer l’accès de l’arbre de la vie.
+## Chapitre 5
+Intitulé **L'histoire de la famille d'[[Adam]] - d'[[Adam]] aux fils de [[Noé]]** par [[Bible#^358f23|BDS]]
+
+1) Voici l’histoire de la famille d’[[Adam|Adam]]. Quand [[Dieu|Dieu]] créa les êtres humains, [[Dieu|il]] les fit de telle sorte qu’ils [[Dieu|lui]] ressemblent.
+2) [[Dieu|Il]] les créa homme et femme, [[Dieu|il]] les bénit et leur donna le nom d’hommes le jour où ils furent créés.
+3) [[Adam|Adam]] était âgé de 130 ans quand [[Adam|il]] eut un fils qui [[Adam|lui]] ressemble, qui soit son image. [[Adam|Il]] lui donna le nom de [[Seth|Seth]].
+4) Après cela, [[Adam|Adam]] vécut encore 800 ans et [[Adam|il]] eut d’autres enfants.
+5) La durée totale de [[Adam|sa]] vie fut de 930 ans, puis [[Adam|il]] mourut.
+6) Quand [[Seth|Seth]] fut âgé de 105 ans, [[Seth|il]] eut pour fils [[Enosh|Enosh]].
+7) Après cela, [[Seth|il]] vécut encore 807 ans et [[Seth|il]] eut d’autres enfants.
+8) [[Seth|Il]] mourut à l’âge de 912 ans.
+9) Quand [[Enosh|Enosh]] fut âgé de 90 ans, il eut pour fils [[Qénân|Qénân]].
+10) Après cela, [[Enosh|il]] vécut encore 815 ans et il eut d’autres enfants.
+11) [[Enosh|Il]] mourut à l’âge de 905 ans.
+12) Quand [[Qénân|Qénân]] fut âgé de 70 ans, il eut pour fils [[Mahalaléel|Mahalaléel]].
+13) Après cela, [[Qénân|il]] vécut encore 840 ans et il eut d’autres enfants.
+14) [[Qénân|Il]] mourut à l’âge de 910 ans.
+15) Quand [[Mahalaléel|Mahalaléel]] fut âgé de 65 ans, il eut pour fils [[Yéred|Yéred]].
+16) Après cela, [[Mahalaléel|Mahalaléel]] vécut encore 830 ans et il eut d’autres enfants.
+17) [[Mahalaléel|Il]] mourut à l’âge de 895 ans.
+18) Quand [[Yéred]] fut âgé de 162 ans, il eut pour fils [[Hénok|Hénok]].
+19) Après cela, [[Yéred|il]] vécut encore 800 ans, et il eut d’autres enfants.
+20) [[Yéred|Il]] mourut à l’âge de 962 ans.
+21) Quand [[Hénok|Hénok]] fut âgé de 65 ans, il eut pour fils [[Mathusalem|Mathusalem]].
+22) Après cela, [[Hénok|Hénok]] mena sa vie sous le regard de [[Dieu|Dieu]] durant 300 ans et il eut d’autres enfants.
+23) La durée totale de sa vie fut de 365 ans.
+24) [[Hénok|Hénok]] vécut en communion avec [[Dieu|Dieu]] puis [[Hénok|il]] disparut, car [[Dieu|Dieu]] [[Hénok]] prit.
+25) Quand [[Mathusalem|Mathusalem]] fut âgé de 187 ans, il eut pour fils [[Lémek|Lémek]].
+26) Après cela, [[Mathusalem|il]] vécut encore 782 ans et il eut d’autres enfants.
+27) [[Mathusalem|Il]] mourut à l’âge de 969 ans.
+28) Quand [[Lémek|Lémek]] fut âgé de 182 ans, il eut un fils.
+29) [[Lémek|Il]] l’appela [[Noé|Noé (Consolation)]] en disant : Celui-ci nous consolera de notre travail et de la tâche pénible que nous impose ce sol que l’[[Dieu|Eternel]] a maudit.
+30) Après cela, [[Lémek|Lémek]] vécut encore 595 ans, et il eut d’autres enfants.
+31) [[Lémek|Il]] mourut à l’âge de 777 ans.
+32) Quand [[Noé|Noé]] fut âgé de 500 ans, il eut pour fils [[Sem|Sem]], [[Cham|Cham]] et [[Japhet|Japhet]].
 ## Chapitre 12
 ### Versets 1 à 9
 Intitulé **L'appel d'[[Abraham|Abram]]** par [[Bible#^358f23|BDS]]
@@ -147,14 +182,14 @@ Intitulé **[[Abraham|Abram]] en [[Egypte]]** par [[Bible#^358f23|BDS]]
 #### Versets 18 à 20
 Sortie d'Egypte :
 
-18) Alors le pharaon convoqua [[Abraham|Abram]] et lui dit : Qu’est-ce que tu m’as fait là ? Pourquoi ne m’as-tu pas dit qu’elle était ta femme ?
+18) Alors le [[Pharaon|pharaon]] convoqua [[Abraham|Abram]] et lui dit : Qu’est-ce que tu m’as fait là ? Pourquoi ne m’as-tu pas dit qu’elle était [[Sarah|ta femme]] ?
 19) Pourquoi l’as-tu présentée comme ta sœur ? A cause de cela, j’en ai fait ma femme.
     Maintenant, voilà ta femme ; reprends-la et va-t’en !
 20) Et le pharaon chargea ses gens de le reconduire avec sa femme et avec tout ce qu’il possédait.
 ## Chapitre 13
 ### Versets 1 à 13
 Intitulé **[[Abraham|Abram]] se fixe au pays de Canaan** par [[Bible#^358f23|BDS]]
-1) [[Abraham|Abram]] quitta donc l’[[Egypte]] avec sa femme et tout ce qu’il possédait en direction du [[Néguev]]. [[Loth]] était avec lui.
+1) [[Abraham|Abram]] quitta donc l’[[Egypte]] avec [[Sarah|sa femme]] et tout ce qu’il possédait en direction du [[Néguev]]. [[Loth]] était avec lui.
 2) [[Abraham|Abram]] était très riche en troupeaux, en argent et en or.
 3) D’étape en étape, il retourna du [[Néguev]] jusqu’à Béthel, au lieu où il avait auparavant établi son campement, entre Béthel et Aï,
 4) c’est-à-dire à l’endroit où était l’autel qu’il avait précédemment érigé, et il y pria l’[[Dieu|Eternel]].
@@ -206,8 +241,27 @@ Intitulé **L'alliance de [[Dieu]] avec [[Abraham|Abram]]** par [[Bible#^358f23|
 17) Lorsque le soleil fut couché et que l’obscurité fut totale, un tourbillon de fumée et une torche de feu passèrent soudain entre les animaux partagés.
 18) Ce jour-là, l’[[Dieu|Eternel]] fit alliance avec [[Abraham|Abram]] et lui dit : Je promets de donner à ta descendance tout ce pays, depuis le fleuve d’[[Egypte]] jusqu’au grand fleuve, l’[[Tigre & Euphrate|Euphrate]],
 19) le pays des Qéniens, des Qeniziens, des Qadmonéens,
-20) des [[Hittites|Hittites]], des Phéréziens, des Rephaïm,
-21) des [[Amorrites|Amoréens]], des [[Canaan|Cananéens]], des Guirgasiens et des Yebousiens.
+20) des [[Hittites|Hittites]], des [[Phéréziens|Phéréziens]], des Rephaïm,
+21) des [[Amorrites|Amoréens]], des [[Canaan|Cananéens]], des Guirgasiens et des [[Jébusiens|Yebousiens]].
+## Chapitre 21
+### Versets 8 à 21
+Intitulé **Le renvoi d'Agar et [[Ismaël]]** par [[Bible#^358f23|BDS]]
+
+8) L’enfant grandit et [[Sarah|Sara]] cessa de l’allaiter. Le jour où l’on sevra [[Isaac|Isaac]], [[Abraham|Abraham]] fit un grand festin.
+9) [[Sarah|Sara]] vit rire [[Ismaël|le fils]] qu’[[Agar|Agar]] l’[[Egypte|Egyptienne]] avait donné à [[Abraham|Abraham]].
+10) Alors [[Sarah|elle]] dit à [[Abraham|Abraham]] : Chasse cette [[Agar|esclave]] et [[Ismaël|son fils]], car [[Ismaël|le fils]] de [[Agar|cette esclave]] ne partagera pas l’héritage avec [[Sarah|mon]] fils [[Isaac|Isaac]].
+11) Cette parole affligea beaucoup [[Abraham|Abraham]], à cause de son fils.
+12) Mais [[Dieu|Dieu]] [[Abraham|lui]] dit : Ne t’afflige pas à cause [[Ismaël|du garçon]] et de [[Agar|ta servante]]. Accorde à [[Sarah|Sara]] tout ce qu’elle te demandera. Car c’est par [[Isaac|Isaac]] que [[Abraham|te]] sera suscitée une descendance.
+13) Néanmoins, [[Dieu|je]] ferai aussi [[Ismaël|du fils]] de [[Agar|l’esclave]] l’ancêtre d’un peuple, car [[Ismaël|lui]] aussi est issu de [[Abraham|toi]].
+14) Le lendemain, de bon matin, [[Abraham|Abraham]] prépara du pain et une outre d’eau qu’[[Abraham|il]] donna à [[Agar|Agar]] en les plaçant sur son épaule ; [[Abraham|il]] lui donna aussi l’enfant et la congédia. [[Agar|Elle]] partit à l’aventure et s’égara dans le désert de [[Beer-Sheva|Beer-Sheva]].
+15) L’eau qui était dans l’outre s’épuisa, alors [[Agar|elle]] laissa [[Ismaël|l’enfant]] sous un buisson
+16) et alla s’asseoir à l’écart, à une centaine de mètres plus loin, car [[Agar|elle]] se disait : [[Agar|Je]] ne veux pas voir mourir [[Ismaël|mon enfant]].
+    [[Agar|Elle]] resta assise en face de [[Ismaël|lui]], gémissant et pleurant.
+17) [[Dieu|Dieu]] entendit la voix [[Ismaël|du garçon]] et l’ange de [[Dieu|Dieu]] appela [[Agar|Agar]] du haut du ciel et lui dit : Qu’as-tu, [[Agar|Agar]] ? N’aie pas peur, car [[Dieu|Dieu]] a entendu [[Ismaël|le garçon]] là où il est.
+18) Lève-[[Agar|toi]], relève [[Ismaël|le garçon]] et prends-le par la main, car [[Dieu|je]] ferai de lui un grand peuple.
+19) [[Dieu|Dieu]] [[Agar|lui]] ouvrit les yeux, et [[Agar|elle]] aperçut un puits. Elle alla remplir d’eau son outre et donna à boire [[Ismaël|au garçon]].
+20) [[Dieu|Dieu]] fut avec [[Ismaël|lui]]. [[Ismaël|Il]] grandit et vécut dans le désert où il devint un chasseur à l’arc.
+21) [[Ismaël|Il]] s’établit dans le désert de [[Désert de Paran|Parân]], et [[Agar|sa mère]] choisit pour lui une femme du pays d’[[Egypte|Egypte]].
 ## Chapitre 26
 ### Versets 1 à 11
 Intitulé **[[Isaac]] à [[Guérar]]**

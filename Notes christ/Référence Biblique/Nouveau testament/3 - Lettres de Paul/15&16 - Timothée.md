@@ -1,5 +1,18 @@
 Lettres de [[Paul]] destinées à [[Timothée]]
 # 1 Timothée
+## Chapitre 3
+### Versets 14 à 16
+Intitulé **Le secret révélé** par [[Bible#^358f23|BDS]]
+
+14) [[Paul|J]]’ai bon espoir de venir [[Timothée|te]] rejoindre très bientôt ; [[Paul|je]] [[Timothée|t]]’écris cependant tout cela
+15) afin que, si [[Paul|ma]] venue devait être retardée, [[Timothée|tu]] saches, en attendant, comment on doit se comporter dans la famille de [[Dieu|Dieu]], c’est-à-dire dans l’[[Eglise|Eglise]] du [[Dieu|Dieu vivant]]. Cette [[Eglise|Eglise]] est une colonne qui proclame la vérité, un lieu où [[Eglise|elle]] est fermement établie.
+16) Voici ce que nous reconnaissons ensemble : – il est grand le secret du plan de [[Dieu|Dieu]], [[Jésus|Christ]], qui fait l’objet de notre foi.
+    [[Dieu|Il]] s’est révélé ╵comme [[Jésus|un être humain]],
+    et, déclaré juste ╵par le [[Saint-Esprit|Saint-Esprit]],
+    [[Jésus|il]] a été vu ╵par les anges.
+    [[Jésus|Il]] a été proclamé ╵parmi les non-Juifs.
+    On a cru en [[Jésus|lui]] ╵dans le monde entier.
+    [[Jésus|Il]] a été élevé ╵dans la gloire.
 ## Chapitre 6
 ### Versets 1 et 2
 Intitulé **Les esclaves et les maîtres** par [[Bible#^358f23|BDS]]

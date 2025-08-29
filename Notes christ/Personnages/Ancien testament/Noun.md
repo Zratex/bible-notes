@@ -1,0 +1,1 @@
+Décrit dans [[6 - Josué#Versets 1 à 9|Josué 1:1]] comme étant le père de [[Josué]], assistant de [[Moïse]]

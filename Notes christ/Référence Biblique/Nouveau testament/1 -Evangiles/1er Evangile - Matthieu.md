@@ -1,5 +1,51 @@
 1er [[Nouveau testament#^94270d|évangile de la Bible]], rédigé par [[Matthieu]].
 > Les passages qui seront en gras correspondent aux passages où [[Jésus]] parle
+
+## Chapitre 1
+### Versets 1 à 17
+Intitulé **Généalogie de [[Jésus|Jésus-Christ]]** par [[Bible#^4cfe93|LSG]]
+
+1) Généalogie de [[Jésus|Jésus-Christ]], fils de [[David|David]], fils d’[[Abraham|Abraham]].
+2) [[Abraham|Abraham]] engendra [[Isaac|Isaac]]; [[Isaac|Isaac]] engendra [[Jacob|Jacob]]; [[Jacob|Jacob]] engendra [[Juda|Juda]] et ses frères;
+3) [[Juda|Juda]] engendra de Thamar Pharès et Zara; Pharès engendra Esrom; Esrom engendra Aram;
+4) Aram engendra Aminadab; Aminadab engendra Naasson; Naasson engendra Salmon;
+5) Salmon engendra Boaz de [[Rahab|Rahab]]; Boaz engendra Obed de [[Ruth]];
+6) Obed engendra [[Isaï|Isaï]]; [[Isaï|Isaï]] engendra [[David|David]]. Le roi [[David|David]] engendra [[Salomon|Salomon]] de la femme d’Urie;
+7) [[Salomon|Salomon]] engendra Roboam; Roboam engendra Abia; Abia engendra Asa;
+8) Asa engendra Josaphat; Josaphat engendra Joram; Joram engendra Ozias;
+9) Ozias engendra Joatham; Joatham engendra Achaz; Achaz engendra Ézéchias;
+10) Ézéchias engendra Manassé; Manassé engendra Amon; Amon engendra Josias;
+11) Josias engendra Jéchonias et ses frères, au temps de la déportation à [[Babylone|Babylone]].
+12) Après la déportation à [[Babylone|Babylone]], Jéchonias engendra [[Salathiel|Salathiel]]; [[Salathiel|Salathiel]] engendra [[Zorobabel|Zorobabel]];
+13) [[Zorobabel|Zorobabel]] engendra Abiud; Abiud engendra Éliakim; Éliakim engendra Azor;
+14) Azor engendra Sadok; Sadok engendra Achim; Achim engendra Éliud;
+15) Éliud engendra Éléazar; Éléazar engendra Matthan; Matthan engendra Jacob;
+16) Jacob engendra [[Joseph de Nazareth|Joseph]], l’époux de [[Marie|Marie]], de laquelle est né [[Jésus|Jésus]], qui est appelé [[Jésus|Christ]].
+17) Il y a donc en tout quatorze générations depuis [[Abraham|Abraham]] jusqu’à [[David|David]], quatorze générations depuis [[David|David]] jusqu’à la déportation à [[Babylone|Babylone]], et quatorze générations depuis la déportation à [[Babylone|Babylone]] jusqu’au [[Jésus|Christ]].
+## Chapitre 4
+### Versets 12 à 25
+Intitulé **[[Jésus]] à [[Capharnaüm|Capernaüm]] et en [[Galilée|Galilée]]** par [[Bible#^358f23|BDS]]
+
+12) Quand [[Jésus|Jésus]] apprit que [[Jean Baptiste|Jean]] avait été emprisonné, [[Jésus|il]] se retira en [[Galilée|Galilée]],
+13) mais [[Jésus|il]] ne resta pas à [[Nazareth|Nazareth]]. Il alla s’établir à [[Capharnaüm|Capernaüm]], une ville située au bord [[Galilée|du lac]], dans les territoires de [[Zabulon|Zabulon]] et de [[Nephthali|Nephtali]].
+14) Ainsi s’accomplit cette parole du prophète [[Esaïe|Esaïe]] qui avait annoncé :
+15) *[[23 - Esaïe#Verset 23|Ecoute, ô toi, terre de Zabulon ╵et toi, terre de Nephtali,]]*
+    *[[23 - Esaïe#Verset 23|route de la mer, ╵située au-delà du Jourdain,]]*
+    *[[23 - Esaïe|ô toi, Galilée des populations étrangères :]]*
+16) *[[23 - Esaïe#Versets 1 à 4|Le peuple qui vivait dans les ténèbres]]*
+    *[[23 - Esaïe#Versets 1 à 4|a vu briller une grande lumière,]]*
+    *[[23 - Esaïe#Versets 1 à 4|et sur ceux qui habitaient dans le pays]]*
+    *[[23 - Esaïe#Versets 1 à 4|sur lequel planait l’ombre de la mort,]]*
+    *[[23 - Esaïe#Versets 1 à 4|une lumière s’est levée.]]*
+17) A partir de ce moment, [[Jésus|Jésus]] commença à prêcher en public en disant : **Changez, car le royaume des cieux est proche.**
+18) Un jour qu’[[Jésus|il]] marchait au bord du [[Galilée|lac de Galilée]], il vit deux frères : [[Simon Pierre|Simon]] (qu’on appelle aussi [[Simon Pierre|Pierre]]), et [[André|André]], [[Simon Pierre|son]] frère, qui lançaient un filet dans [[Galilée|le lac]], car ils étaient pêcheurs.
+19) [[Jésus|Il]] leur dit : **Suivez-moi et [[Jésus|je]] ferai de vous des pêcheurs d’hommes.**
+20) Ils abandonnèrent aussitôt leurs filets et [[Jésus|le]] suivirent.
+21) Poursuivant [[Jésus|son]] chemin, [[Jésus|il]] vit deux autres frères : [[Jacques (apôtre)|Jacques]], fils de [[Zébédée|Zébédée]], et [[Jean|Jean]], [[Jacques (apôtre)|son]] frère. Ils étaient dans leur bateau avec [[Zébédée|Zébédée]], leur père, et ils réparaient leurs filets. [[Jésus|Il]] les appela
+22) et, aussitôt, ils laissèrent leur bateau, quittèrent [[Zébédée|leur père]], et [[Jésus|le]] suivirent.
+23) [[Jésus|Jésus]] parcourait toute la [[Galilée|Galilée]], [[Jésus|il]] enseignait dans les synagogues, proclamait la bonne nouvelle du royaume des cieux et guérissait les gens de toutes maladies et de toutes infirmités.
+24) Bientôt, on entendit parler de [[Jésus|lui]] dans toute la [[Syrie|Syrie]]. On [[Jésus|lui]] amena tous ceux qui étaient atteints de diverses maladies et souffraient de divers maux : ceux qui étaient sous l’emprise de démons ainsi que des épileptiques et des paralysés, et [[Jésus|il]] les guérit tous.
+25) Des foules nombreuses se mirent à [[Jésus|le]] suivre ; elles étaient venues de la [[Galilée|Galilée]], de la [[Décapole|région des « Dix Villes »]], de [[Jérusalem|Jérusalem]], de la [[Judée|Judée]] et du territoire transjordanien.
 ## Chapitre 5
 Première partie de ce qui est appelé le "serment sur la montage " par [[Jésus]]
 ### Versets 1 et 2
@@ -94,6 +140,21 @@ Intitulé **[[Jésus]] et la tradition religieuse juive**
 9) Le culte qu’il me rend n’a aucune valeur,
    car les enseignements qu’il donne
    ne sont que des règles inventées par les hommes
+## Chapitre 11
+### Versets 20 à 30
+Intitulé **Les reproches aux villes rebelles** par [[Bible#^358f23|BDS]]
+
+20) Alors [[Jésus|Jésus]] adressa de sévères reproches aux villes où il avait fait la plupart de ses miracles, parce que leurs habitants n’avaient pas changé :
+21) **Malheur à toi, [[Chorazin|Chorazin]]  ! Malheur à toi, [[Bethsaïda|Bethsaïda]] ! car si les miracles qui se sont produits au milieu de vous avaient eu lieu à [[Tyr|Tyr]] et à [[Sidon|Sidonh]], il y a longtemps que leurs habitants auraient changé et l’auraient manifesté en revêtant des habits de toile de sac et en se couvrant de cendre.**
+22) **C’est pourquoi, [[Jésus|je]] vous le déclare : au jour du jugement, ces villes seront traitées avec moins de rigueur que vous.**
+23) **Et toi, [[Capharnaüm|Capernaüm]], crois-tu que tu seras élevée jusqu’au ciel ? Non ! Tu seras précipitée au séjour des morts. Car si les miracles qui se sont produits chez toi avaient eu lieu à [[Sodome|Sodome]], elle existerait encore aujourd’hui.**
+24) **C’est pourquoi, [[Jésus|je]] vous le déclare : au jour du jugement, le pays de [[Sodome|Sodome]] sera traité avec moins de rigueur que toi.**
+25) Vers cette même époque, Jésus dit : **[[Jésus|Je]] te loue, ô [[Dieu|Père, Seigneur du ciel et de la terre]], parce que [[Dieu|tu]] as caché ces choses aux sages et aux intelligents, et que [[Dieu|tu]] les as révélées à ceux qui sont tout petits.**
+26) **Oui, [[Dieu|Père]], car dans ta bonté, [[Dieu|tu]] l’as voulu ainsi.**
+27) **Mon [[Dieu|Père]] a remis toutes choses entre [[Jésus|mes]] mains. Personne ne connaît le Fils, si ce n’est le Père ; et personne ne connaît le Père, si ce n’est le Fils et celui à qui le Fils veut le révéler.**
+28) **Venez à [[Jésus|moi]], vous tous qui êtes accablés sous le poids d’un lourd fardeau, et [[Jésus|je]] vous donnerai du repos.**
+29) **Prenez [[Jésus|mon]] joug sur vous et mettez-vous à mon école, car [[Jésus|je]] suis doux et humble de cœur, et vous trouverez le repos pour vous-mêmes.**
+30) **Oui, [[Jésus|mon]] joug est facile à porter et la charge que [[Jésus|je]] vous impose est légère.**
 ## Chapitre 13
 ### Versets 54 à 58
 Intitulé **[[Jésus]] rejeté à [[Nazareth]]** par [[Bible#^358f23|BDS]]
@@ -104,6 +165,29 @@ Intitulé **[[Jésus]] rejeté à [[Nazareth]]** par [[Bible#^358f23|BDS]]
 57) Et voilà pourquoi ils trouvaient en lui un obstacle à la foi.
     Alors [[Jésus|Jésus]] leur dit : **C’est seulement dans sa patrie et dans sa propre famille que l’on refuse d’honorer un prophète.**
 58) Aussi ne fit-il là que peu de miracles, à cause de leur incrédulité.
+## Chapitre 16
+### Versets 13 à 20
+Intitulé **Qui est vraiment [[Jésus]] ?** par [[Bible#^358f23|BDS]]
+
+13) [[Jésus|Jésus]] se rendit dans la région de [[Césarée de Philippe|Césarée de Philippe]]. [[Jésus|Il]] interrogea ses disciples : **Que disent les gens au sujet du Fils de l’homme  ? Qui est-il d’après eux ?**
+14) Ils répondirent : Pour les uns, c’est [[Jean Baptiste|Jean-Baptiste]] ; pour d’autres, [[Elie|Elie]] ; pour d’autres encore, [[Jérémie|Jérémie]] ou un autre prophète.
+15) **– Et vous,** leur demanda-t-[[Jésus|il]], **qui dites-vous que [[Jésus|je]] suis ?**
+16) [[Simon Pierre|Simon Pierre]] [[Jésus|lui]] répondit : **[[Jésus|Tu]] es le Messie, le Fils du [[Dieu|Dieu vivant]].**
+17) [[Jésus|Jésus]] [[Simon Pierre|lui]] dit alors : **[[Simon Pierre|Tu]] es heureux, [[Simon Pierre|Simon]], fils de Jonas, car ce n’est pas de [[Simon Pierre|toi-même]] que [[Simon Pierre|tu]] as trouvé cela. C’est [[Jésus|mon]] [[Dieu|Père céleste]] qui te l’a révélé.**
+18) **Et [[Jésus|moi, je]] [[Simon Pierre|te]] déclare : [[Simon Pierre|Tu es Pierre]], et sur cette pierre [[Jésus|je]] bâtirai [[Jésus|mon]] [[Eglise|Eglise]], contre laquelle la mort elle-même ne pourra rien.**
+19) **[[Jésus|Je]] te donnerai les clés du royaume des cieux  : tout ce que tu interdiras sur la terre sera interdit aux yeux de [[Dieu|Dieu]] et tout ce que tu autoriseras sur la terre sera autorisé aux yeux de [[Dieu|Dieu]].**
+20) Puis [[Jésus|Jésus]] interdit à ses disciples de dire à qui que ce soit qu’[[Jésus|il]] était le Messie.
+### Versets 21 à 28
+Intitulé **Comment suivre [[Jésus]]** par [[Bible#^358f23|BDS]]
+
+21) A partir de ce moment, [[Jésus|Jésus]] commença à exposer à ses disciples qu’il devait se rendre à [[Jérusalem|Jérusalem]], y subir de cruelles souffrances de la part des responsables du peuple, des chefs des prêtres et des spécialistes de la [[La Loi de Dieu|Loi]], être mis à mort et ressusciter le troisième jour.
+22) Alors [[Simon Pierre|Pierre]] [[Jésus|le]] prit à part et se mit à lui faire des reproches : Que [[Dieu|Dieu]] [[Jésus|t]]’en préserve, [[Jésus|Seigneur]] ! Cela ne [[Jésus|t]]’arrivera pas !
+23) Mais [[Jésus|Jésus]], se retournant, [[Simon Pierre|lui]] dit : **Arrière, « [[Satan|Satan]] » ! Eloigne-toi de [[Jésus|moi]] ! Tu es pour moi un obstacle, car tes pensées ne sont pas celles de [[Dieu|Dieu]] ; ce sont des pensées tout humaines.**
+24) Puis, s’adressant à [[Jésus|ses]] disciples, [[Jésus|Jésus]] dit : **Si quelqu’un veut marcher à [[Jésus|ma]] suite, qu’il renonce à lui-même, qu’il [[Porter sa croix|se charge de sa croix]] et qu’il [[Jésus|me]] suive.**
+25) **Car celui qui est préoccupé de sauver sa vie la perdra ; mais celui qui perdra sa vie à cause de [[Jésus|moi]], la retrouvera.**
+26) **Si un homme parvient à posséder le monde entier, à quoi cela lui sert-il s’il perd sa vie ? Et que peut-on donner pour racheter sa vie ?**
+27) **[[Jésus|Le Fils de l’homme]] viendra dans la gloire de son [[Dieu|Père]], avec ses anges, et alors il donnera à chacun ce que lui auront valu ses actes.**
+28) **Vraiment, [[Jésus|je]] vous l’assure, plusieurs de ceux qui sont ici ne mourront pas avant d’avoir vu [[Jésus|le Fils de l’homme]] venir comme Roi.**
 ## Chapitre 19
 ### Versets 16 à 30
 Intitulé **Les riches et le royaume de [[Dieu]]** par [[Bible#^358f23|BDS]]
@@ -161,7 +245,23 @@ Même intitulé que [[2nd Evangile - Marc#Chapitre 13|Marc 13]]
 ### Versets 36 à 51
 Intitulé **Se tenir prêt** par [[Bible#^358f23|BDS]]
 
-36) Quant au jour et à l’heure où cela se produira, personne ne les connaît, ni les anges du ciel, ni même le [[Jésus|Fils]]  ; personne, sauf le [[Dieu|Père]], et lui seul.
+36) **Quant au jour et à l’heure où cela se produira, personne ne les connaît, ni les anges du ciel, ni même le [[Jésus|Fils]]  ; personne, sauf le [[Dieu|Père]], et lui seul.**
+37) **Lors de la venue du [[Jésus|Fils de l’homme]], les choses se passeront comme au temps de [[Noé|Noé]] ;**
+38) **en effet, à l’époque qui précéda le déluge, les gens étaient occupés à manger et à boire, à se marier et à marier leurs enfants, jusqu’au jour où [[Noé|Noé]] entra dans le bateau.**
+39) **Ils ne se doutèrent de rien, jusqu’à ce que vienne le déluge qui les emporta tous.**
+    **Ce sera la même chose lorsque le [[Jésus|Fils de l’homme]] viendra.**
+40) **Alors deux ouvriers travailleront côte à côte dans un champ : l’un sera emmené, l’autre laissé.**
+41) **Deux femmes seront en train de tourner la pierre de meule : l’une sera emmenée, l’autre laissée.**
+42) **Tenez-vous donc en éveil, puisque vous ignorez quel jour votre [[Seigneur et non seulement sauveur|Seigneur]] viendra.**
+43) **Vous le savez bien : si le maître de maison savait à quelle heure de la nuit le voleur doit venir, il resterait éveillé pour ne pas le laisser pénétrer dans sa maison.**
+44) **Pour cette même raison, vous aussi, tenez-vous prêts, car c’est à un moment que vous n’auriez pas imaginé que le [[Jésus|Fils de l’homme]] viendra.**
+45) **Quel est le serviteur fidèle et sensé à qui le maître a confié le soin de veiller sur l’ensemble de son personnel pour qu’il distribue à chacun sa nourriture au moment voulu ?**
+46) **Heureux ce serviteur que le maître, à son retour, trouvera en train d’agir comme il le lui a demandé !**
+47) **Vraiment, [[Jésus|je]] vous l’assure, son maître lui confiera l’administration de tout ce qu’il possède.**
+48) **Mais si c’est un mauvais serviteur, qui se dit : « Mon maître n’est pas près de rentrer »,**
+49) **et se met à maltraiter ses compagnons de service, à manger et à boire avec les ivrognes,**
+50) **son maître arrivera un jour où il ne s’y attendra pas et à un moment qu’il ne connaît pas.**
+51) **Alors le maître le punira très sévèrement, et le traitera comme on traite les hypocrites. C’est là qu’il y aura des pleurs et d’amers regrets.**
 ## Chapitre 25
 ### Versets 1 à 13
 Intitulé **La parabole des dix jeunes filles** par [[Bible#^358f23|BDS]].
@@ -208,3 +308,12 @@ Intitulé **L'arrestation de [[Jésus]]** par [[Bible#^358f23|BDS]]
 55) Là-dessus, [[Jésus|Jésus]] dit à la troupe : **Me prenez-vous pour un bandit, pour que vous soyez venus en force avec épées et gourdins afin de vous emparer de moi ? J’étais assis chaque jour dans la cour du Temple pour donner mon enseignement et vous ne m’avez pas arrêté !**
 56) **Mais tout ceci est arrivé pour que les écrits des prophètes s’accomplissent.**
     Alors tous les disciples l’abandonnèrent et prirent la fuite.
+## Chapitre 28
+### Versets 16 à 20
+Intitulé **La souveraineté du [[Jésus|Ressuscité]]** par [[Bible#^358f23|BDS]]
+
+16) Les [[Apôtres|onze disciples]] se rendirent en [[Galilée|Galilée]], sur la colline que [[Jésus|Jésus]] leur avait indiquée.
+17) Dès qu’[[Apôtres|ils]] [[Jésus|l]]’aperçurent, [[Apôtres|ils]] [[Jésus|l]]’adorèrent. Mais [[Apôtres|ils]] ne surent que penser.
+18) Alors [[Jésus|Jésus]] s’approcha d’[[Apôtres|eux]] et leur parla ainsi : **[[Jésus|J]]’ai reçu tout pouvoir dans le ciel et sur la terre :**
+19) **allez donc dans le monde entier, faites des disciples parmi tous les peuples, baptisez-les au nom du [[Dieu|Père]], du [[Jésus|Fils]] et du [[Saint-Esprit|Saint-Esprit]]**
+20) **et enseignez-leur à obéir à tout ce que [[Jésus|je]] vous ai prescrit. Et voici : [[Jésus|je]] suis [[Jésus|moi-même]] avec vous tous les jours, jusqu’à la fin du monde.**

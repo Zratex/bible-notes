@@ -1,0 +1,2 @@
+Région historiquement attribué dans le nord de l'[[Allemagne]] où la langue d'origine a grandement influencé l'[[Allemagne#L'allemand (langue)|allemand]] et en parti l'[[UK#L'anglais (langue)|anglais]]
+![[Saxe.png]]
