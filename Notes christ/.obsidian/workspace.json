@@ -4,21 +4,17 @@
     "type": "split",
     "children": [
       {
-        "id": "63e992e2e8c45ced",
+        "id": "e1beaa1e5968e76d",
         "type": "tabs",
         "children": [
           {
-            "id": "a081a45f92df0e22",
+            "id": "b271c06857e4a457",
             "type": "leaf",
             "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Définitions/Vulgate.md",
-                "mode": "source",
-                "source": false
-              },
-              "icon": "lucide-file",
-              "title": "Vulgate"
+              "type": "graph",
+              "state": {},
+              "icon": "lucide-git-fork",
+              "title": "Graph view"
             }
           }
         ]
@@ -94,7 +90,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Définitions/Septante.md",
+                "file": "Vie équilibré.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -104,7 +100,7 @@
                 "unlinkedCollapsed": true
               },
               "icon": "links-coming-in",
-              "title": "Backlinks for Septante"
+              "title": "Backlinks for Vie équilibré"
             }
           },
           {
@@ -113,12 +109,12 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "Définitions/Septante.md",
+                "file": "Vie équilibré.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               },
               "icon": "links-going-out",
-              "title": "Outgoing links from Septante"
+              "title": "Outgoing links from Vie équilibré"
             }
           },
           {
@@ -128,9 +124,7 @@
               "type": "tag",
               "state": {
                 "sortOrder": "frequency",
-                "useHierarchy": true,
-                "showSearch": false,
-                "searchQuery": ""
+                "useHierarchy": true
               },
               "icon": "lucide-tags",
               "title": "Tags"
@@ -142,13 +136,10 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "Définitions/Septante.md",
-                "followCursor": false,
-                "showSearch": false,
-                "searchQuery": ""
+                "file": "Vie équilibré.md"
               },
               "icon": "lucide-list",
-              "title": "Outline of Septante"
+              "title": "Outline of Vie équilibré"
             }
           },
           {
@@ -165,12 +156,12 @@
               "title": "All properties"
             }
           }
-        ],
-        "currentTab": 1
+        ]
       }
     ],
     "direction": "horizontal",
-    "width": 300
+    "width": 300,
+    "collapsed": true
   },
   "left-ribbon": {
     "hiddenItems": {
@@ -182,53 +173,53 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "412ad4b021e16018",
+  "active": "b271c06857e4a457",
   "lastOpenFiles": [
-    "Définitions/Vulgate.md",
-    "Définitions/Septante.md",
-    "Formation disciples/Histoire de l'Eglise/L'Eglise primitive jusqu'avant la réforme.md",
-    "Formation disciples/Histoire de l'Eglise/L'Eglise au temps des réformes.md",
-    "Formation disciples/Histoire de l'Eglise/Personnages/Jérôme de Stridon.md",
-    "Définitions/Apocryphes.md",
-    "Lieux historiques/Régions géographiques/Panomie.md",
+    "Sermont sur la montagne (Matt 6).md",
+    "Temps de Dieu pour ma vie.md",
+    "Vivre une fois radicale.md",
+    "Untitled.md",
+    "Résister c'est briller.md",
+    "Référence Biblique/Ancien testament/5 - Livres poétiques/22 - Cantique des cantiques.md",
+    "Référence Biblique/Ancien testament/5 - Livres poétiques/21 - Ecclésiaste.md",
+    "Référence Biblique/Ancien testament/4 - Seconds livres historiques/14 - Esdras.md",
+    "Référence Biblique/Ancien testament/4 - Seconds livres historiques/12&13 - Chroniques.md",
+    "Référence Biblique/Ancien testament/3 - Premiers livres historiques/8 - Ruth.md",
+    "Référence Biblique/Ancien testament/3 - Premiers livres historiques/6 - Josué.md",
+    "Réalité spirituelle.md",
+    "Repos de l'âme.md",
+    "Repos de Dieu.md",
+    "Personnages/Nouveau testament/Caïphe.md",
+    "Personnages/Nouveau testament/Anân.md",
+    "Personnages/Ancien testament/Zorobabel.md",
+    "Personnages/Ancien testament/Shiphra.md",
+    "Personnages/Ancien testament/Salathiel.md",
+    "Personnages/Ancien testament/Ruth.md",
+    "Personnages/Ancien testament/Rois d'Israel/Famille de David/Shamma.md",
+    "Personnages/Ancien testament/Rois d'Israel/Famille de David/Isaï.md",
+    "Personnages/Ancien testament/Rois d'Israel/Famille de David/Enfants de David/Salomon.md",
+    "Personnages/Ancien testament/Rois d'Israel/Famille de David/Enfants de David/Adoniya.md",
+    "Personnages/Ancien testament/Rois d'Israel/Famille de David/Enfants de David/Absalom.md",
+    "Personnages/Ancien testament/Rois d'Israel/Famille de David/Enfants de David",
+    "Personnages/Ancien testament/Rois d'Israel/Famille de David/Eliab (fils d'Isaï).md",
+    "Personnages/Ancien testament/Patriarches/Famille d'Abraham/Fils de Jacob/Petits-enfants de Jacob",
+    "Personnages/Ancien testament/Patriarches/Famille d'Abraham/Fils de Jacob",
+    "Personnages/Ancien testament/Patriarches/Famille d'Abraham",
+    "Personnages/Ancien testament/Patriarches",
+    "Personnages/Ancien testament/Juges",
+    "Personnages/Ancien testament/Déportation à Babylone",
     "Lieux historiques/Régions géographiques/Pannonia_SPQR.png",
-    "Lieux historiques/Régions géographiques/Non confirmé 889258.crdownload",
-    "Définitions/Tanakh.md",
-    "Définitions/La Loi de Dieu.md",
-    "Formation disciples/Formation disciples POC Reims.md",
-    "Lieux historiques/Villes/Rome.md",
-    "Formation disciples/Histoire de l'Eglise/Royaumes/Saint-Empire Romain Germanique.md",
-    "Formation disciples/Histoire de l'Eglise/Personnages/Charlemagne.md",
-    "Formation disciples/Histoire de l'Eglise/Royaumes/Italie.md",
-    "Lieux historiques/Royaumes/Israël.md",
-    "Lieux historiques/Royaumes/Assyrie.md",
-    "Lieux historiques/Royaumes/Syrie.md",
-    "Lieux historiques/Régions géographiques/Canaan.md",
-    "Lieux historiques/Régions géographiques/Cilicie.md",
-    "Lieux historiques/Régions géographiques/Mont Sinaï.md",
-    "Lieux historiques/Régions géographiques/Mont Hermon.md",
-    "Lieux historiques/Régions géographiques/Néguev.md",
-    "Lieux historiques/Régions géographiques/Sinaï.md",
-    "Lieux historiques/Régions géographiques/Anti-Liban.md",
-    "Lieux historiques/Régions géographiques/Mont Nebo.md",
-    "Lieux historiques/Régions géographiques/Montagne de Hor.md",
-    "Formation disciples/Histoire de l'Eglise/Régions/Images/Saxe.png",
-    "Histoire après l'église primitive/Régions/Images/Non confirmé 197929.crdownload",
-    "Formation disciples/Histoire de l'Eglise/Régions/Images/Westphalia_x3.svg.png",
-    "Histoire après l'église primitive/Régions/Images/Non confirmé 874392.crdownload",
-    "Formation disciples/Histoire de l'Eglise/Régions/Images",
-    "Histoire après l'église primitive/Régions/Nouveau dossier",
-    "Formation disciples/Histoire de l'Eglise/Régions",
-    "Formation disciples/Histoire de l'Eglise/Royaumes/Images/Saint Empire Romain Germanique.gif",
-    "Histoire après l'église primitive/Royaumes/Images/Non confirmé 119931.crdownload",
-    "Formation disciples/Histoire de l'Eglise/Royaumes/Images",
-    "Histoire après l'église primitive/Royaumes/Nouveau dossier",
-    "Formation disciples/Histoire de l'Eglise/Royaumes",
-    "Lieux historiques/Images/Mer rouge.png",
-    "Lieux historiques/Images/Aqaba.png",
-    "Lieux historiques/Images/Egypte.PNG",
-    "Lieux historiques/Images/Arménie.PNG",
+    "Lieux historiques/Images/Ramsès city.PNG",
     "Lieux historiques/Images/Pitom.PNG",
-    "Lieux historiques/Images/Ramsès city.PNG"
+    "Lieux historiques/Images/Méditerranée.png",
+    "Lieux historiques/Images/Mer rouge.png",
+    "Lieux historiques/Images/Egypte.PNG",
+    "Lieux historiques/Images/Césarée de Philippe.PNG",
+    "Lieux historiques/Images/Crète.PNG",
+    "Lieux historiques/Images/Chorazin.PNG",
+    "Lieux historiques/Images/Capharnaüm.PNG",
+    "Formation disciples/Histoire de l'Eglise/Régions/Images",
+    "Formation disciples/Histoire de l'Eglise/Royaumes/Images",
+    "Formation disciples/Histoire de l'Eglise/Régions"
   ]
 }
