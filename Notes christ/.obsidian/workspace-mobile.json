@@ -1,14 +1,14 @@
 {
   "main": {
-    "id": "57e6877a19d3c8ea",
+    "id": "1ffb8807f1d7e64d",
     "type": "split",
     "children": [
       {
-        "id": "f3b3cb929efd515a",
+        "id": "6be5f8fbe84311b6",
         "type": "tabs",
         "children": [
           {
-            "id": "0919473eb119eb1e",
+            "id": "a157a3a6c417e529",
             "type": "leaf",
             "state": {
               "type": "graph",
@@ -18,251 +18,87 @@
             }
           },
           {
-            "id": "f0eb917364607342",
+            "id": "7ebd854e2e186ea4",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "TEMP.md",
+                "file": "Servir dans l'église locale.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "TEMP"
+              "title": "Servir dans l'église locale"
             }
           },
           {
-            "id": "ff5e4c22ab055ad0",
+            "id": "3288d9bf21c00192",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Jésus populaire part 3.md",
+                "file": "L'éternel est mon berger.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Jésus populaire part 3"
+              "title": "L'éternel est mon berger"
             }
           },
           {
-            "id": "cfcfa10e79accc6f",
+            "id": "9127f00483856ad3",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "TCA spirituel.md",
+                "file": "Formation disciples/Maturité/Vers la maturité - part1.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "TCA spirituel"
+              "title": "Vers la maturité - part1"
             }
           },
           {
-            "id": "a5d5cee1cdc4432d",
+            "id": "16a8a8908de67677",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Marcher dans le royaume de Dieu.md",
+                "file": "La main de Dieu sur les Hommes.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Marcher dans le royaume de Dieu"
+              "title": "La main de Dieu sur les Hommes"
             }
           },
           {
-            "id": "fa464e3013f1a372",
+            "id": "ce33533d431cd335",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Esclave de Dieu pour la vraie liberté.md",
+                "file": "Établissement d'une voix nouvelle.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Esclave de Dieu pour la vraie liberté"
-            }
-          },
-          {
-            "id": "664e7ab8bc554f7d",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Formation disciples POC Reims/Histoire de l'Eglise/L'Eglise primitive jusqu'avant la réforme.md",
-                "mode": "source",
-                "source": false
-              },
-              "icon": "lucide-file",
-              "title": "L'Eglise primitive jusqu'avant la réforme"
-            }
-          },
-          {
-            "id": "744b353f56b665f4",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Corps âme esprit âme.md",
-                "mode": "source",
-                "source": false
-              },
-              "icon": "lucide-file",
-              "title": "Corps âme esprit âme"
-            }
-          },
-          {
-            "id": "b6a6628341ff239a",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Formation disciples POC Reims/Histoire de l'Eglise/Conclusions de l'histoire l'Eglise.md",
-                "mode": "source",
-                "source": false
-              },
-              "icon": "lucide-file",
-              "title": "Conclusions de l'histoire l'Eglise"
-            }
-          },
-          {
-            "id": "7f838fbb0d8a7300",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Temps de réforme.md",
-                "mode": "source",
-                "source": false
-              },
-              "icon": "lucide-file",
-              "title": "Temps de réforme"
-            }
-          },
-          {
-            "id": "dff6ebce78aea892",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Corps âme esprit âme.md",
-                "mode": "source",
-                "source": false
-              },
-              "icon": "lucide-file",
-              "title": "Corps âme esprit âme"
-            }
-          },
-          {
-            "id": "89343162bb92666b",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Formation disciples/Identité/Nouvelle vie pour nouvelle identité.md",
-                "mode": "source",
-                "source": false
-              },
-              "icon": "lucide-file",
-              "title": "Nouvelle vie pour nouvelle identité"
-            }
-          },
-          {
-            "id": "1e746c8af13726bd",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Là où tout commence.md",
-                "mode": "source",
-                "source": false
-              },
-              "icon": "lucide-file",
-              "title": "Là où tout commence"
-            }
-          },
-          {
-            "id": "adc6a9797890fa8e",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Réalité spirituelle.md",
-                "mode": "source",
-                "source": false
-              },
-              "icon": "lucide-file",
-              "title": "Réalité spirituelle"
-            }
-          },
-          {
-            "id": "5cfa0e1632100e90",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Comment lire la Bible.md",
-                "mode": "source",
-                "source": false
-              },
-              "icon": "lucide-file",
-              "title": "Comment lire la Bible"
-            }
-          },
-          {
-            "id": "e1733e0c65a28288",
-            "type": "leaf",
-            "state": {
-              "type": "empty",
-              "state": {},
-              "icon": "lucide-file",
-              "title": "New tab"
-            }
-          },
-          {
-            "id": "fb0f7cc2f689aa3e",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Prière, louange et adoration.md",
-                "mode": "source",
-                "source": false
-              },
-              "icon": "lucide-file",
-              "title": "Prière, louange et adoration"
-            }
-          },
-          {
-            "id": "e2c523b91330411d",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Untitled.md",
-                "mode": "source",
-                "source": false
-              },
-              "icon": "lucide-file",
-              "title": "Untitled"
+              "title": "Établissement d'une voix nouvelle"
             }
           }
         ],
-        "currentTab": 17
+        "currentTab": 5
       }
     ],
     "direction": "vertical"
   },
   "left": {
-    "id": "f05aa37cc36cb692",
+    "id": "e870b578ff0cf1ee",
     "type": "mobile-drawer",
     "children": [
       {
-        "id": "af457e3e436e4eae",
+        "id": "c69594bf1cdba32e",
         "type": "leaf",
         "state": {
           "type": "file-explorer",
@@ -275,7 +111,7 @@
         }
       },
       {
-        "id": "dddbab65a7c16940",
+        "id": "c319513b068f37b4",
         "type": "leaf",
         "state": {
           "type": "search",
@@ -292,20 +128,22 @@
         }
       },
       {
-        "id": "a8ba2f3fc7493fc6",
+        "id": "7f3645d14b9a3cda",
         "type": "leaf",
         "state": {
           "type": "tag",
           "state": {
             "sortOrder": "frequency",
-            "useHierarchy": true
+            "useHierarchy": true,
+            "showSearch": false,
+            "searchQuery": ""
           },
           "icon": "lucide-tags",
           "title": "Tags"
         }
       },
       {
-        "id": "cabff94ebbac91cc",
+        "id": "8fac36e6d1a6649f",
         "type": "leaf",
         "state": {
           "type": "bookmarks",
@@ -313,35 +151,21 @@
           "icon": "lucide-bookmark",
           "title": "Bookmarks"
         }
-      },
-      {
-        "id": "763910101ab8c7a6",
-        "type": "leaf",
-        "state": {
-          "type": "all-properties",
-          "state": {
-            "sortOrder": "frequency",
-            "showSearch": false,
-            "searchQuery": ""
-          },
-          "icon": "lucide-archive",
-          "title": "All properties"
-        }
       }
     ],
     "currentTab": 0
   },
   "right": {
-    "id": "e56ac22b300c2f7f",
+    "id": "d4e471f6000a7ff7",
     "type": "mobile-drawer",
     "children": [
       {
-        "id": "6de6f639ece383f9",
+        "id": "5ee63124946b4a43",
         "type": "leaf",
         "state": {
           "type": "backlink",
           "state": {
-            "file": "Enseignement biblique - temp.md",
+            "file": "La main de Dieu sur les Hommes.md",
             "collapseAll": false,
             "extraContext": false,
             "sortOrder": "alphabetical",
@@ -355,12 +179,11 @@
         }
       },
       {
-        "id": "ba8e982f59e97ee3",
+        "id": "83d3dd8894ebab74",
         "type": "leaf",
         "state": {
           "type": "outgoing-link",
           "state": {
-            "file": "Les promesses du Seigneur.md",
             "linksCollapsed": false,
             "unlinkedCollapsed": true
           },
@@ -369,12 +192,14 @@
         }
       },
       {
-        "id": "6389841bb09da59b",
+        "id": "3abf8e84c1b90faf",
         "type": "leaf",
         "state": {
           "type": "outline",
           "state": {
-            "file": "Les promesses du Seigneur.md"
+            "followCursor": false,
+            "showSearch": false,
+            "searchQuery": ""
           },
           "icon": "lucide-list",
           "title": "Outline"
@@ -390,47 +215,57 @@
       "canvas:Create new canvas": false,
       "daily-notes:Open today's daily note": false,
       "templates:Insert template": false,
-      "command-palette:Open command palette": false
+      "command-palette:Open command palette": false,
+      "bases:Create new base": false
     }
   },
-  "active": "e2c523b91330411d",
+  "active": "ce33533d431cd335",
   "lastOpenFiles": [
-    "Prière, louange et adoration.md",
-    "Untitled.md",
-    "Personnages/Nouveau testament/Joseph de Nazareth.md",
-    "Personnages/Nouveau testament/Marie.md",
-    "Formation disciples/Comment lire la Bible.md",
-    "Référence Biblique/Ancien testament/3 - Premiers livres historiques/6 - Josué.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/15&16 - Timothée.md",
-    "Lieux historiques/Villes/Iconium.md",
-    "Personnages/Nouveau testament/Paul.md",
-    "Formation disciples/Workshops.md",
-    "Formation disciples/Identité/Notre origine et identité.md",
+    "La main de Dieu sur les Hommes.md",
+    "Établissement d'une voix nouvelle.md",
+    "Formation disciples/Maturité/Vers la maturité - part1.md",
     "Formation disciples/Etude - identité.md",
-    "Formation disciples/Identité/Nouvelle vie pour nouvelle identité.md",
-    "Vivre une fois radicale.md",
-    "Comment lire la Bible.md",
-    "Résister c'est briller.md",
-    "Définitions/Royaume de Dieu.md",
+    "Untitled 1.md",
+    "Formation disciples/Maturité",
+    "L'éternel est mon berger.md",
+    "Servir dans l'église locale.md",
+    "Les pierres.md",
     "Marcher dans le royaume de Dieu.md",
-    "Réalité spirituelle.md",
-    "Là où tout commence.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/9 - Galates.md",
-    "Personnages/Nouveau testament/Jacques (épistolier).md",
-    "Personnages/Satan.md",
-    "Formation disciples/Identité/Nouvelle vie pour nouvelle identité.sync-conflict-20250524-110635-4D4KN2W.md",
-    "Définitions/Repentance.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/9 - Galates.sync-conflict-20250524-111505-4D4KN2W.md",
-    "Lieux historiques/Images/Césarée de Philippe.PNG",
-    "Formation disciples POC Reims/Histoire de l'Eglise",
-    "Formation disciples POC Reims",
-    "Enok",
-    "Lieux historiques/Images/Thyatire.png",
-    "Lieux historiques/Images/Philadelphie.PNG",
-    "Lieux historiques/Images/Philippe (ville).PNG",
-    "Lieux historiques/Images/Petra build.png",
-    "Lieux historiques/Images/Botsra.PNG",
-    "Lieux historiques/Images/Carte Judée.png",
-    "Versets"
+    "De l'espoir.md",
+    "A quiconque désire suivre Jésus.md",
+    "Immuabilité de la parole.md",
+    "Les promesses du Seigneur.md",
+    "Seigneur et non seulement sauveur.md",
+    "Rafraîchissement.md",
+    "S'aimer pour aimer.md",
+    "Repos de l'âme.md",
+    "Temps d'apostasie.md",
+    "Noël et les cadeaux.md",
+    "La marche d'Élie.md",
+    "Fruit.md",
+    "La liberté.md",
+    "Nos Forteresses.md",
+    "La justice.md",
+    "Dieu n'a pas changé.md",
+    "Daniel a ouvert les fenêtres.md",
+    "Référence Biblique/Nouveau testament/5 - La fin",
+    "Référence Biblique/Nouveau testament/4 - Lettres générales",
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul",
+    "Référence Biblique/Nouveau testament/2 - Actes des apôtres",
+    "Référence Biblique/Nouveau testament/1 -Evangiles",
+    "Référence Biblique/Ancien testament/7 - Seconds livres prophétiques",
+    "Référence Biblique/Ancien testament/6 - Premiers livres prophétiques",
+    "Référence Biblique/Ancien testament/5 - Livres poétiques",
+    "Référence Biblique/Ancien testament/4 - Seconds livres historiques",
+    "Lieux historiques/Régions géographiques/Pannonia_SPQR.png",
+    "Lieux historiques/Images/Nazareth.PNG",
+    "Lieux historiques/Images/Pitom.PNG",
+    "Lieux historiques/Images/Lycaonie.png",
+    "Lieux historiques/Images/Mer morte.png",
+    "Lieux historiques/Images/Paphos.PNG",
+    "Lieux historiques/Images/Memphis.PNG",
+    "Lieux historiques/Images/Bande de Gaza.png",
+    "Lieux historiques/Images/Pamphylie.png",
+    "Lieux historiques/Images/Gath.PNG"
   ]
 }
