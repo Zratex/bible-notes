@@ -1,4 +1,5 @@
-`1 Pierre 2:4-10` apporté par Manu Neves : nous sommes les pierres qui bâtissons l'[[Eglise]].
+Message partagé par Manu : nous sommes les pierres qui bâtissons l'[[Eglise]].
+ `1 Pierre 2:4-10`
 ## Rejeté pour être choisi
 `1 Pierre 2:4-6` être rejeté pour être choisi, c'est à dire que le choix de suivre [[Jésus]] fait que nous serons forcément rejeté par des personnes : `Jean 15:18-19` 
 Nous avons été sauvés pour pour être appelé à construire (peu importe le type de service)

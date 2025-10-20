@@ -1,4 +1,4 @@
-Encouragement de John 9/06/2025
+Encouragement partagé par John le 9/06/2025 à ZR
 
 Exemple de l'application de la foi : `Hebreux 11:1-28`
 La foi : c'est la ferme assurance d'avoir confiance en [[Dieu]], et c'est l'espérance d'être dans le [[Royaume de Dieu]]

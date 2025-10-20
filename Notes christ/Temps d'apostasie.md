@@ -1,4 +1,4 @@
-Message apporté par José le 20/10/2024
+Message partagé par José le 20/10/2024
 
 [[15&16 - Timothée#Versets 1 à 9|2 Timothée 3:1-17]] : [[Paul]] dit qu'il faut lire la [[Bible]] et la mettre dans notre cœur pour **ne pas être un apôtre dans l'erreur**
 

@@ -1,4 +1,4 @@
-Message apporté par Mario le 22/06/2025
+Message apporté par Mario le 22/06 ?
 
 `Luc 7:11-16` : [[Dieu]] ramène des choses meurtri à la vie : rien n'est impossible à [[Dieu]]
 La foule qui le suivait était tellement reconnaissante qu'elle devait suivre [[Jésus]] par joie

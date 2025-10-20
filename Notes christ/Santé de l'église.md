@@ -1,4 +1,4 @@
-Message apporté par Ulrick le 18/08/2024
+Message partagé par Ulrick le 18/08/2024
 
 Les étapes de croissance humaines sont similaires au spirituel dès une nouvelle naissance (donc après le baptême).
 Un parent s'inquiète quand un enfant grandit, pour [[Dieu]] c'est la même chose après notre nouvelle naissance sur l'aspect spirituel.

@@ -1,4 +1,4 @@
-Note du message d'Ulrick le Dimanche 23 Juillet 2023.
+Message partagé par Ulrick le 23/07/2023.
 
 [[Actes#Versets 1 à 3|Actes 8:1-3]] et [[Actes#Versets 4 à 25|Actes 8:4-25]]
 ->Au cœur des temps non favorable, ils ont malgré tout répandu la [[Jésus|bonne nouvelle]]

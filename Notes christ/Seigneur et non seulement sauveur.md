@@ -1,4 +1,4 @@
-Message apporté par José le 9/06/2024
+Message partagé par José le 9/06/2024
 
 Le seigneur est reconnu quand [[Jésus|Jésus Christ]] est un nom qui est pleinement reconnu en nom
 # Est ce qu'il est notre seigneur et pas seulement notre sauveur ?

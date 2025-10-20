@@ -1,4 +1,4 @@
-Note commencé le 28/08/2023 par Brendan a Hillsong Paris.
+Note commencé le 28/08/2023 sur le message partagé par Brendan a Hillsong Paris.
 `2 Pierre 1:13` 
 Il y a des choses qui gêne notre vision, comme un parrebrise qui doit être nettoyé par des essuies glaces.
 

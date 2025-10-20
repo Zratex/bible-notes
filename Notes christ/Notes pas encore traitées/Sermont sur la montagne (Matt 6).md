@@ -1,6 +1,6 @@
-Message apporté par José le 20/07/2025 qui est une suite de messages sur le sermont de la montagne
+Message partagé par José le 20/07/2025 qui est une suite de messages sur le sermont de la montagne
 
-`Matthiru 6:19-21` : richesses de la terre et celles auprès de [[Dieu]]
+`Matthieu 6:19-21` : richesses de la terre et celles auprès de [[Dieu]]
 [[Jésus]] nous invite à reconsidérer nos priorités
 L'argent est nécessaire mais pairissable. Et il peut détériorer selon la place qu'il a dans notre cœur
 

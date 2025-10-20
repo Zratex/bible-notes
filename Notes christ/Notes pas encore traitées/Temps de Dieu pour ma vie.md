@@ -1,4 +1,4 @@
-Message de Ulrick le 06/07
+Message partagé par Ulrick le 06/07 en 2024 ?
 
 [[Dieu]] voit :
 - ce que l'on est

@@ -4,7 +4,7 @@ Livres par [[Samuel]]
 ### Versets 1 à 11
 Intitulé **Le cantique d'[[Anne]]** par [[Bible#^358f23|BDS]]
 
-1) Alors [[Anne|Anne]] prononça cette prière  :
+1) Alors [[Anne|Anne]] prononça cette prière :
    La joie remplit [[Anne|mon]] cœur, ╵c’est grâce à l’[[Dieu|Eternel]] ;
    oui, grâce à l’[[Dieu|Eternel]], ╵[[Anne|mon]] front s’est relevé
    et [[Anne|j]]’ai de quoi répondre ╵à ceux qui [[Anne|me]] blessaient.

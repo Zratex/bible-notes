@@ -1,4 +1,4 @@
-Message apporté par Lucas le 26/03/2025
+Message partagé par Lucas le 26/03/2025
 
 Toute notre société cours, dans des priorités qui ne sont pas [[Dieu]].
 

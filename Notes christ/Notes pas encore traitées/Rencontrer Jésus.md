@@ -1,4 +1,4 @@
-Message de Yannick le 25/08/2024
+Message partagé par Yannick le 25/08/2024
 
 La parole de [[Jésus]] est comme un niveau : il corrige et est un repère.
 

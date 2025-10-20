@@ -2,9 +2,8 @@ Parabole qui serait destinée à l'[[Eglise]].
 [[1er Evangile - Matthieu#Versets 1 à 13|Mathieu 25:1-13]] les vierges représentent l'[[Eglise]], et le mari [[Jésus]].
 il n'existe pas d'[[Eglise]] parfaite temps que [[Jésus]] n'est pas revenu.
 
-Ce chapitre arrive juste après `Matthieu 24` où il parlait de **la fin des temps**.
+Ce chapitre arrive juste après [[1er Evangile - Matthieu#Chapitre 24|Matthieu 24]] où [[Jésus]] parlait de **la fin des temps**.
 > Seule parabole où le **futur** est employé. Parce qu'il est question du futur
-
 ## L'huile
 L'huile doit être renouvelé, et il faut aller la chercher à la source. Sans cette huile on se fait donc séduire.
 -> [[David]] au plus bas demandais à [[Dieu]] de surtout garder son huile

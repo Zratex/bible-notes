@@ -1,4 +1,4 @@
-Message apporté par Claude le 27/04/2025
+Message partagé par Claude le 27/04/2025
 `Esaie 30:15-18` 
 
 Le commandement le plus transgressé est le 4eme : le repos

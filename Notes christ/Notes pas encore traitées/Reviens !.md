@@ -1,4 +1,4 @@
-Message apporté par José le 1/10/2025
+Message partagé par José le 1/10/2025
 
 [[Dieu]] nous ordonne des choses, mais on a le choix de faire ce qu'on veut
 -> ce n'est pas un dictateur

@@ -16,4 +16,4 @@ On se plein envers [[Dieu]] sur notre vie, alors que lui doit s'occuper de toute
 
 [[Dieu]] a exaucé leur prière mais pas au moment où ils le souhaitaient. [[Zacharie]] transforma la bonne nouvelle en une mauvaise.
 -> [[Dieu]] attend le bon moment et il n'oublie pas les prière.
-Autre exemple de prière : Anne a propos de Samuel
+Autre exemple de prière : [[Anne]] a propos de [[Samuel]] ([[9&10 - Samuel|1 Samuel 2]])

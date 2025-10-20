@@ -1,4 +1,4 @@
-Message apporté par José le 29/01/2025
+Message partagé par José le 29/01/2025
 
 > Est ce qu'on est d'abord bien planté ? Et ensuite, suis-je enraciné ?
 

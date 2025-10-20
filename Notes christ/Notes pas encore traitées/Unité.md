@@ -1,4 +1,4 @@
-1+1=1
+1+1=1, message partagé par Hervé le 28/01/2024
 > Exemple : Un sac de carotte et de patate fait un bon potage. Dans cette opération ce qui importe c'est l'**unité**
 
 [[2nd Evangile - Marc#Versets 17 à 31|Marc 10:17]] et `Marc 10:21`
