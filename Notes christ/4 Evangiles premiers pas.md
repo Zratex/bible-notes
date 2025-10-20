@@ -46,7 +46,7 @@ Même si [[Dieu]] semble avoir tout accompli au travers de [[Jésus]], ==la [[Bi
 >[[Dieu]] use de sa patience afin que tous puissent arriver à la repentance : il veut que tous soient converti et vivent cet évangile (référence à [[26 - Ezéchiel]])
 
 Side note : Les [[Évangile]] se terminent en général par des résumés.
-### Exemple de comparaison entre évangiles
+### Exemple de comparaison entre évangiles [[Synoptique|synoptiques]]
 ```
 Cas étudié ici : "Comment suivre Jésus"
 ```

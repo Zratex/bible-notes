@@ -1,4 +1,4 @@
-Message apporté par Manu le 12/03/2025
+Message partagé par Manu le 12/03/2025
 
 [[6 - Romains#Chapitre 6|Romains 6:19-23]]
 Notion de la liberté : de qui/quoi veux t on être esclave ? Car on est forcément esclave de quelqu'un/quelque chose

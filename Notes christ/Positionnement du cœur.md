@@ -1,4 +1,4 @@
-Thème de la prédication d'Ulrich fait le Mercredi 19 Juillet 2023 intitulé "Où se trouve le trésor de mon cœur ?"
+Thème de la prédication d'Ulrick fait le Mercredi 19 Juillet 2023 intitulé "Où se trouve le trésor de mon cœur ?"
 
 [[1er Evangile - Matthieu#Versets 19 à 34|Matthieu 6:19-21]] partie du serment sur la montagne ayant duré un chapitre précédent et durant encore un chapitre.
 
@@ -37,7 +37,7 @@ La bonne question question n'est pas **"Comment dois je faire ?"** mais plutôt 
 [[2nd Evangile - Marc#Versets 41 à 44|Marc 12:42-44]] (conclusion a la question de la dîme) : donner avec du cœur c'est quelque chose qui doit nous coûter (volonté qu'avait déjà [[David]])
 > Comme c'est le cœur, c'est avec joie que l'on doit donner 
 
-- Exemple d'Ulrich : en passant du CHU de Limoges au ministère d'Angers il gagnait moins d'argent. Malgré tout il a décidé de donner plus
+- Exemple d'Ulrick : en passant du CHU de Limoges au ministère d'Angers il gagnait moins d'argent. Malgré tout il a décidé de donner plus
 
 [[18 - Hébreux#Versets 1 à 18|Hébreux 10:15-18]]
 

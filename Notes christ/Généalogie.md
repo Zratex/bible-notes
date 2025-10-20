@@ -1,5 +1,4 @@
-"Notre passé" sujet du 5 Juillet par Ulrich. C'est la 6eme partie sur une série sur démasquer des ruses et mensonges du diable.
-
+"Notre passé" sujet du 5/08/2023 ? partagé par Ulrick. C'est la 6eme partie sur une série sur démasquer des ruses et mensonges du diable.
 ## L'impact de la généalogie 
 On est unique, et c'est pas parce que notre précédent lui est arrivé quelque chose qu'il nous arrivera la même chose
 -> Les malédictions générationnelles ne sont point (inclus dans `2 Corinthiens 5:17`), exemple : généalogie de Jésus 

@@ -4,21 +4,21 @@
     "type": "split",
     "children": [
       {
-        "id": "e1beaa1e5968e76d",
+        "id": "b99c0221f1213130",
         "type": "tabs",
         "children": [
           {
-            "id": "b271c06857e4a457",
+            "id": "3147819444591726",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "4 Evangiles premiers pas.md",
+                "file": "Définitions/Zélotes.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "4 Evangiles premiers pas"
+              "title": "Zélotes"
             }
           }
         ]
@@ -178,35 +178,37 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "b271c06857e4a457",
+  "active": "3147819444591726",
   "lastOpenFiles": [
-    "Référence Biblique/Nouveau testament/1 -Evangiles/2nd Evangile - Marc.md",
-    "4 Evangiles premiers pas.md",
-    "Référence Biblique/Ancien testament/7 - Seconds livres prophétiques/39 - Malachie.md",
-    "Référence Biblique/Ancien testament/3 - Premiers livres historiques/11&12 - Rois.md",
-    "Référence Biblique/Nouveau testament/1 -Evangiles/3eme Evangile - Luc.md",
-    "Référence Biblique/Nouveau testament/2 - Actes des apôtres/Actes.md",
-    "Personnages/Nouveau testament/Disciples de Jésus/Apôtres.md",
-    "Personnages/Nouveau testament/Disciples de Jésus/Judas.md",
-    "Personnages/Nouveau testament/Disciples de Jésus/Luc.md",
-    "Définitions/Parole de Dieu (Actes).md",
-    "Définitions/Évangile.md",
-    "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.md",
-    "Référence Biblique/Nouveau testament.md",
-    "Formation disciples/Comportement et éthiques.md",
-    "Note sur l'évangile.md",
-    "Référence Biblique/Nouveau testament/5 - La fin/Apocalypse.md",
-    "Lieux historiques/Villes/Césarée.md",
-    "Lieux historiques/Images/Césarée (Israël).PNG",
-    "Lieux historiques/Villes/Césarée de Philippe.md",
+    "Définitions/Yom Kippour.md",
+    "Définitions/Yahweh.md",
+    "Définitions/Vulgate.md",
+    "Définitions/Transsubstantiation.md",
+    "Définitions/Torah.md",
     "Définitions/Théophile.md",
-    "Lieux historiques/Villes/Ephèse.md",
-    "Lieux historiques/Villes/Antioche.md",
-    "2 coeurs 2 rois.md",
-    "Définitions/Conviction.md",
+    "Définitions/Tentation.md",
+    "Définitions/Tanakh.md",
+    "Définitions/Synoptique.md",
+    "4 Evangiles premiers pas.md",
+    "Définitions/Évangile.md",
+    "Définitions/Sion.md",
+    "Définitions/Courants de pensée/Polythéiste.md",
+    "Définitions/Courants de pensée/Monothéisme.md",
+    "Définitions/Courants de pensée/Luthéranisme.md",
+    "Définitions/Louange.md",
+    "Définitions/La Loi de Dieu.md",
+    "Définitions/Ketouvim.md",
+    "Définitions/Jeûne.md",
+    "Définitions/Indulgences.md",
+    "Définitions/Identité en Christ.md",
+    "Définitions/Courants de pensée/Humanisme.md",
+    "Définitions/Grand-prêtre.md",
     "Définitions/Éthique.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/7&8 - Corinthiens.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/6 - Romains.md",
+    "Définitions/Ephratien.md",
+    "Définitions/Courants de pensée/Déisme.md",
+    "Définitions/Courants de pensée",
+    "Notes pas encore traitées",
+    "Lieux historiques/Images/Césarée (Israël).PNG",
     "Personnages/Ancien testament/Rois d'Israel/Famille de David/Enfants de David",
     "Personnages/Ancien testament/Patriarches/Famille d'Abraham/Fils de Jacob/Petits-enfants de Jacob",
     "Personnages/Ancien testament/Patriarches/Famille d'Abraham/Fils de Jacob",
@@ -223,8 +225,6 @@
     "Lieux historiques/Images/Césarée de Philippe.PNG",
     "Lieux historiques/Images/Crète.PNG",
     "Lieux historiques/Images/Chorazin.PNG",
-    "Formation disciples/Histoire de l'Eglise/Régions/Images",
-    "Formation disciples/Histoire de l'Eglise/Royaumes/Images",
-    "Formation disciples/Histoire de l'Eglise/Régions"
+    "Formation disciples/Histoire de l'Eglise/Régions/Images"
   ]
 }
