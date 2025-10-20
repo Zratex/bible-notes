@@ -62,7 +62,7 @@ Cas étudié ici : "Comment suivre Jésus"
 	- `[...] s'adressant à tous, [...]` il inclut tout le monde sans distinction, et on peut discerner dans cette tournure de phrase que [[Jésus]] ne **s'adresse pas seulement aux personnes présentes à ce moment là**
 	- Conséquence de cette distinction : **chaque jour cet appel de suivre [[Jésus]] est valable**
 ## L'évangile est dans la Bible
-L'emplacement des [[Évangile|évangiles]], que ce sont dans leur venue dans notre monde ainsi que son emplacement physique dans la [[Bible]], est comparable à la structure de notre vie :
+L'emplacement des [[Évangile|évangiles]], que ce soit dans leur venue dans notre monde ainsi que son emplacement physique dans la [[Bible]], est comparable à la structure de notre vie :
 
 |         Emplacement dans la [[Bible]] (et contexte historique)          | Comparaison à notre vie                                         |
 | :---------------------------------------------------------------------: | --------------------------------------------------------------- |
