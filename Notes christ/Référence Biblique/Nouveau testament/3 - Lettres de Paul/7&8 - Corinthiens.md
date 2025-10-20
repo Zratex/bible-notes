@@ -122,6 +122,20 @@ Intitulé **S’abstenir de pratiques idolâtres** par [[Bible#^358f23|BDS]]
 20) Mais je dis que les sacrifices des païens sont offerts à des démons et à ce qui n’est pas [[Dieu]]. Or, je ne veux pas que vous ayez quoi que ce soit de commun avec les démons.
 21) Vous ne pouvez boire à la coupe du [[Jésus|Seigneur]] et en même temps à celle des démons. Vous ne pouvez pas manger à la table du [[Jésus|Seigneur]] et à celle des démons.
 22) Ou bien, voulons-nous provoquer le [[Jésus|Seigneur]] dont l’amour est exclusif ? Nous croyons-nous plus forts que lui ?
+### Versets 23 à 33
+Intitulé **Faire tout pour la gloire de Dieu** par [[Bible#^358f23|BDS]]
+
+23) Oui, tout [[Paul|m]]’est permis, mais tout n’est pas bon pour nous. Tout est permis mais tout n’aide pas à grandir dans la foi.
+24) Que chacun de vous, au lieu de songer seulement à lui-même, recherche aussi les intérêts des autres.
+25) Vous pouvez manger de tout ce qui se vend au marché sans vous poser de questions, par scrupule de conscience, sur l’origine de ces aliments.
+26) Car *[[19 - Psaumes#Chapitre 24|la terre et ses richesses appartiennent au Seigneur]]*.
+27) Si un non-croyant vous invite et que vous désiriez accepter son invitation, mangez tranquillement de tout ce que l’on vous servira, sans vous poser de questions par scrupule de conscience.
+28) Mais si quelqu’un vous dit : « Cette viande a été offerte en sacrifice à une idole », alors n’en mangez pas à cause de celui qui vous a prévenus et pour des raisons de conscience.
+29) – Par conscience, [[Paul|j]]’entends, évidemment, non la vôtre, mais la sienne. – Pourquoi, en effet, exposerais-[[Paul|je ma]] liberté à être condamnée du fait qu’un autre a des scrupules de conscience ?
+30) Si [[Paul|je]] mange en remerciant [[Dieu|Dieu]], pourquoi serais-[[Paul|je]] critiqué au sujet d’un aliment pour lequel [[Paul|je]] rends grâce à [[Dieu|Dieu]] ?
+31) Ainsi, que vous mangiez, que vous buviez, bref, quoi que ce soit que vous fassiez, faites tout pour la gloire de [[Dieu|Dieu]].
+32) Mais que rien, dans votre comportement, ne soit une occasion de chute, ni pour les [[Israël|Juifs]], ni pour les païens, ni pour les membres de l’[[Eglise|Eglise]] de [[Dieu|Dieu]].
+33) Agissez comme [[Paul|moi]] qui [[Paul|m]]’efforce, en toutes choses, de [[Paul|m]]’adapter à tous. [[Paul|Je]] ne considère pas ce qui [[Paul|me]] serait avantageux, mais [[Paul|je]] recherche le bien du plus grand nombre pour leur salut.
 # 2 Corinthiens
 ## Chapitre 5
 ### Versets 11 à 21

@@ -1,0 +1,1 @@
+==Etique :== Qu'est-ce ce qu'on a le droit de faire dans le spectre des valeurs et qui est approuvé par [[Dieu]]

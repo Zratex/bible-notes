@@ -8,10 +8,10 @@ Tout comme un royaume ou une nation classique, le royaume de [[Dieu]] a plusieur
 	- Prière
 	- ...
 - Devoirs d'un citoyen :
-	- Ecouter les ordres du roi
-		- soit écouter la parole de [[Dieu]]
-		- soit aussi lire la [[Bible]]
-- Culture du royaume : L'amour
+	- Ecouter les ordres du roi, c'est à dire :
+		- écouter la parole de [[Dieu]]
+		- lire la [[Bible]]
+- **Culture du royaume : L'amour**
 - Puissance de passeport : le plus puissant
 
 Un citoyen doit représenter son royaume !

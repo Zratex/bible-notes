@@ -176,3 +176,18 @@ Intitulé **La vie d'un chrétien - S'offrir à [[Dieu]]** par [[Bible#^358f23|B
 
 1) [[Paul|Je]] vous recommande donc, frères et sœurs, à cause de cette immense bonté de [[Dieu|Dieu]], à lui offrir votre corps comme un sacrifice vivant, saint et qui plaise à [[Dieu|Dieu]]. Ce sera là de votre part un culte raisonnable.
 2) Ne prenez pas comme modèle le monde actuel, mais soyez transformés par le renouvellement de votre intelligence, pour pouvoir discerner la volonté de [[Dieu|Dieu]] : ce qui est bon, ce qui [[Dieu|lui]] plaît, ce qui est parfait.
+## Chapitre 14
+### Versets 13 (partie 2) à 23
+Intitulé **Se soucier des frères et sœurs en la foi** par [[Bible#^358f23|BDS]]
+
+13) [...] Prenez plutôt la décision de ne rien mettre en travers du chemin d’un frère qui puisse le faire trébucher ou tomber.
+14) Pour [[Paul|moi, je]] sais et [[Paul|je]] suis pleinement convaincu, en accord avec la pensée du [[Jésus|Seigneur Jésus]], que rien n’est impur en soi. Cependant, si quelqu’un considère que telle chose est impure, alors elle est impure pour lui.
+15) Si donc, à cause d’un aliment, tu fais du tort à ton frère, tu ne te conduis pas selon l’amour. Ne va pas, pour un aliment, causer la perte de celui pour qui [[Jésus|Christ]] est mort.
+16) Que ce qui est bien pour vous ne devienne pas pour d’autres une occasion de dire du mal de vous.
+17) Dans le [[Royaume de Dieu|royaume de Dieu]], ce n’est pas le manger et le boire qui importent, mais une vie juste, la paix et la joie que produit l’[[Saint-Esprit|Esprit Saint]].
+18) Celui qui sert [[Jésus|Christ]] de cette manière est agréable à [[Dieu|Dieu]] et estimé des hommes.
+19) Ainsi donc, cherchons toujours ce qui contribue à favoriser la paix et à nous faire grandir les uns les autres dans la foi.
+20) Ne va pas, pour un aliment, détruire l’œuvre de [[Dieu|Dieu]]. Tout est pur, c’est vrai. Mais il est mal de manger tel aliment si cela risque de causer la chute d’un frère.
+21) Ce qui est bien, c’est de s’abstenir de viande, de vin, bref, de tout ce qui peut entraîner la chute de ton frère.
+22) Garde devant [[Dieu|Dieu]] cette foi que tu as. Heureux celui qui ne se condamne pas lui-même par ce qu’il approuve.
+23) Mais celui qui mange tout en ayant des doutes à ce sujet est déjà condamné, car son attitude ne découle pas de la foi. Or tout ce qui ne découle pas de la foi est péché.

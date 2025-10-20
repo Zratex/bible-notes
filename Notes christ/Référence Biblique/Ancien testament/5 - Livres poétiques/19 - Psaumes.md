@@ -46,12 +46,12 @@ Intitulé **L'[[Dieu|Eternel]] donne la paix** par [[Bible#^358f23|BDS]]
 3) Et vous, les hommes, ╵jusques à quand jetterez-vous ╵le discrédit sur [[David|mon]] honneur ?
    Jusques à quand vous plairez-vous ╵à poursuivre le vent
    et le mensonge ?
-   Pause
+   *Pause*
 4) Sachez-le bien : ╵l’[[Dieu|Eternel]] s’est choisi ╵un homme qui s’attache à lui :
    et il [[David|m]]’entend ╵quand je l’appelle.
 5) Mettez-vous en colère ╵mais n’allez pas jusqu’à pécher  !
    Réfléchissez, sur votre lit, ╵puis taisez-vous !
-   Pause
+   *Pause*
 6) Offrez des sacrifices ╵conformes à la [[La Loi de Dieu|Loi]]
    et confiez-vous en l’[[Dieu|Eternel]] !
 7) Ils sont nombreux ceux qui demandent : ╵« Qui donc nous apportera le bonheur ? »
@@ -89,6 +89,35 @@ Intitulé **Le chemin de la vie** par [[Bible#^358f23|BDS]]
 11) [[Dieu|Tu]] me feras connaître ╵le chemin de la vie :
     plénitude de joie ╵en [[Dieu|ta]] présence,
     délices éternelles ╵auprès de toi.
+## Chapitre 24
+Intitulé **L’Eternel entre dans son sanctuaire** par [[Bible#^358f23|BDS]]
+
+1) *Psaume de [[David|David]].*
+   La terre et ses richesses ╵appartiennent à l’[[Dieu|Eternel]].
+   L’univers est à lui ╵avec ceux qui l’habitent.
+2) C’est [[Dieu|lui]] qui a fondé ╵la terre sur les mers,
+   qui l’a établie fermement ╵au-dessus des cours d’eau.
+3) Qui pourra accéder ╵au mont de l’[[Dieu|Eternel]] ?
+   Qui pourra se tenir ╵dans sa demeure sainte ?
+4) L’innocent aux mains nettes ╵et qui a le cœur pur,
+   qui ne se tourne pas ╵vers le mensonge,
+   et qui ne jure pas ╵pour tromper son prochain.
+5) Celui qui vit ainsi ╵sera béni par l’[[Dieu|Eternel]],
+   il obtiendra justice ╵de son [[Dieu|Dieu]] qui le sauve.
+6) O [[Dieu|Eternel]], tel est le peuple ╵qui se tourne vers toi
+   et qui s’attache à toi, ╵[[Dieu|Dieu]] de [[Jacob|Jacob]].
+   *Pause*
+7) Relevez vos frontons, ╵ô portes, haussez-vous, ╵vous, portes éternelles,
+   pour que le [[Dieu|Roi glorieux]] ╵y fasse son entrée !
+8) Qui est ce [[Dieu|Roi glorieux]] ?
+   C’est l’[[Dieu|Eternel, ╵le Fort et le Vaillant]],
+   oui, l’[[Dieu|Eternel]], ╵vaillant dans les combats.
+9) Relevez vos frontons, ╵ô portes, haussez-vous, ╵vous, portes éternelles,
+   pour que le [[Dieu|Roi glorieux]] ╵y fasse son entrée !
+10) Qui est ce [[Dieu|Roi glorieux]] ?
+    Le [[Dieu|Seigneur des armées célestes]],
+    c’est lui le [[Dieu|Roi glorieux]].
+    *Pause*
 ## Chapitre 28
 Intitulé **L'[[Dieu|Eternel]] répond** par [[Bible#^358f23|BDS]]
 
@@ -645,7 +674,7 @@ Intitulé **Conduis-moi dans tes voies !** par [[Bible#^358f23|BDS]]
    et [[David|je]] médite ╵sur l’œuvre de [[Dieu|tes]] mains.
 6) [[Dieu|Je]] tends les mains vers [[Dieu|toi]],
    [[David|je]] me sens devant toi ╵comme une terre aride.
-   Pause
+   *Pause*
 7) O [[Dieu|Eternel]], ╵viens vite m’exaucer,
    [[David|je]] me sens défaillir.
    Ne [[Dieu|te]] détourne pas de [[David|moi]],

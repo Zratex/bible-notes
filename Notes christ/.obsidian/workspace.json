@@ -11,10 +11,14 @@
             "id": "b271c06857e4a457",
             "type": "leaf",
             "state": {
-              "type": "graph",
-              "state": {},
-              "icon": "lucide-git-fork",
-              "title": "Graph view"
+              "type": "markdown",
+              "state": {
+                "file": "Formation disciples/Comportement et éthiques.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "Comportement et éthiques"
             }
           }
         ]
@@ -152,8 +156,8 @@
                 "showSearch": false,
                 "searchQuery": ""
               },
-              "icon": "lucide-archive",
-              "title": "All properties"
+              "icon": "lucide-ghost",
+              "title": "all-properties"
             }
           }
         ]
@@ -165,6 +169,7 @@
   },
   "left-ribbon": {
     "hiddenItems": {
+      "bases:Create new base": false,
       "switcher:Open quick switcher": false,
       "graph:Open graph view": false,
       "canvas:Create new canvas": false,
@@ -173,8 +178,17 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "b271c06857e4a457",
+  "active": "412ad4b021e16018",
   "lastOpenFiles": [
+    "Définitions/Conviction.md",
+    "Formation disciples/Comportement et éthiques.md",
+    "Définitions/Éthique.md",
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/7&8 - Corinthiens.md",
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/6 - Romains.md",
+    "Référence Biblique/Ancien testament/5 - Livres poétiques/19 - Psaumes.md",
+    "Définitions/Royaume de Dieu.md",
+    "Formation disciples/Formation disciples POC Reims.md",
+    "Formation disciples/Maturité/Vers la maturité - part1.md",
     "Sermont sur la montagne (Matt 6).md",
     "Temps de Dieu pour ma vie.md",
     "Vivre une fois radicale.md",
@@ -192,16 +206,7 @@
     "Personnages/Nouveau testament/Caïphe.md",
     "Personnages/Nouveau testament/Anân.md",
     "Personnages/Ancien testament/Zorobabel.md",
-    "Personnages/Ancien testament/Shiphra.md",
-    "Personnages/Ancien testament/Salathiel.md",
-    "Personnages/Ancien testament/Ruth.md",
-    "Personnages/Ancien testament/Rois d'Israel/Famille de David/Shamma.md",
-    "Personnages/Ancien testament/Rois d'Israel/Famille de David/Isaï.md",
-    "Personnages/Ancien testament/Rois d'Israel/Famille de David/Enfants de David/Salomon.md",
-    "Personnages/Ancien testament/Rois d'Israel/Famille de David/Enfants de David/Adoniya.md",
-    "Personnages/Ancien testament/Rois d'Israel/Famille de David/Enfants de David/Absalom.md",
     "Personnages/Ancien testament/Rois d'Israel/Famille de David/Enfants de David",
-    "Personnages/Ancien testament/Rois d'Israel/Famille de David/Eliab (fils d'Isaï).md",
     "Personnages/Ancien testament/Patriarches/Famille d'Abraham/Fils de Jacob/Petits-enfants de Jacob",
     "Personnages/Ancien testament/Patriarches/Famille d'Abraham/Fils de Jacob",
     "Personnages/Ancien testament/Patriarches/Famille d'Abraham",
