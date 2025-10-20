@@ -1,0 +1,1 @@
+Fils de [[Saül]], décrit notamment dans [[9&10 - Samuel#Versets 14 à 18|1 Samuel 23:14-18]]

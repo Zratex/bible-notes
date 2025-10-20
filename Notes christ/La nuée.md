@@ -5,8 +5,7 @@
 [[15 - Néhémie#Versets 9 à 12|Néhémie 8:10]]
 > On se plaint mais on ne sait pas apprécier ce que [[Dieu]] nous a donné
 
-
-`Psaumes 63:je n'ai plus le passage précis` [[David]] faisait toujours attention à ce que l'âme de [[Dieu]] soit présent en lui malgré les pires moments.
+[[19 - Psaumes#Chapitre 63|Psaumes 63:2]] : [[David|David]] faisait toujours attention à ce que l'âme de [[Dieu]] soit présent en lui malgré les pires moments.
 > Il faut se demander : où nous emmènes l'[[Saint-Esprit|esprit]] ?
 
 -> Le peuple de [[Dieu]] ne se posait pas la question, ce qui ne les faisaient pas avancer.
@@ -17,7 +16,7 @@ Comme le peuple n'était pas prêt dans leur mentalité, ils passèrent 40 ans d
 Réexpliqué dans ce passage : [[2 - Exode#Versets 17 à 22|Exode 13:17]]
 
 ## Nous ne sommes pas faibles
-`Psaumes 68:28` Il ordonne d'être puissant, c'est un ordre !
+Dans sa parole, [[Dieu]] nous ordonne d'être puissant, c'est un ordre !
 Si on ne l'exécute pas, nous n'avancerons pas dans notre vie.
 [[2 - Exode#Versets 10 à 31|Exode 14:13-14]]
 > Si l'on pense être faible, il faut passer du temps avec [[Dieu]]

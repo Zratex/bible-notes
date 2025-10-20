@@ -155,6 +155,15 @@ Intitulé **La victoire de [[David]] sur [[Goliath]]** par [[Bible#^358f23|BDS]]
 57) Quand [[David]] fut de retour au camp après avoir tué [[Goliath|le Philistin]], [[Abner]] le prit et le conduisit devant [[Saül]]. [[David]] tenait encore en main la tête [[Goliath|du Philistin]].
 58) Quand [[Saül]] lui demanda : De qui es-[[David|tu]] le fils, mon garçon ?
     [[David]] lui répondit : Je suis fils de ton serviteur [[Isaï]] de [[Bethléem|Bethléhem]].
+## Chapitre 23
+### Versets 14 à 18
+Intitulé **La visite de [[Jonathan]]** par [[Bible#^358f23|BDS]]
+
+14) [[David|David]] gagna la région désertique de [[Ziph|Ziph]] et s’installa dans des refuges escarpés de la montagne. [[Saül|Saül]] le cherchait jour après jour ; mais [[Dieu|Dieu]] ne le fit pas tomber entre ses mains.
+15) [[David]] s’aperçut que [[Saül|Saül]] s’était mis en campagne pour [[David|lui]] ôter la vie, et [[David|il]] resta dans le désert de [[Ziph|Ziph]] du côté de Horsha.
+16) [[Jonathan|Jonathan]], le fils de [[Saül|Saül]], se mit en route et se rendit auprès de [[David|David]] à Horsha pour l’encourager en affermissant sa confiance en [[Dieu|Dieu]].
+17) [[Jonathan|Il]] [[David|lui]] dit : Sois sans crainte ! [[Saül|Mon père]] ne réussira pas à mettre la main sur [[David|toi]] ; [[David|tu]] régneras sur [[Israël|Israël]], et [[Jonathan|moi je]] serai au second rang près de [[David|toi]] ; [[Saül|mon père]] lui-même sait bien qu’il en sera ainsi.
+18) Tous deux renouvelèrent leur pacte d’amitié devant l’[[Dieu|Eternel]]. [[David|David]] resta à Horsha et [[Jonathan|Jonathan]] rentra chez [[Jonathan|lui]].
 # 2 Samuel
 ## Chapitre 5
 ### Versets 17 à 25

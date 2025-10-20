@@ -118,39 +118,6 @@ Intitulé **L’Eternel entre dans son sanctuaire** par [[Bible#^358f23|BDS]]
     Le [[Dieu|Seigneur des armées célestes]],
     c’est lui le [[Dieu|Roi glorieux]].
     *Pause*
-## Chapitre 28
-Intitulé **L'[[Dieu|Eternel]] répond** par [[Bible#^358f23|BDS]]
-
-1) *De [[David]].*
-   A toi, ô [[Dieu|Eternel]], ╵[[David|je]] fais appel ;
-   toi, mon rocher, ╵ne sois pas sourd ╵à ma requête.
-   Si tu restes muet,
-   je deviendrai pareil ╵à ceux qui s’en vont vers la tombe.
-2) Entends [[David|ma]] voix qui [[Dieu|te]] supplie ╵quand je t’appelle à l’aide
-   en élevant mes mains ╵en direction du lieu très saint ╵de ta demeure !
-3) Ne [[David|me]] fais pas subir ╵avec les criminels, ╵avec les malfaisants, ╵le sort qui leur est réservé ;
-   ces gens parlent de paix ╵à leur prochain, ╵avec le mal au fond du cœur.
-4) Oui, traite-les selon leurs actes ╵et leurs méfaits ;
-   oui, traite-les selon leurs œuvres,
-   fais retomber sur eux ╵ce qu’ils ont fait !
-5) Car ils ne tiennent aucun compte ╵des actes accomplis par l’[[Dieu|Eternel]]
-   et de ses œuvres.
-   Que l’[[Dieu|Eternel]] ╵fasse venir leur ruine ╵et qu’il ne les relève pas !
-6) Béni soit l’[[Dieu|Eternel]],
-   car il [[David|m]]’entend ╵lorsque je le supplie.
-7) L’[[Dieu|Eternel]] est [[David|ma]] force, ╵mon bouclier.
-   En lui je me confie ; ╵il vient à mon secours.
-   Aussi mon cœur bondit de joie.
-   Je veux chanter pour le louer.
-8) L’[[Dieu|Eternel]] est la force ╵de tous les siens,
-   il est la forteresse ╵où le roi qui a reçu l’onction de sa part ╵trouve la délivrance.
-9) O [[Dieu|Eternel]], ╵sauve ton peuple, ╵et bénis-le : ╵il est ton patrimoine.
-   Sois son berger, ╵et prends soin de lui pour toujours.
-## Chapitre 32
-Intitulé **Joie du pardon** par [[Bible#^358f23|BDS]]
-
-8) Tu as dit : « Je t’instruirai, ╵je t’indiquerai ╵le chemin ╵que tu devras emprunter,
-   je serai ton conseiller, ╵mes yeux veilleront sur toi.
 ## Chapitre 25
 Intitulé **Montre-moi la voie que tu veux que je suive !** par [[Bible#^358f23|BDS]]
 1) *De [[David]]*
@@ -200,6 +167,39 @@ Intitulé **Montre-moi la voie que tu veux que je suive !** par [[Bible#^358f23|
     car je compte sur toi.
 22) O [[Dieu]], sauve [[Israël]]
     de toutes ses détresses !
+## Chapitre 28
+Intitulé **L'[[Dieu|Eternel]] répond** par [[Bible#^358f23|BDS]]
+
+1) *De [[David]].*
+   A toi, ô [[Dieu|Eternel]], ╵[[David|je]] fais appel ;
+   toi, mon rocher, ╵ne sois pas sourd ╵à ma requête.
+   Si tu restes muet,
+   je deviendrai pareil ╵à ceux qui s’en vont vers la tombe.
+2) Entends [[David|ma]] voix qui [[Dieu|te]] supplie ╵quand je t’appelle à l’aide
+   en élevant mes mains ╵en direction du lieu très saint ╵de ta demeure !
+3) Ne [[David|me]] fais pas subir ╵avec les criminels, ╵avec les malfaisants, ╵le sort qui leur est réservé ;
+   ces gens parlent de paix ╵à leur prochain, ╵avec le mal au fond du cœur.
+4) Oui, traite-les selon leurs actes ╵et leurs méfaits ;
+   oui, traite-les selon leurs œuvres,
+   fais retomber sur eux ╵ce qu’ils ont fait !
+5) Car ils ne tiennent aucun compte ╵des actes accomplis par l’[[Dieu|Eternel]]
+   et de ses œuvres.
+   Que l’[[Dieu|Eternel]] ╵fasse venir leur ruine ╵et qu’il ne les relève pas !
+6) Béni soit l’[[Dieu|Eternel]],
+   car il [[David|m]]’entend ╵lorsque je le supplie.
+7) L’[[Dieu|Eternel]] est [[David|ma]] force, ╵mon bouclier.
+   En lui je me confie ; ╵il vient à mon secours.
+   Aussi mon cœur bondit de joie.
+   Je veux chanter pour le louer.
+8) L’[[Dieu|Eternel]] est la force ╵de tous les siens,
+   il est la forteresse ╵où le roi qui a reçu l’onction de sa part ╵trouve la délivrance.
+9) O [[Dieu|Eternel]], ╵sauve ton peuple, ╵et bénis-le : ╵il est ton patrimoine.
+   Sois son berger, ╵et prends soin de lui pour toujours.
+## Chapitre 32
+Intitulé **Joie du pardon** par [[Bible#^358f23|BDS]]
+
+8) Tu as dit : « Je t’instruirai, ╵je t’indiquerai ╵le chemin ╵que tu devras emprunter,
+   je serai ton conseiller, ╵mes yeux veilleront sur toi.
 ## Chapitre 37
 Intitulé **Le témoignage de l'expérience** par [[Bible#^358f23|BDS]]
 1) *De [[David]]*
@@ -306,6 +306,35 @@ Intitulé **Rejetés par l'[[Dieu|Eternel]]** par [[Bible#^358f23|BDS]]
     plaqués au sol.
 27) Agis, viens à notre aide !
     Libère-nous dans [[Dieu|ton]] amour !
+## Chapitre 63
+Intitulé **[[Dieu|Ton]] amour vaut mieux que la vie** par [[Bible#^358f23|BDS]]
+
+1) *Psaume de [[David|David]], [[9&10 - Samuel#Versets 14 à 18|lorsqu’il était dans le désert]] de [[Judée|Juda]].*
+2) O [[Dieu|Dieu, tu]] es [[David|mon]] [[Dieu|Dieu]] ! ╵C’est [[Dieu|toi]] que [[David|je]] recherche.
+   [[David|Mon]] âme a soif de toi,
+   [[David|mon]] corps même ne cesse ╵de languir après [[Dieu|toi]]
+   comme une terre aride, ╵desséchée et sans eau.
+3) C’est pourquoi, dans [[Dieu|ton]] sanctuaire, ╵[[David|je]] [[Dieu|te]] contemple,
+   considérant [[Dieu|ta]] puissance et [[Dieu|ta]] gloire.
+4) Car [[David|ton]] amour ╵vaut bien mieux que la vie,
+   aussi mes lèvres chantent ╵sans cesse [[Dieu|tes]] [[Louange|louanges]].
+5) Oui, [[David|je]] veux [[Dieu|te]] bénir ╵tout au long de [[David|ma]] vie,
+   [[David|je]] lèverai les mains ╵pour [[David|m]]’adresser à [[Dieu|toi]].
+6) [[David|Mon]] cœur sera comblé ╵comme, en un bon festin, ╵le corps se rassasie ╵de mets gras succulents,
+   et [[David|je]] crierai de joie ╵en disant [[Dieu|tes]] [[Dieu|louanges]].
+7) Lorsque [[David|je]] suis couché, ╵[[David|mes]] pensées vont vers [[Dieu|toi]],
+   [[David|je]] médite sur [[Dieu|toi]] ╵tout au long de la nuit.
+8) Oui, [[Dieu|tu]] [[David|m]]’accordes ton secours,
+   [[David|je]] suis dans l’allégresse ╵à l’ombre de [[Dieu|tes]] ailes  !
+9) [[David|Je]] demeure attaché ╵fidèlement à [[Dieu|toi]] ;
+   de [[Dieu|ta]] main agissante, ╵[[Dieu|tu]] [[David|me]] soutiens.
+10) Qu’ils aillent à leur perte, ╵ceux qui veulent [[David|ma]] mort,
+    et qu’ils descendent ╵aux tréfonds de l’abîme.
+11) Qu’ils soient livrés ╵au tranchant de l’épée,
+    que leurs corps soient donnés ╵en pâture aux chacals.
+12) Mais le roi trouvera en [[Dieu|Dieu]] ╵la source de sa joie.
+    Ceux qui, dans leurs serments, ╵prennent [[Dieu|Dieu]] à témoin ╵s’en féliciteront,
+    tandis que les menteurs ╵auront la bouche close.
 ## Chapitre 68
 Intitulé **Le triomphe du [[Dieu]] victorieux** par [[Bible#^358f23|BDS]]
 

@@ -20,7 +20,6 @@ Il va voir directement le roi pour annoncer la famine et repartir [[11&12 - Rois
 Celui qui a honte de [[Jésus]] devant les hommes, aura ==honte devant [[Dieu]] lors du jugement==.
 
 [[Elie]] a été appelé à se retirer dans un désert, jusqu'à ce que le miracle qui le maintenait vivant s'est arrêté (car c'était un signal). A ce moment là, il revint donc à [[Israël]]
-
 ## Partie 2
 Suite de la prêche sur [[Elie]] par le pasteur José.
 > Note renommée en **Marche d'Élie** plutôt que **Un homme de la même nature que nous**
@@ -89,7 +88,6 @@ Dès qu'il se passait quelque chose, [[Elie]] ne prenait pas de gloire mais alla
 > Il y a des conditions avec les **promesses. Il faut obéir pour les obtenir**
 
 Ce qui est important c'est d'être ==en communication avec [[Dieu]]==.
-
 ### La [[Bible]] dit la vérité
 [[Elie]] est arrivé avant [[Achab]]. Même si on peut penser que ce n'est **pas possible, il faut savoir que** ==[[Dieu]] ne ment pas dans sa [[Bible|parole]].== Soit :
 - c'est une image
