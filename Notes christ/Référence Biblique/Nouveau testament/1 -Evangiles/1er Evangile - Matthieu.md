@@ -1,4 +1,4 @@
-1er [[Nouveau testament#^94270d|évangile de la Bible]], rédigé par [[Matthieu]].
+1er [[Évangile|évangile]], rédigé par [[Matthieu]].
 > Les passages qui seront en gras correspondent aux passages où [[Jésus]] parle
 
 ## Chapitre 1
@@ -179,8 +179,9 @@ Intitulé **Qui est vraiment [[Jésus]] ?** par [[Bible#^358f23|BDS]]
 20) Puis [[Jésus|Jésus]] interdit à ses disciples de dire à qui que ce soit qu’[[Jésus|il]] était le Messie.
 ### Versets 21 à 28
 Intitulé **Comment suivre [[Jésus]]** par [[Bible#^358f23|BDS]]
+>Echo à [[2nd Evangile - Marc#Versets 34 à 38|Marc 8:34-38]] et [[3eme Evangile - Luc#Versets 23 à 27|Luc 9:23-27]]
 
-21) A partir de ce moment, [[Jésus|Jésus]] commença à exposer à ses disciples qu’il devait se rendre à [[Jérusalem|Jérusalem]], y subir de cruelles souffrances de la part des responsables du peuple, des chefs des prêtres et des spécialistes de la [[La Loi de Dieu|Loi]], être mis à mort et ressusciter le troisième jour.
+21) A partir de ce moment, [[Jésus|Jésus]] commença à exposer à ses disciples qu’[[Jésus|il]] devait se rendre à [[Jérusalem|Jérusalem]], y subir de cruelles souffrances de la part des responsables du peuple, des chefs des prêtres et des spécialistes de la [[La Loi de Dieu|Loi]], être mis à mort et ressusciter le troisième jour.
 22) Alors [[Simon Pierre|Pierre]] [[Jésus|le]] prit à part et se mit à lui faire des reproches : Que [[Dieu|Dieu]] [[Jésus|t]]’en préserve, [[Jésus|Seigneur]] ! Cela ne [[Jésus|t]]’arrivera pas !
 23) Mais [[Jésus|Jésus]], se retournant, [[Simon Pierre|lui]] dit : **Arrière, « [[Satan|Satan]] » ! Eloigne-toi de [[Jésus|moi]] ! Tu es pour moi un obstacle, car tes pensées ne sont pas celles de [[Dieu|Dieu]] ; ce sont des pensées tout humaines.**
 24) Puis, s’adressant à [[Jésus|ses]] disciples, [[Jésus|Jésus]] dit : **Si quelqu’un veut marcher à [[Jésus|ma]] suite, qu’il renonce à lui-même, qu’il [[Porter sa croix|se charge de sa croix]] et qu’il [[Jésus|me]] suive.**

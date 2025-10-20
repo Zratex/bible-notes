@@ -1,4 +1,4 @@
-3eme [[Nouveau testament#^94270d|évangile de la Bible]], rédigé par [[Luc]].
+3eme [[Évangile|évangile]], rédigé par [[Luc]].
 > Les passages qui seront en gras correspondent aux passages où [[Jésus]] parle
 ## Chapitre 1
 ### Versets 1 à 4
@@ -6,7 +6,7 @@ Intitulé **Introduction** par [[Bible#^358f23|BDS]]
 
 1) Plusieurs personnes ont entrepris de composer un récit des événements qui se sont passés parmi nous,
 2) d’après ce que nous ont transmis ceux qui en ont été les témoins oculaires depuis le début et qui sont devenus des serviteurs de la [[Jésus|Parole de Dieu]].
-3) [[Luc|J]]’ai donc décidé à mon tour de [[Luc|m]]’informer soigneusement sur tout ce qui est arrivé depuis le commencement, et de te l’exposer par écrit de manière suivie, très honorable [[4 Evangiles premiers pas#Résumés|Théophile]] ;
+3) [[Luc|J]]’ai donc décidé à mon tour de [[Luc|m]]’informer soigneusement sur tout ce qui est arrivé depuis le commencement, et de te l’exposer par écrit de manière suivie, très honorable [[Théophile|Théophile]] ;
 4) ainsi, tu pourras reconnaître l’entière véracité des enseignements que tu as reçus.
 ### Versets 5 à 25
 Intitulé **L'annonce de la naissance de Jean-Baptiste** par [[Bible#^358f23]|BDS]]
@@ -135,6 +135,15 @@ Intitulé **Qui est vraiment [[Jésus]] ?** par [[Bible#^358f23|BDS]]
 [[Simon Pierre|Pierre]] prit la parole et dit : Le [[Jésus|Messie]], envoyé par [[Dieu]].
 21) [[Jésus]] leur ordonna formellement de ne le dire à personne.
 22) Et [[Jésus|il]] ajouta : **Il faut que le [[Jésus|Fils]] de l’homme souffre beaucoup et soit rejeté par les responsables du peuple, les chefs des prêtres et les spécialistes de la [[La Loi de Dieu|Loi]]  ; il doit être mis à mort et ressusciter le troisième jour.**
+### Versets 23 à 27
+Intitulé **Comment suivre [[Jésus]]** par [[Bible#^358f23|BDS]]
+>Echo à [[1er Evangile - Matthieu#Versets 21 à 28|Matthieu 16:21-28]] et [[2nd Evangile - Marc#Versets 34 à 38|Marc 8:34-38]]
+
+23) Puis, s’adressant à tous, [[Jésus|il]] dit : **Si quelqu’un veut [[Jésus|me]] suivre, qu’il renonce à lui-même, qu’il se charge chaque jour de sa croix, et qu’il [[Jésus|me]] suive.**
+24) **En effet, celui qui est préoccupé de sauver sa vie, la perdra ; mais celui qui perdra sa vie à cause de [[Jésus|moi]] la sauvera.**
+25) **Si un homme parvient à posséder le monde entier, à quoi cela lui sert-il s’il se perd ou se détruit lui-même ?**
+26) **Si quelqu’un a honte de [[Jésus|moi]] et de [[Jésus|mes]] paroles, le [[Jésus|Fils de l’homme]], à [[Jésus|son]] tour, aura honte de lui quand il viendra dans sa gloire, dans celle du [[Dieu|Père]] et des saints anges.**
+27) **[[Jésus|Je]] vous l’assure, quelques-uns de ceux qui sont ici présents ne mourront pas avant d’avoir vu le règne de [[Dieu|Dieu]].**
 ### Versets 51 à 56
 Intitulé **Jésus se dirige vers [[Jérusalem]] : L'opposition en [[Samarie]]** par [[Bible#^358f23]|BDS]]
 #### Versets 54 à 56

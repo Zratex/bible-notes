@@ -1,6 +1,14 @@
-Actes des [[Apôtres]]
+Actes des [[Apôtres]], rédigé par [[Luc]]
 
-Petite note sur un terme précis : [[Parole de Dieu (Actes)|Parole de Dieu]]
+>Petite note sur un terme précis utilisé dans ce livre : [[Parole de Dieu (Actes)|Parole de Dieu]]
+## Chapitre 1
+### Versets 1 à 3
+Intitulé **Introduction** par [[Bible#^358f23|BDS]]
+
+1) Cher [[Théophile|Théophile]],
+   Dans [[Luc|mon]] [[3eme Evangile - Luc|premier livre]], [[Luc|j]]’ai exposé tout ce que [[Jésus|Jésus]] a commencé de faire et d’enseigner
+2) jusqu’au jour où [[Jésus|il]] fut enlevé au ciel après avoir donné, par le [[Saint-Esprit|Saint-Esprit]], [[Jésus|ses]] instructions à ceux qu’il s’était choisis comme [[Apôtres|apôtres]].
+3) Après [[Jésus|sa]] mort, [[Jésus|il]] se présenta à eux vivant et leur donna des preuves nombreuses de [[Jésus|sa]] résurrection. [[Jésus|Il]] leur apparut pendant quarante jours et leur parla du [[Royaume de Dieu|royaume de Dieu]].
 ## Chapitre 2
 ### Versets 14 à 36
 Intitulé **[[Simon Pierre|Pierre]] témoin de [[Jésus|Jésus-Christ]]** par [[Bible#^358f23|BDS]]

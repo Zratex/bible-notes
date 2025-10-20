@@ -1,4 +1,4 @@
-2nd [[Nouveau testament#^94270d|évangile de la Bible]], rédigé par [[Marc]].
+2nd [[Évangile|Évangile]] de la [[Bible]], rédigé par [[Marc]].
 > Les passages qui seront en gras correspondent aux passages où [[Jésus]] parle
 ## Chapitre 1
 ### Versets 1 à 8
@@ -19,7 +19,7 @@ Intitulé **[[Jean Baptiste]], messager de [[Dieu]]** par [[Bible#^358f23|BDS]]
 ### Versets 14 à 20
 Intitulé **Ministère de [[Jésus]] en [[Galilée]]** par [[Bible#^358f23|BDS]], sous-titré **Les premiers disciples**
 
-14) Lorsque [[Jean Baptiste|Jean]] eut été arrêté, [[Jésus]] se rendit en [[Galilée]]. Il y prêcha la Bonne Nouvelle de l’[[Note sur l'évangile|Evangile]] qui vient de [[Dieu]].
+14) Lorsque [[Jean Baptiste|Jean]] eut été arrêté, [[Jésus]] se rendit en [[Galilée]]. Il y prêcha la Bonne Nouvelle de l’[[Évangile|Évangile]] qui vient de [[Dieu]].
 15) [[Jésus|Il]] disait : **Le temps est accompli. Le royaume de [[Dieu]] est proche. Changez et croyez à l’[[Note sur l'évangile|Evangile]].**
 16) Un jour, comme [[Jésus|il]] longeait le lac de [[Galilée]], il vit [[Simon Pierre|Simon]] et [[André]], son frère. Ils lançaient un filet dans le lac, car ils étaient pêcheurs.
 17) [[Jésus]] leur dit : **Suivez-moi et [[Jésus|je]] ferai de vous des pêcheurs d’hommes.**
@@ -32,7 +32,16 @@ Intitulé **[[Jésus]] et la tradition religieuse juive**
 #### Versets 8 et 9
 8) Vous mettez de côté le commandement de [[Dieu]], pour observer la tradition des hommes !
 9) Puis il ajouta : Ah ! vous réussissez parfaitement à mettre de côté le commandement de [[Dieu]] pour établir votre propre tradition !
+## Chapitre 8
+### Versets 34 à 38
+Intitulé **Comment suivre [[Jésus]]** par [[Bible#^358f23|BDS]]
+>Echo à [[1er Evangile - Matthieu#Versets 21 à 28|Matthieu 16:21-28]] et [[3eme Evangile - Luc#Versets 23 à 27|Luc 9:23-27]]
 
+34) Là-dessus, [[Jésus|Jésus]] appela la foule ainsi que ses disciples et leur dit : **Si quelqu’un veut [[Jésus|me]] suivre, qu’il renonce à lui-même, qu’il se charge de sa croix et qu’il [[Jésus|me]] suive.**
+35) **En effet, celui qui est préoccupé de sauver sa vie la perdra ; mais celui qui perdra sa vie à cause de [[Jésus|moi]] et de l’Evangile, la sauvera.**
+36) **Si un homme parvenait à posséder le monde entier, à quoi cela lui servirait-il, s’il perd sa vie ?**
+37) **Et que peut-on donner pour racheter sa vie ?**
+38) **Si quelqu’un a honte de [[Jésus|moi]] et de [[Jésus|mes]] paroles au milieu des hommes de ce temps, qui sont infidèles à [[Dieu|Dieu]] et qui transgressent sa [[La Loi de Dieu|Loi]], le [[Jésus|Fils de l’homme]], à [[Jésus|son]] tour, aura honte de lui quand [[Jésus|il]] viendra dans la gloire de son [[Dieu|Père]] avec les saints anges.**
 ## Chapitre 10
 ### Versets 17 à 31
 Intitulé **Les riches et le royaume** par [[Bible#^358f23|BDS]]

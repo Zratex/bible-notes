@@ -1,7 +1,6 @@
 Qu'est ce que l'évangile ?
 Note commencé par un message de Noël (La Roche sur Yon) le 6 Août.
-
-==Evangile :== la bonne nouvelle : ce qui relate la vie de [[Jésus]]. Donc la bonne nouvelle est qu'on a été secouru en lui.
+![[Évangile]]
 A savoir que chacun a son interprétation ce qui entraîne les courants au sein des protestants.
 
 [[Paul]] a renoncé à tout pour l'évangile, et pour le garder tel qu'il est.

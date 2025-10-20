@@ -1,1 +1,1 @@
-Ville au sud ouest de l'actuelle Turquie, donc elle a été grandement influencée par la culture grecque. C'est à l'[[Eglise]] de cette ville qu'est adressé la lettre aux [[10 - Ephésiens|Ephésiens]]
+Ville au sud ouest de l'[[Asie mineure]], donc elle a été grandement influencée par la culture grecque. C'est à l'[[Eglise]] de cette ville qu'est adressé la lettre aux [[10 - Ephésiens|Ephésiens]]
