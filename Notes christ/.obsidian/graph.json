@@ -11,35 +11,35 @@
       "query": "path:\"Lieux historiques\"",
       "color": {
         "a": 1,
-        "rgb": 14048348
+        "rgb": 16711680
       }
     },
     {
       "query": "path:\"Référence Biblique\"",
       "color": {
         "a": 1,
-        "rgb": 14069084
+        "rgb": 16743168
       }
     },
     {
       "query": "path:Personnages",
       "color": {
         "a": 1,
-        "rgb": 11392604
+        "rgb": 65284
       }
     },
     {
       "query": "path:\"La Science Les preuves\"",
       "color": {
         "a": 1,
-        "rgb": 3884766
+        "rgb": 6684927
       }
     },
     {
       "query": "path:Définitions  ",
       "color": {
         "a": 1,
-        "rgb": 6084269
+        "rgb": 255
       }
     },
     {
@@ -60,6 +60,6 @@
   "repelStrength": 10,
   "linkStrength": 1,
   "linkDistance": 201,
-  "scale": 0.258264496957113,
-  "close": true
+  "scale": 0.18421372854603937,
+  "close": false
 }
