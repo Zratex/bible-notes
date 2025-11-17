@@ -17,7 +17,7 @@ Intitulé **[[Mardochée]] demande à [[Esther]] d'intervenir** par [[Bible#^358
 13) [[Mardochée|il]] lui fit répondre : Ne t’imagine pas qu’étant dans le palais impérial, [[Esther|tu]] seras épargnée à la différence de tous les autres Juifs !
 14) Bien au contraire ! Car si [[Esther|tu]] persistes à garder le silence dans les circonstances présentes, le salut et la délivrance viendront d’ailleurs pour les Juifs, alors que [[Esther|toi]] et ta famille, vous périrez. D’ailleurs, qui sait si ce n’est pas en vue de telles circonstances que [[Esther|tu]] es devenue impératrice ?
 15) Alors [[Esther]] fit porter cette réponse à [[Mardochée]] :
-16) Va rassembler tous les Juifs qui se trouvent à [[Suse]]. [[Jeûne|Jeûnez]] pour [[Esther|moi]], sans manger ni boire pendant trois jours et trois nuits. [[Esther|J]]’observerai de [[Esther|mon]] côté le même [[Jeûne|jeûne]] avec mes servantes. Ensuite, je me rendrai chez l’empereur, malgré la loi. Si [[Esther|je]] dois mourir, [[Esther|je]] mourrai !
+16) Va rassembler tous les Juifs qui se trouvent à [[Suse]]. [[Jeûne|Jeûnez]] pour [[Esther|moi]], sans manger ni boire pendant trois jours et trois nuits. [[Esther|J]]’observerai de [[Esther|mon]] côté le même [[Jeûne|jeûne]] avec mes servantes. Ensuite, [[Esther|je me]] rendrai chez [[Assuérus|l’empereur]], malgré la loi. Si [[Esther|je]] dois mourir, [[Esther|je]] mourrai !
 17) [[Mardochée]] partit et fit ce qu’[[Esther]] lui avait commandé.
 ## Chapitre 5
 ### Versets 9 à 14

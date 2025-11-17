@@ -1,0 +1,1 @@
+Femme originaire de [[Sorek]], elle a dans [[7 - Juges#Versets 4 à 21|Juges 16:4-21]] trompé [[Samson]] en révélant son secret aux [[Philistins]]

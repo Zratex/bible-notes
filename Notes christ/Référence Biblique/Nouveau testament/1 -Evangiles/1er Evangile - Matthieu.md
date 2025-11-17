@@ -106,7 +106,7 @@ Intitulé **Contre l'hypocrisie religieuse** par [[Bible#^358f23|BDS]]
     et la gloire à jamais.]**
 14) **En effet, si vous pardonnez aux autres leurs fautes, votre [[Dieu|Père]] céleste vous pardonnera aussi.**
 15) **Mais si vous ne pardonnez pas aux autres, votre [[Dieu|Père]] ne vous pardonnera pas non plus vos fautes.**
-16) **Lorsque vous [[Jeûne|jeûnez]], n’ayez pas, comme les hypocrites, une mine triste. Pour bien montrer aux gens qu’ils [[Jeûne|jeûnent]], ils prennent des visages défaits. Vraiment, je vous l’assure : leur récompense, ils l’ont d’ores et déjà reçue !**
+16) **Lorsque vous [[Jeûne|jeûnez]], n’ayez pas, comme les hypocrites, une mine triste. Pour bien montrer aux gens qu’ils [[Jeûne|jeûnent]], ils prennent des visages défaits. Vraiment, [[Jésus|je]] vous l’assure : leur récompense, ils l’ont d’ores et déjà reçue !**
 17) **Mais toi, quand tu [[Jeûne|jeûnes]], parfume tes cheveux et lave ton visage**
 18) **pour que personne ne se rende compte que tu es en train de [[Jeûne|jeûner]], sauf ton [[Dieu|Père]] qui est là dans le lieu secret. Alors ton [[Dieu|Père]], qui voit dans le secret, te le rendra.**
 ### Versets 19 à 34

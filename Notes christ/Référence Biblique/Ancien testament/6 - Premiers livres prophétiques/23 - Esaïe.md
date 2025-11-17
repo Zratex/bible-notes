@@ -613,11 +613,11 @@ Intitulé **L'offre et l'appel universels - Le festin gratuit** par [[Bible#^358
     et un signe perpétuel
     qui ne disparaîtra jamais.
 ## Chapitre 58
-Intitulé **La gloire de Sion rachetée** par [[Bible#^358f23|BDS]], sous titré **Le vrai [[Jeûne]]**
+Intitulé **La gloire de [[Sion|Sion]] rachetée** par [[Bible#^358f23|BDS]], sous titré **Le vrai [[Jeûne]]**
 
 1) Crie de toutes tes forces
    et ne te retiens pas.
-   Fais retentir ta voix ╵comme le son du cor  !
+   Fais retentir ta voix ╵comme le son du cor !
    A mon peuple dénonce sa révolte,
    et aux descendants de [[Jacob]] leurs fautes.
 2) Ils me recherchent chaque jour,
@@ -669,8 +669,8 @@ Intitulé **La gloire de Sion rachetée** par [[Bible#^358f23|BDS]], sous titré
     la lumière luira pour toi ╵au milieu des ténèbres,
     et ton obscurité ╵se changera pour toi ╵en clarté de midi,
 11) L’[[Dieu|Eternel]] te conduira constamment.
-    Il pourvoira à tes besoins ╵dans les déserts arides,
-    il te fortifiera physiquement
+    [[Dieu|Il]] pourvoira à tes besoins ╵dans les déserts arides,
+    [[Dieu|il]] te fortifiera physiquement
     et tu ressembleras ╵à un jardin bien arrosé,
     à une source vive ╵aux eaux intarissables.
 12) Les tiens rebâtiront ╵les ruines d’autrefois

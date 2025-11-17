@@ -1,1 +1,1 @@
-Renommé **Shadrak** dans [[27 - Daniel#Chapitre 1|Daniel 1:7]]
+Renommé **Shadrak** dans [[27 - Daniel#Chapitre 1|Daniel 1:7]], c'est un ami de [[Daniel]], [[Mishaël]] et [[Azaria]]

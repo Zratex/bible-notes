@@ -11,10 +11,14 @@
             "id": "3cf5f68be44d4c98",
             "type": "leaf",
             "state": {
-              "type": "empty",
-              "state": {},
+              "type": "markdown",
+              "state": {
+                "file": "Définitions/Jeûne.md",
+                "mode": "source",
+                "source": false
+              },
               "icon": "lucide-file",
-              "title": "New tab"
+              "title": "Jeûne"
             }
           }
         ]
@@ -49,7 +53,7 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "",
+                "query": "jeûne",
                 "matchingCase": false,
                 "explainSearch": false,
                 "collapseAll": false,
@@ -174,34 +178,35 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "412ad4b021e16018",
+  "active": "3cf5f68be44d4c98",
   "lastOpenFiles": [
+    "Référence Biblique/Ancien testament/6 - Premiers livres prophétiques/27 - Daniel.md",
+    "Définitions/Jeûne.md",
+    "Référence Biblique/Nouveau testament/1 -Evangiles/3eme Evangile - Luc.md",
+    "Personnages/Ancien testament/Déportation à Babylone/Daniel.md",
+    "Personnages/Ancien testament/Déportation à Babylone/Azaria.md",
+    "Personnages/Ancien testament/Déportation à Babylone/Hanania.md",
+    "Personnages/Ancien testament/Déportation à Babylone/Mishaël.md",
+    "Référence Biblique/Ancien testament/4 - Seconds livres historiques/16 - Esther.md",
+    "Personnages/Ancien testament/Ennemis d'Israel/Assuérus.md",
+    "Personnages/Ancien testament/Ennemis d'Israel/Haman.md",
+    "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.md",
+    "Référence Biblique/Ancien testament/2 - La loi de Dieu/3 - Lévitique.md",
+    "Référence Biblique/Ancien testament/6 - Premiers livres prophétiques/23 - Esaïe.md",
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/7&8 - Corinthiens.md",
+    "Référence Biblique/Ancien testament/3 - Premiers livres historiques/7 - Juges.md",
+    "Personnages/Ancien testament/Dalila.md",
+    "Lieux historiques/Régions géographiques/Sorek.md",
+    "Lieux historiques/Images/Sorek.PNG",
+    "Référence Biblique/Ancien testament/7 - Seconds livres prophétiques/30 - Amos.md",
+    "Référence Biblique/Ancien Testament.md",
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/9 - Galates.md",
     "Notes pas encore traitées/Vivre une fois radicale.md",
     "Vie victorieuse en Christ.md",
     "Notes pas encore traitées/Veiller sur le cœur.md",
     "Tentation (note).md",
     "Attitude du vainqueur.md",
     "Notes pas encore traitées/Untitled.md",
-    "Notes pas encore traitées/Temps de Dieu pour ma vie.md",
-    "Temps d'apostasie.md",
-    "Seigneur et non seulement sauveur.md",
-    "Notes pas encore traitées/Reviens !.md",
-    "Notes pas encore traitées/Unité.md",
-    "Notes pas encore traitées/Titre de noblesse.md",
-    "Notes pas encore traitées/TCA spirituel.md",
-    "Notes pas encore traitées/Table d'opération.md",
-    "Santé de l'église.md",
-    "Notes pas encore traitées/Suis-je enraciné.md",
-    "Notes pas encore traitées/Servir dans l'église locale.md",
-    "Notes pas encore traitées/Sermont sur la montagne (Matt 6).md",
-    "Sagesse (note).md",
-    "Notes pas encore traitées/S'aimer pour aimer.md",
-    "Notes pas encore traitées/Résister c'est briller.md",
-    "Notes pas encore traitées/Résister à l'idolâtrie.md",
-    "Pouvoir de l'évangile.md",
-    "Parabole des vierges.md",
-    "Notes pas encore traitées/Repos de l'âme.md",
-    "Notes pas encore traitées/Repos de Dieu.md",
     "Lieux historiques/Images/Ziph.PNG",
     "Lieux historiques/Images/Hebron.PNG",
     "Définitions/Courants de pensée",
@@ -220,7 +225,6 @@
     "Lieux historiques/Images/Méditerranée.png",
     "Lieux historiques/Images/Mer rouge.png",
     "Lieux historiques/Images/Egypte.PNG",
-    "Lieux historiques/Images/Césarée de Philippe.PNG",
     "Formation disciples/Histoire de l'Eglise/Régions/Images"
   ]
 }

@@ -2,7 +2,7 @@
 ### Versets 1 à 7
 Intitulé **Luxe et insouciance** par [[Bible#^358f23|BDS]]
 
-1) Malheur à vous ╵qui vivez bien tranquilles dans Sion,
+1) Malheur à vous ╵qui vivez bien tranquilles dans [[Sion|Sion]],
    et vous qui vous croyez ╵bien en sécurité ╵sur la montagne ╵de [[Samarie]] !
    Oui, vous les grands ╵de la première des nations,
    vous tous vers qui accourt ╵la communauté d’[[Israël]] !

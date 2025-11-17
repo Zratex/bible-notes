@@ -1,1 +1,1 @@
-Renommé **Méshak** dans [[27 - Daniel#Chapitre 1|Daniel 1:7]]
+Renommé **Méshak** dans [[27 - Daniel#Chapitre 1|Daniel 1:7]], c'est un ami de [[Daniel]], [[Hanania]] et [[Azaria]]

@@ -36,3 +36,43 @@ Intitulé **Le jour des Expiations** par [[Bible#^358f23|BDS]]
 33) Il accomplira le rite d’expiation pour le sanctuaire sacré, pour la tente de la Rencontre, le rite d’expiation pour l’autel, le rite d’expiation pour les prêtres et pour tout le peuple rassemblé.
 34) C’est pour vous une ordonnance en vigueur à perpétuité : une fois par an, on doit accomplir pour les [[Israël|Israélites]] le rite d’expiation de toutes leurs fautes.
     On fit tout ce que l’[[Dieu|Eternel]] avait ordonné à [[Moïse]].
+## Chapitre 19
+Intitulé **"Vous serez saints"** par [[Bible#^358f23|BDS]]
+
+1) L’[[Dieu|Eternel]] s’adressa à [[Moïse|Moïse]] en ces termes :
+2) Parle à toute la communauté des [[Israël|Israélites]] et dis-leur : Soyez saints, car [[Dieu|je]] suis saint, [[Dieu|moi l’Eternel]], votre [[Dieu|Dieu]].
+3) Que chacun de vous respecte l’autorité de sa mère et de son père, et observe les jours de repos que [[Dieu|j]]’ai prescrits. [[Dieu|Je]] suis l’[[Dieu|Eternel]], votre [[Dieu|Dieu]].
+4) Ne vous tournez pas vers les faux dieux, ne vous fabriquez pas d’idoles sous forme de statues en métal fondu. [[Dieu|Je]] suis l’[[Dieu|Eternel]], votre [[Dieu|Dieu]].
+5) Lorsque vous [[Dieu|m]]’offrirez un sacrifice de communion, faites-le de façon à ce qu’il puisse être agréé.
+6) La victime sera mangée le jour même où vous l’offrirez en sacrifice, ou le lendemain ; ce qui en restera le troisième jour sera brûlé,
+7) le troisième jour, si on en mange, ce sera impur et le sacrifice ne sera pas agréé.
+8) Celui qui en mangera portera le poids de sa faute, car il a profané une chose consacrée à l’[[Dieu|Eternel]], et il sera retranché de son peuple.
+9) Quand vous ferez les moissons dans votre pays, tu ne couperas pas les épis jusqu’au bord de ton champ, et tu ne ramasseras pas ce qui reste à glaner.
+10) De même, tu ne cueilleras pas les grappes restées dans ta vigne et tu ne ramasseras pas les fruits qui y seront tombés. Tu laisseras tout cela au pauvre et à l’immigré. [[Dieu|Je]] suis l’[[Dieu|Eternel]], votre [[Dieu|Dieu]].
+11) Vous ne commettrez pas de vol, vous n’userez ni de mensonge ni de tromperie à l’égard de votre prochain.
+12) Vous ne prononcerez pas de faux serment par [[Dieu|mon]] nom, car vous profaneriez le nom de votre [[Dieu|Dieu]]. [[Dieu|Je]] suis l’[[Dieu|Eternel]].
+13) Tu n’exploiteras pas ton prochain et tu ne le voleras pas. Tu ne retiendras pas le salaire d’un ouvrier jusqu’au lendemain matin.
+14) Tu n’insulteras pas un sourd et tu ne mettras pas d’obstacle sur le chemin d’un aveugle, et tu craindras ton [[Dieu|Dieu]]. [[Dieu|Je]] suis l’[[Dieu|Eternel]].
+15) Vous ne commettrez pas d’injustice dans les jugements. Tu n’avantageras pas le pauvre, et tu ne favoriseras pas le grand ; tu jugeras ton prochain selon la justice.
+16) Tu ne calomnieras pas les membres de ton peuple ; tu ne porteras pas atteinte à la vie de ton prochain par un faux témoignage. [[Dieu|Je]] suis l’[[Dieu|Eternel]].
+17) Tu ne haïras pas ton frère dans ton cœur, mais tu ne manqueras pas de reprendre ton prochain pour ne pas te charger d’un péché.
+18) Tu ne te vengeras pas et tu ne garderas pas de rancune envers les membres de ton peuple, mais tu aimeras ton prochain comme toi-même. [[Dieu|Je]] suis l’[[Dieu|Eternel]].
+19) Vous obéirez à [[Dieu|mes]] commandements. Tu n’accoupleras pas des animaux de ton bétail d’espèces différentes. Tu n’ensemenceras pas ton champ de deux espèces de graines. Tu ne porteras pas un vêtement tissé de deux fibres différentes.
+20) Si un homme couche avec une servante fiancée à un autre homme sans qu’elle ait été ni achetée ni affranchie, il versera une indemnité, mais les deux ne seront pas punis de mort car elle n’avait pas encore été affranchie.
+21) Cet homme apportera à l’[[Dieu|Eternel]], à l’entrée de la tente de la Rencontre, comme sacrifice de réparation pour sa faute, un bélier
+22) avec lequel le prêtre accomplira le rite d’expiation pour lui devant l’[[Dieu|Eternel]], pour le péché qu’il a commis, et sa faute lui sera pardonnée.
+23) Quand vous serez entrés dans le pays promis et que vous planterez toutes sortes d’arbres fruitiers, vous considérerez pendant trois ans leurs fruits comme impurs, vous n’en mangerez donc pas.
+24) La quatrième année, tous leurs fruits seront consacrés à l’[[Dieu|Eternel]] en témoignage de reconnaissance.
+25) La cinquième année, vous en mangerez les fruits. Ainsi vous aurez des récoltes abondantes. [[Dieu|Je]] suis l’[[Dieu|Eternel]], votre [[Dieu|Dieu]].
+26) Vous ne mangerez aucune viande contenant encore son sang. Vous ne pratiquerez pas la divination ; vous ne rechercherez pas les augures.
+27) Vous ne vous taillerez pas en rond le bord de la chevelure, vous ne vous raserez pas les coins de la barbe.
+28) Vous ne vous ferez pas d’incisions sur le corps à cause d’un mort et vous ne ferez pas dessiner des tatouages sur le corps. [[Dieu|Je]] suis l’[[Dieu|Eternel]].
+29) Ne déshonorez pas vos filles en faisant d’elles des prostituées ; le pays entier s’adonnerait à la prostitution et se remplirait d’immoralité.
+30) Vous observerez les jours de repos que [[Dieu|je]] vous ai prescrits et vous révérerez [[Dieu|mon]] sanctuaire. [[Dieu|Je]] suis l’[[Dieu|Eternel]].
+31) Ne vous adressez ni à des médiums, ni à des devins ; ne les consultez pas, vous vous rendriez impurs. [[Dieu|Je]] suis l’[[Dieu|Eternel]], votre [[Dieu|Dieu]].
+32) Tu te lèveras devant les cheveux blancs, tu honoreras la personne du vieillard, et tu craindras ton [[Dieu|Dieu]]. [[Dieu|Je]] suis l’[[Dieu|Eternel]].
+33) 3Si un étranger vient s’installer dans votre pays, ne l’exploitez pas.
+34) Traitez-le comme s’il était l’un des vôtres. Tu l’aimeras comme toi-même : car vous avez été [[Israël|vous]]-mêmes étrangers en [[Egypte|Egypte]]. [[Dieu|Je]] suis l’[[Dieu|Eternel]], votre [[Dieu|Dieu]].
+35) Vous ne commettrez pas de malhonnêteté en fraudant sur les mesures de longueur, de poids ou de capacité.
+36) Vous vous servirez de balances justes, de poids justes, de mesures de capacité justes. [[Dieu|Je]] suis l’[[Dieu|Eternel]], votre [[Dieu|Dieu]], qui [[Israël|vous]] ai fait sortir d’[[Egypte|Egypte]].
+37) Vous obéirez donc à toutes [[Dieu|mes]] ordonnances et à toutes [[Dieu|mes]] lois et [[Israël|vous]] les appliquerez. [[Dieu|Je]] suis l’[[Dieu|Eternel]].

@@ -109,7 +109,7 @@ Intitulé **L'exemple des révoltes d'[[Israël]]** par [[Bible#^358f23|BDS]]
 10) Ne vous plaignez pas de votre sort, comme certains d’entre eux, qui tombèrent sous les coups de l’ange exterminateur.
 11) Tous ces événements leur sont arrivés pour nous servir d’exemples. Ils ont été mis par écrit pour que nous en tirions instruction, nous qui sommes parvenus aux temps de la [[Apocalypse|fin]].
 12) C’est pourquoi, si quelqu’un se croit debout, qu’il prenne garde de ne pas tomber.
-13) Les tentations qui vous ont assaillis sont communes à tous les hommes. D’ailleurs, [[Dieu]] est fidèle et il ne permettra pas que vous soyez tentés au-delà de vos forces. Au moment de la tentation, il préparera le moyen d’en sortir pour que vous puissiez y résister.
+13) Les tentations qui vous ont assaillis sont communes à tous les hommes. D’ailleurs, [[Dieu]] est fidèle et [[Dieu|il]] ne permettra pas que vous soyez tentés au-delà de vos forces. Au moment de la tentation, [[Dieu|il]] préparera le moyen d’en sortir pour que vous puissiez y résister.
 ### Versets 14 à 22
 Intitulé **S’abstenir de pratiques idolâtres** par [[Bible#^358f23|BDS]]
 
