@@ -1,6 +1,6 @@
 ## Avancer en Dieu
 [[4 - Nombres#Versets 15 à 23|Nombres 9:15-23]] le peuple de [[Dieu]] suivait la nuée, malgré le temps qu'elle prenait.
-[[1er Evangile - Matthieu#Versets 8 et 9|Matthieu 15:8-9]] -> mais le [[Positionnement du cœur|cœur]] n'était plus là car ils s'étaient trop habitués à ce confort donné par la nuée.
+`Matthieu 15:8-9` -> mais le [[Positionnement du cœur|cœur]] n'était plus là car ils s'étaient trop habitués à ce confort donné par la nuée.
 
 [[15 - Néhémie#Versets 9 à 12|Néhémie 8:10]]
 > On se plaint mais on ne sait pas apprécier ce que [[Dieu]] nous a donné

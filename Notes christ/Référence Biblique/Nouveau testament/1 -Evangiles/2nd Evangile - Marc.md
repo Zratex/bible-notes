@@ -26,6 +26,58 @@ Intitulé **Ministère de [[Jésus]] en [[Galilée]]** par [[Bible#^358f23|BDS]]
 18) Ils abandonnèrent aussitôt leurs filets et [[Jésus|le]] suivirent.
 19) Poursuivant [[Jésus|son]] chemin, [[Jésus|il]] vit, un peu plus loin, [[Jacques (apôtre)|Jacques]], fils de [[Zébédée]], et [[Jean]] son frère. Eux aussi étaient dans leur bateau et réparaient les filets.
 20) Aussitôt, [[Jésus|il]] les appela. Ils laissèrent [[Zébédée]], leur père, dans le bateau, avec ses ouvriers, et suivirent [[Jésus]].
+### Versets 21 à 45
+Intitulé **Exorcismes, guérisons et prédication** par [[Bible#^358f23|BDS]]
+>Les 8 prochains versets font écho à [[3eme Evangile - Luc#Versets 31 à 44|Luc 4:31-37]]
+
+21) Ils se rendirent à [[Capharnaüm|Capernaüm]]. Le jour du sabbat, [[Jésus|Jésus]] entra dans la synagogue et se mit à enseigner.
+22) [[Jésus|Ses]] auditeurs étaient profondément impressionnés par [[Jésus|son]] enseignement, car [[Jésus|il]] parlait avec une autorité que n’avaient pas les spécialistes de la [[La Loi de Dieu|Loi]].
+23) Or, il se trouvait juste à ce moment-là, dans leur synagogue, un homme qui était sous l’emprise d’un esprit mauvais. Il se mit à crier :
+24) Que nous veux-tu, [[Jésus|Jésus]] de [[Nazareth|Nazareth]] ? Es-[[Jésus|tu]] venu pour nous détruire  ? Je sais qui [[Jésus|tu]] es ! [[Jésus|Tu]] es le [[Jésus|Saint]] envoyé par [[Dieu|Dieu]] !
+25) Mais, d’un ton sévère, [[Jésus|Jésus]] lui ordonna : **Tais-toi, et sors de cet homme !**
+26) Alors l’esprit mauvais secoua l’homme de convulsions et sortit de lui en poussant un grand cri.
+27) Tous furent saisis de stupeur ; ils se demandaient entre eux : Que se passe-t-il ? Voilà un enseignement nouveau, et donné avec autorité ! Il commande même aux esprits mauvais, et ils lui obéissent !
+28) Aussitôt, [[Jésus|sa]] réputation se répandit dans toute la [[Galilée|Galilée]].
+>Ces 3 prochains versets font écho à [[1er Evangile - Matthieu#Versets 1 à 20|Matthieu 8:14-15]] et [[3eme Evangile - Luc#Versets 31 à 44|Luc 4:38-39]] :
+
+29) Sortant de la synagogue, [[Jésus|Jésus]] se rendit avec [[Jacques (apôtre)|Jacques]] et [[Jean|Jean]] à la maison de [[Simon Pierre|Simon]] et d’[[André|André]].
+30) La belle-mère de [[Simon Pierre|Simon]] était couchée, avec une forte fièvre. Aussitôt, ils [[Jésus|lui]] parlèrent d’elle.
+31) [[Jésus|Il]] s’approcha, lui prit la main, la fit lever. La fièvre la quitta, et elle se mit à les servir.
+>Ces 3 prochains versets font écho à [[1er Evangile - Matthieu#Versets 12 à 25|Matthieu 4:24]] et [[3eme Evangile - Luc#Versets 31 à 44|Luc 4:40-41]] :
+32) Le soir, après le coucher du soleil, on [[Jésus|lui]] amena tous les malades et tous ceux qui étaient sous l’emprise de démons.
+33) La ville entière se pressait devant la porte de la maison.
+34) [[Jésus|Il]] guérit beaucoup de personnes atteintes de diverses maladies. [[Jésus|Il]] chassa aussi beaucoup de démons et leur défendit de parler, car ceux-ci savaient qui [[Jésus|il]] était.
+>Ces 5 prochains versets font écho à [[3eme Evangile - Luc#Versets 31 à 44|Luc 4:42-44]] :
+35) Le lendemain, bien avant l’aube, en pleine nuit, [[Jésus|il]] se leva et sortit. [[Jésus|Il]] alla dans un lieu désert pour y prier.
+36) [[Simon Pierre|Simon]] et ses compagnons partirent à sa recherche.
+37) Quand ils l’eurent trouvé, ils [[Jésus|lui]] dirent : Tout le monde [[Jésus|te]] cherche.
+38) **– Allons ailleurs,** leur répondit-[[Jésus|il]], **dans les villages voisins ! [[Jésus|Il]] faut que [[Jésus|j]]’y annonce aussi mon message. Car c’est pour cela que [[Jésus|je]] suis venu.**
+39) Et [[Jésus|il]] partit à travers toute la [[Galilée|Galilée]] : [[Jésus|il]] prêchait dans leurs synagogues et chassait les démons.
+>La suite de ce passage fait écho à [[1er Evangile - Matthieu#Versets 1 à 20|Matthieu 8:1-4]] et [[3eme Evangile - Luc#Versets 12 à 26|Luc 5:12-16]] :
+40) Un lépreux s’approcha de [[Jésus|lui]]. Il [[Jésus|le]] supplia, tomba à genoux devant [[Jésus|lui]] et [[Jésus|lui]] dit : Si [[Jésus|tu]] le veux, [[Jésus|tu]] peux me rendre pur.
+41) [[Jésus|Jésus]], pris de compassion pour lui, tendit la main, le toucha et lui dit : **[[Jésus|Je]] le veux, sois pur.**
+42) Aussitôt, la lèpre le quitta et il fut pur.
+43) [[Jésus|Jésus]] lui fit de sévères recommandations et le renvoya aussitôt :
+44) **Attention, ne dis rien à personne, mais va te faire examiner par le prêtre et apporte l’offrande prescrite par [[Moïse|Moïse]] pour ta purification. Cela leur servira de témoignage.**
+45) Mais lui, à peine sorti, se mit à proclamer à tout le monde ce qui lui était arrivé et il répandit la nouvelle partout. A cause de cela, [[Jésus|Jésus]] ne pouvait plus aller ouvertement dans une localité ; [[Jésus|il]] se tenait en dehors, dans des lieux déserts ; et on venait à [[Jésus|lui]] de toutes parts.
+## Chapitre 2
+### Versets 1 à 12
+Intitulé **[[Jésus|Jésus]] guérit un malade et pardonne ses péchés** par [[Bible#^358f23|BDS]]
+>Ce passage fait écho à [[1er Evangile - Matthieu#Versets 1 à 8|Matthieu 9:1-8]] et [[3eme Evangile - Luc#Versets 12 à 26|Luc 5:17-26]] :
+
+1) Quelques jours plus tard, [[Jésus|Jésus]] se rendit de nouveau à [[Capharnaüm|Capernaüm]]. On apprit qu’[[Jésus|il]] était à la maison.
+2) Une foule s’y rassembla si nombreuse qu’il ne restait plus de place, pas même devant la porte ; et [[Jésus|Jésus]] leur annonçait la [[Évangile|Parole]] de [[Dieu|Dieu]].
+3) On [[Jésus|lui]] amena un paralysé porté par quatre hommes.
+4) Mais ils ne purent pas le transporter jusqu’à [[Jésus|Jésus]], à cause de la foule. Alors ils montèrent sur le toit, défirent la toiture de la maison au-dessus de l’endroit où se trouvait [[Jésus|Jésus]] et, par cette ouverture, firent glisser le brancard sur lequel le paralysé était couché.
+5) Lorsqu’[[Jésus|il]] vit la foi de ces gens, [[Jésus|Jésus]] dit au paralysé : **[[Jésus|Mon]] enfant, tes péchés te sont pardonnés.**
+6) Or, il y avait, assis là, quelques spécialistes de la [[La Loi de Dieu|Loi]] qui raisonnaient ainsi en eux-mêmes :
+7) Comment [[Jésus|cet homme]] ose-t-[[Jésus|il]] parler ainsi ? [[Jésus|Il]] blasphème ! Qui peut pardonner les péchés si ce n’est [[Dieu|Dieu]] seul ?
+8) [[Jésus|Jésus]] sut aussitôt, en [[Jésus|son]] esprit, les raisonnements qu’ils se faisaient en eux-mêmes ; [[Jésus|il]] leur dit : **Pourquoi raisonnez-vous ainsi en vous-mêmes ?**
+9) **Qu’est-ce qui est le plus facile ? Dire au paralysé : « Tes péchés te sont pardonnés », ou dire : « Lève-toi, prends ton brancard et marche » ?**
+10) **Eh bien, vous saurez que le [[Jésus|Fils de l'homme]] a, sur la terre, le pouvoir de pardonner les péchés.**
+11) Alors [[Jésus|il]] déclara au paralysé : **[[Jésus|Je]] te l’ordonne : lève-toi, prends ton brancard, et rentre chez toi !**
+12) Aussitôt, cet homme se leva, prit son brancard, et sortit devant tout le monde.
+    Tous en furent stupéfaits et rendirent gloire à [[di]] en disant : Nous n’avons jamais rien vu de pareil !
 ## Chapitre 7
 ### Versets 1 à 23
 Intitulé **[[Jésus]] et la tradition religieuse juive**
@@ -33,6 +85,25 @@ Intitulé **[[Jésus]] et la tradition religieuse juive**
 8) Vous mettez de côté le commandement de [[Dieu]], pour observer la tradition des hommes !
 9) Puis il ajouta : Ah ! vous réussissez parfaitement à mettre de côté le commandement de [[Dieu]] pour établir votre propre tradition !
 ## Chapitre 8
+### Versets 11 à 21
+Intitulé **[[Jésus|Jésus]] et les chefs religieux juifs** par [[Bible#^358f23|BDS]]
+>Ces 3 prochains versets font écho à [[1er Evangile - Matthieu#Versets 1 à 12|Matthieu 16:1-4]]
+
+11) Des pharisiens arrivèrent et engagèrent une discussion avec [[Jésus|lui]]. Ils [[Jésus|lui]] demandaient de leur faire voir un signe miraculeux qui viendrait du ciel : ils [[Jésus|lui]] tendaient un piège.
+12) [[Jésus|Jésus]] poussa un profond soupir et dit : **Pourquoi les gens de notre temps réclament-ils un signe miraculeux ? Vraiment, [[Jésus|je]] vous l’assure : il ne leur en sera accordé aucun !**
+13) [[Jésus|Il]] les quitta, remonta dans le bateau et partit pour l’autre rive.
+>La suite de ce passage fait écho à [[1er Evangile - Matthieu#Versets 1 à 12|Matthieu 16:5-12]] :
+
+14) Les disciples avaient oublié d’emporter du pain ; ils n’en avaient qu’un seul avec eux dans le bateau.
+15) Or, [[Jésus|Jésus]] leur recommanda : **Faites bien attention : gardez-vous du levain des pharisiens et de celui d’[[Hérode|Hérode]] !**
+16) Les disciples discutaient entre eux : [[Jésus|Il]] dit cela parce que nous n’avons pas de pain !
+17) [[Jésus|Jésus]], sachant ce qui se passait, leur dit : **Vous discutez parce que vous n’avez pas de pain. Pourquoi ? Ne comprenez-vous pas encore et ne saisissez-vous pas ? Votre intelligence est-elle aveuglée ?**
+18) ***[[24 - Jérémie#Versets 20 à 25|Avez-vous des yeux pour ne pas voir, des oreilles pour ne pas entendre ?]]* Ne vous souvenez-vous pas :**
+19) **quand [[Jésus|j]]’ai partagé les cinq pains entre les cinq mille hommes, combien de paniers pleins de morceaux avez-vous emportés ?**
+    – Douze, répondirent-ils.
+20) **– Et quand [[Jésus|j]]’ai partagé les sept pains entre les quatre mille hommes, combien de corbeilles pleines de morceaux avez-vous emportées ?**
+    – Sept, dirent-ils.
+21) Alors [[Jésus|il]] ajouta : **Vous ne comprenez toujours pas ?**
 ### Versets 34 à 38
 Intitulé **Comment suivre [[Jésus]]** par [[Bible#^358f23|BDS]]
 >Echo à [[1er Evangile - Matthieu#Versets 21 à 28|Matthieu 16:21-28]] et [[3eme Evangile - Luc#Versets 23 à 27|Luc 9:23-27]]
@@ -63,6 +134,26 @@ Intitulé **Grandeur et service** par [[Bible#^358f23|BDS]]
 42) **Il ne doit pas en être ainsi parmi vous. Au contraire : si quelqu’un veut être grand parmi vous, qu’il soit votre serviteur,**
 43) **et si quelqu’un veut être le premier parmi vous, qu’il soit l’esclave de tous.**
 44) **Car le [[Jésus|Fils]] de l’homme n’est pas venu pour se faire servir, mais pour servir et donner sa vie en rançon pour beaucoup.**
+## Chapitre 11
+### Versets 12 à 14
+Intitulé **La malédiction du figuier** par [[Bible#^358f23|BDS]]
+>Ce passage fait écho à [[1er Evangile - Matthieu#Versets 18 à 22|Matthieu 21:18-19]]
+
+12) Le lendemain, comme [[Jésus|il]] sortait de [[Béthanie|Béthanie]] avec [[Apôtres|eux]], [[Jésus|il]] eut faim.
+13) [[Jésus|Il]] aperçut, de loin, un figuier couvert de feuillage. [[Jésus|Il]] se dirigea vers cet arbre pour voir s’il y trouverait quelque fruit. Quand [[Jésus|il]] se fut approché, [[Jésus|il]] n’y trouva que des feuilles, car ce n’était pas la saison des figues.
+14) S’adressant alors au figuier, [[Jésus|il]] lui dit : **Que plus jamais personne ne mange de fruit venant de toi !**
+    Et [[Jésus|ses]] disciples l’entendirent.
+### Versets 20 à 26
+Intitulé **La leçon du figuier desséché** par [[Bible#^358f23|BDS]]
+>Ce passage fait écho à [[1er Evangile - Matthieu#Versets 18 à 22|Matthieu 21:20-22]]
+
+20) Le lendemain matin, en passant par là, ils virent le figuier : il avait séché jusqu’aux racines.
+21) [[Simon Pierre|Pierre]], se souvenant de ce qui s’était passé, dit à [[Jésus|Jésus]] : [[Jésus|Maître]] ! regarde le figuier que [[Jésus|tu]] as maudit : il est devenu tout sec !
+22) [[Jésus|Jésus]] répondit : **Ayez foi en [[Dieu|Dieu]].**
+23) **Vraiment, [[Jésus|je]] vous l’assure, si quelqu’un dit à cette colline : « Soulève-toi de là et jette-toi dans la mer », sans douter dans son cœur, mais en croyant que ce qu’il dit va se réaliser, la chose s’accomplira pour lui.**
+24) **C’est pourquoi [[Jésus|je]] vous le déclare : tout ce que vous demandez dans vos prières, croyez que vous l’avez reçu et cela vous sera accordé.**
+25) **Quand vous priez, si vous avez quoi que ce soit contre quelqu’un, pardonnez-lui, pour que votre [[Dieu|Père céleste]] vous pardonne, lui aussi, vos fautes.**
+26) **[Mais si vous ne pardonnez pas, votre [[Dieu|Père]] qui est dans les cieux ne vous pardonnera pas non plus vos fautes.]**
 ## Chapitre 12
 ### Versets 41 à 44
 Intitulé **La vraie générosité** par [[Bible#^358f23|BDS]]

@@ -1,0 +1,1 @@
+==Dilettante :== *Personne qui s'adonne à une occupation, à un art en amateur, pour son seul plaisir.* - Dictionnaire Larousse

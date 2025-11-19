@@ -73,7 +73,17 @@ Intitulé **Les béatitudes** par [[Bible#^358f23|BDS]]
 10) **Heureux ceux qui sont opprimés pour la justice,**
 **car le royaume des cieux leur appartient.**
 11) **Heureux serez-vous quand les hommes vous insulteront et vous persécuteront, lorsqu’ils répandront toutes sortes de calomnies sur votre compte à cause de [[Jésus|moi]].**
-12) **Oui, réjouissez-vous alors et soyez heureux, car une magnifique récompense vous attend dans les cieux. Car vous serez ainsi comme les prophètes d’autrefois : eux aussi ont été persécutés avant vous de la même manière.**
+10) **Oui, réjouissez-vous alors et soyez heureux, car une magnifique récompense vous attend dans les cieux. Car vous serez ainsi comme les prophètes d’autrefois : eux aussi ont été persécutés avant vous de la même manière.**
+### Versets 21 à 48
+Intitulé **La loi de [[Jésus|Jésus]]** par [[Bible#^358f23|BDS]]
+>Ces 6 prochains versets font écho à [[2nd Evangile - Marc#Versets 20 à 26|Marc 11:25]] et [[3eme Evangile - Luc#Versets 54 à 59|Luc 12:57-59]] :
+
+21) **Vous avez appris qu’il a été dit à nos ancêtres : *[[2 - Exode#Versets 1 à 17|Tu ne commettras pas de meurtre]]*. Si quelqu’un a commis un meurtre, il en répondra devant le tribunal.**
+22) **Eh bien, [[Jésus|moi, je]] vous dis : Celui qui se met en colère contre son frère en répondra devant le tribunal. Celui qui lui dit « imbécile » passera devant le Grand-Conseil, et celui qui le traite de fou est bon pour le feu de l’enfer.**
+23) **Si donc, au moment de présenter ton offrande devant l’autel, tu te souviens que ton frère a quelque chose contre toi,**
+24) **laisse là ton offrande devant l’autel, et va d’abord te réconcilier avec ton frère ; puis tu reviendras présenter ton offrande.**
+25) **Si tu es en conflit avec quelqu’un, dépêche-toi de t’entendre avec ton adversaire pendant que tu es encore en chemin avec lui. Sinon, ton adversaire remettra l’affaire entre les mains du juge, qui fera appel aux huissiers de justice, et tu seras mis en prison.**
+26) **Et là, vraiment, [[Jésus|je]] te l’assure : tu n’en sortiras pas avant d’avoir remboursé jusqu’au dernier centime.**
 ## Chapitre 6
 Seconde partie de ce qui est appelé le "serment sur la montage" par [[Jésus]]
 ### Versets 1 à 18
@@ -129,17 +139,74 @@ Intitulé **Les biens matériels** par [[Bible#^358f23|BDS]]
 33) **Faites donc du [[Royaume de Dieu|royaume de Dieu]] et de ce qui est juste à ses yeux votre préoccupation première, et toutes ces choses vous seront données en plus.**
 34) **Ne vous inquiétez pas pour le lendemain ; le lendemain se souciera de lui-même. A chaque jour suffit sa peine.**
 ## Chapitre 7
-Dernière partie de ce qui est appelé le "serment sur la montage " par [[Jésus]]
-## Chapitre 8
+Dernière partie de ce qui est appelé le "serment sur la montage" par [[Jésus]]
 ### Versets 1 à 20
-Intitulé **[[Jésus]] et la tradition religieuse juive**
-#### Versets 8 et 9
-8) Ce peuple m’honore des lèvres,
-   mais, au fond de son cœur, il est bien loin de moi !
+Intitulé **La vraie religion** par [[Bible#^358f23|BDS]]
+>Ces 6 premiers versets font écho à [[3eme Evangile - Luc#Versets 27 à 45|Luc 6:37-42]] :
 
-9) Le culte qu’il me rend n’a aucune valeur,
-   car les enseignements qu’il donne
-   ne sont que des règles inventées par les hommes
+1) **Ne condamnez pas les autres, pour ne pas être vous-mêmes condamnés.**
+2) **Car vous serez condamnés vous-mêmes de la manière dont vous aurez condamné autrui, et on vous appliquera la mesure dont vous vous serez servis pour mesurer les autres.**
+3) **Pourquoi vois-tu les grains de sciure dans l’œil de ton frère, alors que tu ne remarques pas la poutre qui est dans le tien ?**
+4) **Comment oses-tu dire à ton frère : « Laisse-moi enlever cette sciure de ton œil », alors qu’il y a une poutre dans le tien ?**
+5) **Hypocrite ! Commence donc par retirer la poutre de ton œil ; alors tu y verras assez clair pour ôter la sciure de l’œil de ton frère.**
+6) **Gardez-vous de donner aux chiens ce qui est sacré, et ne jetez pas vos perles devant les porcs, de peur qu’ils piétinent vos perles et que les chiens se retournent contre vous pour vous déchirer.**
+>Ces 5 prochains versets font écho à [[3eme Evangile - Luc#Versets 1 à 13|Luc 11:9-13 :]]
+7) **Demandez, et vous recevrez ; cherchez, et vous trouverez ; frappez, et l’on vous ouvrira.**
+8) **Car celui qui demande reçoit ; celui qui cherche trouve ; et l’on ouvre à celui qui frappe.**
+9) **Qui de vous donnera un caillou à son fils quand celui-ci lui demande du pain ?**
+10) **Ou bien, s’il lui demande un poisson, lui donnera-t-il un serpent ?**
+11) **Si donc, tout mauvais que vous êtes, vous savez donner de bonnes choses à vos enfants, à combien plus forte raison votre [[Dieu|Père céleste]] donnera-t-[[Dieu|il]] de bonnes choses à ceux qui les [[Dieu|lui]] demandent.**
+>Ce verset fait écho à [[3eme Evangile - Luc#Versets 27 à 45|Luc 6:31]] :
+12) **Faites pour les autres tout ce que vous voudriez qu’ils fassent pour vous, car c’est là tout l’enseignement de la [[La Loi de Dieu|Loi]] et des prophètes.**
+>Ces 2 prochains versets font écho à [[3eme Evangile - Luc#Versets 22 à 30|Luc 13:24]] :
+13) **Entrez par la porte étroite ; en effet, large est la porte et spacieuse la route qui mènent à la perdition. Nombreux sont ceux qui s’y engagent.**
+14) **Mais étroite est la porte et resserré le sentier qui mènent à la vie ! Qu’ils sont peu nombreux ceux qui les trouvent !**
+>La suite de ce passage fait écho à [[3eme Evangile - Luc#Versets 27 à 45|Luc 6:43-44]] :
+15) **Gardez-vous des faux prophètes ! Lorsqu’ils vous abordent, ils se donnent l’apparence d’agneaux mais, en réalité, ce sont des loups féroces.**
+16) **Vous les reconnaîtrez à leurs fruits. Est-ce que l’on cueille des raisins sur des buissons d’épines ou des figues sur des ronces ?**
+17) **Ainsi, un bon arbre porte de bons fruits, un mauvais arbre produit de mauvais fruits.**
+18) **Un bon arbre ne peut pas porter de mauvais fruits, ni un mauvais arbre de bons fruits.**
+19) **Tout arbre qui ne donne pas de bons fruits est arraché et jeté au feu.**
+20) **Ainsi donc, c’est à leurs fruits que vous les reconnaîtrez.**
+### Versets 21 à 29
+Intitulé **Appliquer l'enseignement reçu** par [[Bible#^358f23|BDS]]
+>Ces 3 prochains versets font écho à [[3eme Evangile - Luc#Versets 22 à 30|Luc 25-27]] :
+21) **Pour entrer dans le royaume des cieux, il ne suffit pas de me dire : « [[Jésus|Seigneur]] ! [[Jésus|Seigneur]] ! », il faut accomplir la volonté de [[Jésus|mon]] [[Dieu|Père céleste]].**
+22) **Au jour du jugement, nombreux sont ceux qui me diront : « [[Jésus|Seigneur]] ! [[Jésus|Seigneur]] ! Nous avons prophétisé en [[Jésus|ton]] nom, nous avons chassé des démons en [[Jésus|ton]] nom, nous avons fait beaucoup de miracles en [[Jésus|ton]] nom. »**
+23) **[[Jésus|Je]] leur déclarerai alors : « [[Jésus|Je]] ne vous ai jamais connus ! Allez-vous-en, vous qui pratiquez le mal ! »**
+>Ces 4 prochains versets font écho à [[3eme Evangile - Luc#Versets 46 à 49|Luc 6:47-49]] :
+24) **C’est pourquoi, celui qui écoute ce que [[Jésus|je]] dis et qui l’applique, ressemble à un homme sensé qui a bâti sa maison sur le roc.**
+25) **Il a plu à verse, les fleuves ont débordé, les vents ont soufflé avec violence, ils se sont déchaînés contre cette maison : elle ne s’est pas effondrée, car ses fondations reposaient sur le roc.**
+26) **Mais celui qui écoute [[Jésus|mes]] paroles sans faire ce que [[Jésus|je]] dis, ressemble à un homme assez fou pour construire sa maison sur le sable.**
+27) **Il a plu à verse, les fleuves ont débordé, les vents ont soufflé avec violence, ils se sont déchaînés contre cette maison : elle s’est effondrée et sa ruine a été complète.**
+>La suite de ce passage fait écho à [[2nd Evangile - Marc#Versets 21 à 45|Marc 1:22]] et [[3eme Evangile - Luc#Versets 31 à 44|Luc 4:32]] :
+28) Quand [[Jésus|Jésus]] eut fini de parler, les foules étaient profondément impressionnées par [[Jésus|son]] enseignement.
+29) Car [[Jésus|il]] parlait avec une autorité que n’avaient pas leurs spécialistes de la [[La Loi de Dieu|Loi]].
+## Chapitre 8
+### Versets 14 à 17
+Intitulé **[[Jésus|Il]] a porté nos maladies** par [[Bible#^358f23|BDS]]
+>Ce passage fait écho à [[2nd Evangile - Marc#Versets 21 à 45|Marc 1:29-34]] et [[3eme Evangile - Luc#Versets 31 à 44|Luc 4:38-41]] :
+
+14) [[Jésus|Jésus]] se rendit alors à la maison de [[Simon Pierre|Pierre]]. [[Jésus|Il]] trouva la belle-mère de [[Simon Pierre|celui-ci]] alitée, avec une forte fièvre.
+15) [[Jésus|Il]] lui prit la main, et la fièvre la quitta. Alors elle se leva et se mit à [[Jésus|le]] servir.
+16) Le soir venu, on [[Jésus|lui]] amena beaucoup de gens qui étaient sous l’emprise de démons : par [[Jésus|sa]] parole, [[Jésus|il]] chassa ces esprits mauvais. [[Jésus|Il]] guérit aussi tous les malades.
+17) Ainsi s’accomplissait cette parole du prophète [[Esaïe|Esaïe]] :
+    *[[23 - Esaïe#Chapitre 53|Il s’est chargé de nos infirmités]]*
+    *[[23 - Esaïe#Chapitre 53|et il a porté nos maladies.]]*
+## Chapitre 9
+### Versets 1 à 8
+Intitulé **[[Jésus|Jésus]] guérit un malade et pardonne ses péchés** par [[Bible#^358f23|BDS]]
+>Ce passage fait écho à [[2nd Evangile - Marc#Versets 1 à 12|Marc 2:1]] et [[3eme Evangile - Luc#Versets 12 à 26|Luc 5:17-26]] :
+
+1) [[Jésus|Jésus]] monta dans un bateau, traversa le [[Galilée|lac]] et se rendit dans [[Jésus|sa]] [[Capharnaüm|ville]].
+2) On [[Jésus|lui]] amena un paralysé couché sur un brancard. Lorsqu’il vit la foi de ces gens, [[Jésus|Jésus]] dit au paralysé : **Prends courage, [[Jésus|mon]] enfant, tes péchés te sont pardonnés.**
+3) Là-dessus, quelques spécialistes de la [[La Loi de Dieu|Loi]] pensèrent en eux-mêmes : « [[Jésus|Cet homme]] blasphème ! »
+4) Mais [[Jésus|Jésus]] connaissait leurs pensées. [[Jésus|Il]] leur dit : **Pourquoi avez-vous ces mauvaises pensées en vous-mêmes ?**
+5) **Qu’est-ce qui est le plus facile ? Dire : « Tes péchés te sont pardonnés », ou dire : « Lève-toi et marche » ?**
+6) **Eh bien, vous saurez que le [[Jésus|Fils de l’homme]] a, sur la terre, le pouvoir de pardonner les péchés.**
+   Alors [[Jésus|il]] dit au paralysé : **[[Jésus|Je]] te l’ordonne : lève-toi, prends ton brancard, et rentre chez toi !**
+7) Le paralysé se leva et s’en alla chez lui.
+8) En voyant cela, les foules furent saisies de frayeur et rendirent gloire à [[Dieu|Dieu]] qui avait donné aux hommes un si grand pouvoir.
 ## Chapitre 11
 ### Versets 20 à 30
 Intitulé **Les reproches aux villes rebelles** par [[Bible#^358f23|BDS]]
@@ -166,6 +233,25 @@ Intitulé **[[Jésus]] rejeté à [[Nazareth]]** par [[Bible#^358f23|BDS]]
     Alors [[Jésus|Jésus]] leur dit : **C’est seulement dans sa patrie et dans sa propre famille que l’on refuse d’honorer un prophète.**
 58) Aussi ne fit-il là que peu de miracles, à cause de leur incrédulité.
 ## Chapitre 16
+### Versets 1 à 12
+Intitulé **[[Jésus|Jésus]] et les chefs religieux juifs** par [[Bible#^358f23|BDS]]
+>Ces 4 premiers versets font écho à [[2nd Evangile - Marc#Versets 11 à 21|Marc 8:11-13]] et [[3eme Evangile - Luc#Versets 54 à 59|Luc 12:54-56]]
+
+1) Des pharisiens et des sadducéens abordèrent [[Jésus|Jésus]] pour [[Jésus|lui]] tendre un piège. Ils [[Jésus|lui]] demandèrent de leur montrer un signe miraculeux venant du ciel.
+2) [[Jésus|Il]] leur répondit : **[Au crépuscule, vous dites bien : « Demain, il fera beau, car le ciel est rouge. »**
+3) **Ou bien, à l’aurore : « Aujourd’hui, on aura de l’orage, car le ciel est rouge sombre. » Ainsi, vous savez reconnaître ce qu’indique l’aspect du ciel ; mais vous êtes incapables de reconnaître les signes de notre temps.]**
+4) **Ces gens de notre temps qui sont mauvais et infidèles à [[Dieu|Dieu]] réclament un signe miraculeux ! Un signe… il ne leur en sera pas accordé d’autre que celui de [[Jonas|Jonas]].**
+   Là-dessus, [[Jésus|il]] les quitta et partit de là.
+>La suite de ce passage fait écho à [[2nd Evangile - Marc#Versets 11 à 21|Marc 8:14-21]]
+
+5) En passant de l’autre côté du lac, les disciples avaient oublié d’emporter du pain.
+6) [[Jésus|Jésus]] leur dit : **Faites bien attention : gardez-vous du levain des pharisiens et des sadducéens !**
+7) Les disciples discutaient entre eux : [[Jésus|Il]] dit cela parce que nous n’avons pas pris de pain !
+8) [[Jésus|Jésus]], sachant ce qui se passait, leur dit : **Pourquoi discutez-vous entre vous parce que vous n’avez pas de pain ? Ah, votre foi est bien petite !**
+9) **Vous n’avez donc pas encore compris ? Ne vous souvenez-vous pas des cinq pains distribués aux cinq mille hommes et du nombre de paniers que vous avez remplis avec les restes ?**
+10) **Et des sept pains distribués aux quatre mille hommes et du nombre de corbeilles que vous avez emportées ?**
+11) **Comment se fait-il que vous ne compreniez pas que [[Jésus|je]] ne parlais pas de pain quand [[Jésus|je]] vous disais : Gardez-vous du levain des pharisiens et des sadducéens !**
+12) Alors ils comprirent qu’[[Jésus|il]] leur avait dit de se garder, non pas du levain que l’on met dans le pain, mais de l’enseignement des pharisiens et des sadducéens.
 ### Versets 13 à 20
 Intitulé **Qui est vraiment [[Jésus]] ?** par [[Bible#^358f23|BDS]]
 
@@ -197,7 +283,17 @@ Etudié dans le [[Positionnement du cœur]], notamment à propos de la [[Positio
 
 21) [[Jésus]] lui répondit : Si tu veux être parfait, va vendre tes biens, distribue le produit de la vente aux pauvres, et tu auras un trésor dans le ciel. Puis viens et suis-moi !
 22) Quand il entendit cela, le jeune homme s’en alla tout triste, car il était très riche.
+## Chapitre 21
+### Versets 18 à 22
+Intitulé **La malédiction du figuier** par [[Bible#^358f23|BDS]]
+>Ce passage fait écho à [[2nd Evangile - Marc#Versets 12 à 14|Marc 11:12-14]] et [[2nd Evangile - Marc#Versets 20 à 26|Marc 11:20-25]]
 
+18) Tôt le lendemain matin, en revenant vers la ville, [[Jésus|il]] eut faim.
+19) [[Jésus|Il]] aperçut un figuier sur le bord de la route et s’en approcha ; mais [[Jésus|il]] n’y trouva que des feuilles. Alors, [[Jésus|il]] dit à l’arbre : **Tu ne porteras plus jamais de fruit !**
+    A l’instant même, le figuier devint tout sec.
+20) En voyant cela, les disciples furent très étonnés et s’écrièrent : Comment ce figuier est-il devenu sec en un instant ?
+21) **– Vraiment, [[Jésus|je]] vous l’assure,** répondit [[Jésus|Jésus]], **si vous avez la foi, si vous ne doutez pas, non seulement vous pourrez accomplir ce que [[Jésus|j]]’ai fait à ce figuier, mais même si vous dites à cette colline : « Soulève-toi de là et jette-toi dans la mer », cela se fera.**
+22) **Si vous priez avec foi, tout ce que vous demanderez, vous l’obtiendrez.**
 ## Chapitre 24
 Intitulé **La suite des temps** par [[Bible#^358f23|BDS]]
 ### Versets 1 à 35

@@ -118,6 +118,27 @@ Intitulé **La purification rituelle** par [[Bible#^358f23|BDS]]
 13) Si quelqu’un transgresse cet ordre, on ne le touchera pas, mais on le lapidera ou on le percera de flèches. Qu’il s’agisse d’une bête ou d’un homme, il ne restera pas en vie. C’est seulement lorsque la corne du bélier sonnera que certains monteront sur [[Mont Sinaï|la montagne]]. »
 14) [[Moïse]] redescendit de la montagne vers le peuple pour lui faire accomplir les rites de purification. Ils lavèrent aussi leurs vêtements.
 15) Puis [[Moïse|il]] leur dit : Tenez-vous prêts pour après-demain. Abstenez-vous d’ici-là de tout rapport sexuel.
+## Chapitre 20
+### Versets 1 à 17
+Intitulé **La charte de l'alliance** par [[Bible#^358f23|BDS]]
+
+1) Alors [[Dieu|Dieu]] prononça toutes ces paroles :
+2) [[Dieu|Je]] suis l’[[Dieu|Eternel]] [[Israël|ton]] [[Dieu|Dieu]] qui [[Israël|t]]’ai fait sortir d’[[Egypte|Egypte]], du pays où [[Israël|tu]] étais esclave.
+3) Tu n’auras pas d’autre dieu que [[Dieu|moi]].
+4) Tu ne te feras pas d’idole ni de représentation quelconque de ce qui se trouve en haut dans le ciel, ici-bas sur la terre, ou dans les eaux plus bas que la terre.
+5) Tu ne te prosterneras pas devant de telles idoles et tu ne leur rendras pas de culte, car [[Dieu|moi, l'Eternel]], ton [[Dieu|Dieu]], [[Dieu|je]] suis un [[Dieu|Dieu]] qui ne tolère aucun rival : [[Dieu|je]] punis les fils pour la faute de leur père, jusqu’à la troisième, voire la quatrième génération de ceux qui [[Dieu|me]] haïssent.
+6) Mais [[Dieu|j]]’agis avec amour jusqu’à la millième génération envers ceux qui [[Dieu|m]]’aiment et qui obéissent à [[Dieu|mes]] commandements.
+7) Tu n’utiliseras pas le nom de l’[[Dieu|Eternel]] [[Israël|ton]] [[Dieu|Dieu]] pour tromper, car l’[[Dieu|Eternel]] ne laisse pas impuni celui qui utilise [[Dieu|son]] nom pour tromper.
+8) Pense à observer le jour du sabbat et fais-en un jour consacré à l’[[Dieu|Eternel]].
+9) Tu travailleras six jours pour faire tout ce que tu as à faire.
+10) Mais le septième jour est le jour du repos consacré à l’[[Dieu|Eternel]], ton [[Dieu|Dieu]] ; tu ne feras aucun travail ce jour-là, ni toi, ni ton fils, ni ta fille, ni ton serviteur, ni ta servante, ni ton bétail, ni l’étranger qui réside chez toi ;
+11) car en six jours, l’[[Dieu|Eternel]] a fait le ciel, la terre, la mer, et tout ce qui s’y trouve, mais le septième jour, [[Dieu|il]] s’est reposé. C’est pourquoi l’[[Dieu|Eternel]] a béni le jour du sabbat et en a fait un jour qui lui est consacré.
+12) Honore ton père et ta mère afin de jouir d’une longue vie dans le pays que l’[[Dieu|Eternel]] ton [[Dieu|Dieu]] te donne.
+13) Tu ne commettras pas de meurtre.
+14) Tu ne commettras pas d’adultère.
+15) Tu ne commettras pas de vol.
+16) Tu ne porteras pas de faux témoignage contre ton prochain.
+17) Tu ne convoiteras pas la maison de ton prochain, tu ne convoiteras pas la femme de ton prochain, ni son serviteur, ni sa servante, ni son bœuf, ni son âne, ni rien qui appartienne à ton prochain.
 ## Chapitre 33
 ## Versets 7 à 11
 Intitulé **La tente de la Rencontre** par [[Bible#^358f23|BDS]]
