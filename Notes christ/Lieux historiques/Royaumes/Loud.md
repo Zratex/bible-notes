@@ -1,0 +1,1 @@
+Les **Loud** dont leur origine est peu certaine mais ils seraient probablement un peuple qui vivait dans l'actuelle Libye, donc qui entretenait pas mal de relation avec l'[[Egypte]]

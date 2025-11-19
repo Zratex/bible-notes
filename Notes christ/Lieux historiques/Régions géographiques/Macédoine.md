@@ -1,1 +1,1 @@
-Région correspondant à l'actuelle région de la Macédoine grecque, et du pays de la Macédoine du Nord.
+Région correspondant à l'actuelle région de la Macédoine [[Grecs|grecque]], et du pays de la Macédoine du Nord. On pourrait dire que c'est un peuple cousin aux [[Grecs]] puisse qu'ils ont potentiellement comme origine commune [[Yavân]]

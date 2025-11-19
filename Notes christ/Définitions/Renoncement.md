@@ -1,2 +1,2 @@
 ==Renoncement :== *Action de renoncer à quelque chose, de cesser de rechercher ce à quoi on tenait, de s'en détacher* - selon le Larousse
--> Signifie un changement de direction complet (voir radical) en grecque
+-> Signifie un changement de direction complet (voir radical) en [[Grecs|grecque]]

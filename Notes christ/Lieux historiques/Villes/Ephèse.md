@@ -1,1 +1,1 @@
-Ville au sud ouest de l'[[Asie mineure]], donc elle a été grandement influencée par la culture grecque. C'est à l'[[Eglise]] de cette ville qu'est adressé la lettre aux [[10 - Ephésiens|Ephésiens]]
+Ville au sud ouest de l'[[Asie mineure]], donc elle a été grandement influencée par la culture [[Grecs|grecque]]. C'est à l'[[Eglise]] de cette ville qu'est adressé [[10 - Ephésiens|la lettre aux Ephésiens]]

@@ -8,7 +8,7 @@ Sachant que l'église est l'épouse, il est dit dans [[Genèse#Chapitre 3|Genès
 - Note sur l'état de l'église : [[Santé de l'église]]
 - Notes sur l'histoire de l'Eglise : [[Formation disciples POC Reims#L'histoire de l'Eglise|L'histoire de l'Eglise]]
 ## Définition du mot église
-Le mot **église** vient du terme **ecclésia**, qui est un terme grecque avec plusieurs significations :
+Le mot **église** vient du terme **ecclésia**, qui est un terme [[Grecs|grec]] avec plusieurs significations :
 - Ceux qui sont appelés or de (ici, ceux qui sont appelés or de ce monde)
 - Assemblée qui, au travers de ses actes internes (ici le [[Royaume de Dieu]]), impacte l'extérieur
 ## Différence entre l'Eglise et l'église

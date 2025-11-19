@@ -1,2 +1,2 @@
-Colosse (ou **Colosses** de *Colossae* en grecque) est une ville d'influence grecque d'[[Asie mineure]] dont la lettre [[12 - Colossiens|Colossiens]] est destinée à l'[[Eglise]] de celle ci.
+Colosse (ou **Colosses** de *Colossae* en [[Grecs|grecque]]) est une ville d'influence [[Grecs|grecque]] d'[[Asie mineure]] dont [[12 - Colossiens|la lettre aux Colossiens]] est destinée à l'[[Eglise]] de celle-ci.
 ![[Colosse.PNG]]

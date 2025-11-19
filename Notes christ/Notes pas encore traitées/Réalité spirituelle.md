@@ -38,6 +38,6 @@ Les exemples de manifestations démoniaques dans la [[Bible]], en particulier da
 
 > Ça ne sert à rien de proclamer qu'il y a des démons et de les chasser, si on a pas d'abord le discernement de ceci
 
-[[Jésus]] a chassé la tempête et a apaisé la mer avec autorité (dans la traduction grecque), car il a discerné que le monde spirituel a essayé de l'empêcher d'aller de l'autre côté du lac de [[Galilée]], car [[Satan]] savais que [[Jésus]] allait chasser les esprits de Légion.
+[[Jésus]] a chassé la tempête et a apaisé la mer avec autorité (dans la traduction [[Grecs|grecque]]), car il a discerné que le monde spirituel a essayé de l'empêcher d'aller de l'autre côté du lac de [[Galilée]], car [[Satan]] savais que [[Jésus]] allait chasser les esprits de Légion.
 
 Rester dans la sainteté nous rend libre, car on évite des combats

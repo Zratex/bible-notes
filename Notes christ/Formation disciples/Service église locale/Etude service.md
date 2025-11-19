@@ -62,7 +62,7 @@ La vision doit importé par dessus tout :
 Parfois on ne voit pas la réalisation de la vision mais on y participe (exemple de [[Moïse]] qui a guidé [[Israël]])
 ## 3 - La grâce de [[Dieu]]
 La grâce est la faveur de [[Dieu]] et c'est quelque chose que l'on vit
-`Luc 1:28` : grâce en grecque vient de "charisma" ce qui veut dire un don/faveur. Et dans le service on a besoin de la grâce de [[Dieu]], car on a nos problèmes ET ceux des autres
+`Luc 1:28` : grâce en [[Grecs|grecque]] vient de "charisma" ce qui veut dire un don/faveur. Et dans le service on a besoin de la grâce de [[Dieu]], car on a nos problèmes ET ceux des autres
 >Sans la grâce, on se compte sur ses propres forces, ce qui épuise. Car la grâce c'est ce qui nous porte
 
 `1 Corinthiens 15:10` : c'est par la grâce qu'on est réellement ce à quoi [[Dieu]] nous appelle

@@ -1,0 +1,2 @@
+Les **Toubal** ont une origine peu claire mais ils auraient été un peuple du nord de l'[[Asie mineure]], soit au sud-est de la [[Mer Noire|Mer Noire]].
+>Le nom de cette tribu proviendrait peut être de 

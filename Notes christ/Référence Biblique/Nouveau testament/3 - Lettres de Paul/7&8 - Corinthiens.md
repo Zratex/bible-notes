@@ -31,9 +31,9 @@ Référence à [[23 - Esaïe#Versets 13 et 14|Esaïe 29:13-14]]
 
 20) Où est le sage ? Où est le spécialiste de la Loi ? Où est le raisonneur de ce monde ? [[Dieu]] n’a-t-il pas changé en folie la [[Sagesse (note)]] du monde ?
 21) En effet, là où la [[Sagesse (note)]] divine s’est manifestée, le monde n’a pas reconnu [[Dieu]] par le moyen de la sagesse. C’est pourquoi [[Dieu]] a jugé bon de sauver ceux qui croient, par un message qui annonce une folie.
-22) Oui, tandis que, d’un côté, les Juifs réclament des signes miraculeux et que, de l’autre, les Grecs recherchent « la sagesse »,
-23) nous, nous prêchons [[Jésus|Christ]] mis en croix, ce qui est une cause de rejet pour les Juifs et une folie pour les Grecs.
-24) Mais pour tous ceux que [[Dieu]] appelle, qu’ils soient juifs ou grecs, [[Jésus|Christ]] est puissance de [[Dieu]] et sagesse de [[Dieu]].
+22) Oui, tandis que, d’un côté, les Juifs réclament des signes miraculeux et que, de l’autre, les [[Grecs|Grecs]] recherchent « la sagesse »,
+23) nous, nous prêchons [[Jésus|Christ]] mis en croix, ce qui est une cause de rejet pour les Juifs et une folie pour les [[Grecs|Grecs]].
+24) Mais pour tous ceux que [[Dieu]] appelle, qu’ils soient [[Israël|juifs]] ou [[Grecs|grecs]], [[Jésus|Christ]] est puissance de [[Dieu]] et sagesse de [[Dieu]].
 25) Car la folie de [[Dieu]] est plus sage que la sagesse des hommes, et la faiblesse de [[Dieu]] est plus forte que la force des hommes.
 26) Considérez donc, frères et sœurs, la situation dans laquelle [[Dieu]] vous a appelés à lui. On ne trouve parmi vous que peu de sages selon les critères humains, peu de personnalités influentes, peu de membres de la haute société !
 27) Non ! [[Dieu]] a choisi ce que le monde considère comme une folie pour confondre les sages, et il a choisi ce qui est faible pour couvrir de honte les puissants.

@@ -1,1 +1,1 @@
-La **Pentecôte**, qui signifie *cinquantième jour* (après [[Pâques]]) en grecque, est le jour où un groupe de disciples de [[Jésus]] ([[Apôtres]] inclus) ont vécus la descente du [[Saint-Esprit]]
+La **Pentecôte**, qui signifie *cinquantième jour* (après [[Pâques]]) en [[Grecs|grecque]], est le jour où un groupe de disciples de [[Jésus]] ([[Apôtres]] inclus) ont vécus la descente du [[Saint-Esprit]]

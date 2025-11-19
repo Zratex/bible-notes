@@ -1,1 +1,2 @@
 Eli (ou **Héli**, signifiant "Montée" en hébreu) est à l'époque de [[9&10 - Samuel|1 Samuel]] l'un des derniers juges de l'histoire d'[[Israël]]
+-> Ce ne serait donc pas le même personnage que le prophète [[Elie]]

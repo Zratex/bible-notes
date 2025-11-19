@@ -1,16 +1,16 @@
-Autre version canonique du point de vue des **orthodoxes** de l'[[Ancien Testament]] écrit en grec.
->Depuis le canon défini après la révolte lancée par les [[Zélotes]] qui a donné naissance à la structure actuelle du [[Tanakh]], il est **peu utilisé par les juifs**, car non considéré comme canon puisse que **ces textes sont grecques et non hébreux**
+Autre version canonique du point de vue des **orthodoxes** de l'[[Ancien Testament]] écrit en [[Grecs|grecque]].
+>Depuis le canon défini après la révolte lancée par les [[Zélotes]] qui a donné naissance à la structure actuelle du [[Tanakh]], il est **peu utilisé par les juifs**, car non considéré comme canon puisse que **ces textes sont [[Grecs|grecques]] et non hébreux**
 ## Composition de la Septante
 La Septante contient les livres **Deutérocanonique**, soit des livres ou ajouts de livres considérés [[Apocryphes|apocryphes]] chez les juifs et protestants, car non présents dans le [[Tanakh]]. Cela inclus :
 - Tobit
 - Judith
-- La version grecque du livre d'[[16 - Esther|Esther]]
+- La version [[Grecs|grecque]] du livre d'[[16 - Esther|Esther]]
 - 1 Maccabées
 - 2 Maccabées
 - Sagesse
 - Siracide
 - Baruch
-- La version grecque du livre de [[27 - Daniel|Daniel]]
+- La version [[Grecs|grecque]] du livre de [[27 - Daniel|Daniel]]
 Jusque là c'est comme la [[Vulgate]], mais la septante inclue aussi des [[Apocryphes]] (ce qu'on appelle la **Septante élargie**) :
 - 3 Maccabées
 - 4 Maccabées

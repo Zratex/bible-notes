@@ -1,0 +1,3 @@
+Les **Poul** (ou **Punt**, ou **Pount**) dont sa localisation est peu claire mais qui aurait dans son histoire entretenu pas mal de relations avec l'[[Egypte]], est un peu qui aurait été surtout présent dans la région de la **corne de l'Afrique** et détroit de Bab El-Mandeb.
+![[Punt ou Poul.jpg]]
+Donc ça inclurait des pays récents tel que l'[[Ethiopie]], l'Erythrée, Djibouti mais **surtout l'actuelle Somalie**, et peut être même une partie du sud du Yémen.

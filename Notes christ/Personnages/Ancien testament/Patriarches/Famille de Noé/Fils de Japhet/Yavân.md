@@ -1,0 +1,3 @@
+Un des fils de [[Japhet]], il serait **à l'origine du peuple [[Grecs]]** ainsi que les [[Macédoine|Macédoniens]], car il serait semblable à la description de **Ion**, le personnage fondateur de ces 2 peuples dans la mythologie [[Grecs|grecque]].
+
+Etant donné que **ce nom est associé aux [[Grecs|grecs]] du point de vue de la littérature [[Israël|juive]]**, [[Daniel]] l'utiliserait pour pour notamment décrire un homme influent [[Grecs|grec]] dans le livre de [[27 - Daniel]], et celui ci correspondrait à [[Alexandre le Grand]]

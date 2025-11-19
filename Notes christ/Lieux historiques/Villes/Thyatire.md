@@ -1,2 +1,2 @@
-Ville grecque localisée en [[Asie mineure]]
+Ville [[Grecs|grecque]] localisée en [[Asie mineure]]
 ![[Thyatire.png]]

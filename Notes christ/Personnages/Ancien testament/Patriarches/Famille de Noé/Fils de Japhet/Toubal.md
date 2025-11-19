@@ -1,0 +1,1 @@
+Un des fils de [[Japhet]], il serait probablement à l'origine du peuple [[Toubal (peuple)|Toubal]]

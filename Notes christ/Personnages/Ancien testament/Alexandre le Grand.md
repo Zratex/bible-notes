@@ -1,3 +1,4 @@
-Je ne sais pas si il est mentionné dans la [[Bible]], mais il a été à l'origine du premier empire englobant une grande partie des côtes [[Méditerranée|méditerranéenne]] et du Moyen-Orient, avant les [[Romains]].
+Il serait potentiellement mentionné en tant que [[Yavân]] par [[Daniel]] dans la [[27 - Daniel]].
+Il a été à l'origine du premier empire englobant une grande partie des côtes [[Méditerranée|méditerranéenne]] et du Moyen-Orient, avant les [[Romains]].
 
-D'abord roi de [[Macédoine]] avant de devenir empereur, il est le fondateur de la ville d'[[Alexandrie]].
+D'abord roi de [[Macédoine]] (donc de culture [[Grecs|grecque]]) avant de devenir empereur, il est le fondateur de la ville d'[[Alexandrie]].

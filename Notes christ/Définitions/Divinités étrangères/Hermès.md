@@ -1,1 +1,1 @@
-Divinité étant le messager des dieu de la mythologie grecque, en particulier [[Zeus]]
+Divinité étant le messager des dieux de la mythologie [[Grecs|grecque]], en particulier [[Zeus]]

@@ -39,7 +39,7 @@ Il y a pas mal d'aspect géopolitiques (présents ou non) à propos de l'existen
 - Empires ayant dominés les terres d'Israël :
 	- [[Assyrie]]
 	- [[Babylone]]
-	- Grecques
+	- [[Grecs|Grecques]]
 	- [[Romains]] (créant l'état de [[Palestine]])
 	- Après la chute de l'empire [[Romains|romain]] :
 		- Dynasties arabes et/ou musulmanes

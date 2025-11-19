@@ -1,1 +1,1 @@
-Il est dieu suprême de la mythologie grecque
+Il est dieu suprême de la mythologie [[Grecs|grecque]]

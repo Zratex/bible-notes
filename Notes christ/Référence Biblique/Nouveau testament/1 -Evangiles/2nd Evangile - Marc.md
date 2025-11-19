@@ -78,6 +78,16 @@ Intitulé **[[Jésus|Jésus]] guérit un malade et pardonne ses péchés** par [
 11) Alors [[Jésus|il]] déclara au paralysé : **[[Jésus|Je]] te l’ordonne : lève-toi, prends ton brancard, et rentre chez toi !**
 12) Aussitôt, cet homme se leva, prit son brancard, et sortit devant tout le monde.
     Tous en furent stupéfaits et rendirent gloire à [[di]] en disant : Nous n’avons jamais rien vu de pareil !
+## Chapitre 4
+### Versets 21 à 25
+Intitulé **La parabole de la lampe** par [[Bible#^358f23|BDS]]
+>Ce passage fait écho à [[3eme Evangile - Luc#Versets 16 à 18|Luc 8:16-18]] :
+
+21) [[Jésus|Il]] leur dit aussi : **Est-ce qu’on apporte une lampe pour la mettre sous une mesure à grains ou sous un lit ? N’est-ce pas plutôt pour la mettre sur un pied de lampe ?**
+22) **Tout ce qui est caché doit être mis en lumière, tout ce qui est secret doit paraître au grand jour.**
+23) **Si quelqu’un a des oreilles pour entendre, qu’il entende !**
+24) [[Jésus|Il]] ajouta : **Faites bien attention à ce que vous entendez. On vous appliquera la mesure dont vous vous serez servi pour mesurer, et on y ajoutera.**
+25) **Car à celui qui a, on donnera encore, mais à celui qui n’a pas, on ôtera même ce qu’il a.**
 ## Chapitre 7
 ### Versets 1 à 23
 Intitulé **[[Jésus]] et la tradition religieuse juive**
@@ -113,7 +123,52 @@ Intitulé **Comment suivre [[Jésus]]** par [[Bible#^358f23|BDS]]
 36) **Si un homme parvenait à posséder le monde entier, à quoi cela lui servirait-il, s’il perd sa vie ?**
 37) **Et que peut-on donner pour racheter sa vie ?**
 38) **Si quelqu’un a honte de [[Jésus|moi]] et de [[Jésus|mes]] paroles au milieu des hommes de ce temps, qui sont infidèles à [[Dieu|Dieu]] et qui transgressent sa [[La Loi de Dieu|Loi]], le [[Jésus|Fils de l’homme]], à [[Jésus|son]] tour, aura honte de lui quand [[Jésus|il]] viendra dans la gloire de son [[Dieu|Père]] avec les saints anges.**
+## Chapitre 9
+### Versets 33 à 50
+Intitulé **L’accueil des « petits »** par [[Bible#^358f23|BDS]]
+>Ces 5 prochains versets font écho à [[1er Evangile - Matthieu#Versets 1 à 14|Matthieu 18:1-5]] et [[3eme Evangile - Luc#Versets 46 à 50|Luc 9:46-48]] :
+
+33) Ils arrivèrent à [[Capharnaüm|Capernaüm]]. Quand ils furent rentrés à la maison, [[Jésus|Jésus]] leur demanda : **De quoi avez-vous discuté en route ?**
+34) Mais ils se taisaient car, durant le trajet, ils avaient discuté pour savoir lequel d’entre eux était le plus grand.
+35) [[Jésus|Jésus]] s’assit, appela les [[Apôtres|Douze]] et leur dit : **Si quelqu’un désire être le premier, qu’il se fasse le dernier de tous, et le serviteur de tous.**
+36) Puis [[Jésus|il]] prit un petit enfant par la main, le plaça au milieu d’eux et, après [[Jésus|l]]’avoir serré dans ses bras, [[Jésus|il]] leur dit :
+37) **Si quelqu’un accueille, en [[Jésus|mon]] nom, un enfant comme celui-ci, il [[Jésus|m]]’accueille [[Jésus|moi-même]]. Et celui qui [[Jésus|m]]’accueille, ce n’est pas [[Jésus|moi]] seulement qu’il accueille, mais aussi [[Dieu|celui qui m’a envoyé]].**
+>Ces 4 prochains versets font écho à [[3eme Evangile - Luc#Versets 46 à 50|Luc 9:49-50]] :
+
+38) [[Jean|Jean]] [[Jésus|lui]] dit : [[Jésus|Maître]], nous avons vu quelqu’un qui chassait les démons en [[Jésus|ton]] nom, et nous lui avons dit de ne plus le faire, parce qu’il ne nous suit pas.
+39) **– Ne l’en empêchez pas,** répondit [[Jésus|Jésus]], **car personne ne peut accomplir un miracle en [[Jésus|mon]] nom et, aussitôt après, dire du mal de [[Jésus|moi]].**
+40) **Celui qui n’est pas contre nous est pour nous.**
+41) **Et même, si quelqu’un vous donne à boire en [[Jésus|mon]] nom, ne serait-ce qu’un verre d’eau, parce que vous appartenez au [[Jésus|Messie]], vraiment, [[Jésus|je]] vous l’assure, il ne perdra pas sa récompense.**
+>La suite du passage fait écho à [[1er Evangile - Matthieu#Versets 1 à 14|Matthieu 18:6-9]] et [[3eme Evangile - Luc#Versets 1 à 4|Luc 17:1-2]]
+
+42) Mais si quelqu’un devait causer la chute de l’un de ces petits qui croient en moi, il vaudrait bien mieux pour lui qu’on lui attache au cou une de ces pierres de meule que font tourner les ânes et qu’on le jette dans le lac.
+43) Si ta main cause ta chute, coupe-la ; car il vaut mieux pour toi entrer dans la vie avec une seule main que de garder les deux mains et d’être jeté en enfer dans le feu qui ne s’éteint jamais.
+44) **[Là, le ver rongeur ne meurt point et le feu ne s'éteint jamais.]**
+45) Si ton pied cause ta chute, coupe-le ; car il vaut mieux pour toi entrer dans la vie avec un seul pied que de garder les deux pieds et d’être jeté en enfer.
+46) **[Là, le ver rongeur ne meurt point et le feu ne s'éteint jamais.]**
+47) **Si ton œil cause ta chute, jette-le au loin ; car il vaut mieux pour toi entrer avec un seul œil dans le royaume de [[Dieu|Dieu]] que de garder les deux yeux et d’être jeté en enfer,**
+48) ***[[23 - Esaïe#Versets 18 (partie 2) à 24|où le ver rongeur ne meurt point et où le feu ne s’éteint jamais.]]***
+49) **En effet, chacun doit être salé de feu.**
+50) **Le sel est utile, mais s’il perd son goût, avec quoi lui rendrez-vous sa saveur ? Ayez du sel en vous-mêmes et vivez en paix entre vous.**
 ## Chapitre 10
+Intitulé **Ministère de [[Jésus|Jésus]] en [[Judée|Judée]] et à [[Jérusalem|Jérusalem]]** par [[Bible#^358f23|BDS]]
+### Versets 1 à 12
+Intitulé **Controverse sur le divorce** par [[Bible#^358f23|BDS]]
+>Ce passage fait écho à [[1er Evangile - Matthieu#Versets 1 à 12|Matthieu 19:1-12]] :
+
+1) [[Jésus|Jésus]] partit de là pour se rendre dans la partie de la [[Judée|Judée]] située de l’autre côté du [[Jourdain|Jourdain]]. De nouveau, les foules se rassemblèrent autour de [[Jésus|lui]] et, selon [[Jésus|son]] habitude, [[Jésus|il]] se mit à les enseigner.
+2) Des pharisiens s’approchèrent et [[Jésus|lui]] posèrent une question : Un homme a-t-il le droit de divorcer d’avec sa femme ?
+   Ils voulaient par là [[Jésus|lui]] tendre un piège.
+3) [[Jésus|Il]] leur répondit : **Quel commandement [[Moïse|Moïse]] vous a-t-il donné ?**
+4) – [[Moïse|Moïse]], [[Jésus|lui]] dirent-ils, a permis *[[5 - Deutéronome#Versets 1 à 4|de divorcer d’avec sa femme, à condition de lui donner un certificat de divorce]]*.
+5) [[Jésus|Jésus]] leur répondit : **C’est à cause de la dureté de votre cœur que Moïse a écrit ce commandement pour vous.**
+6) **Mais, au commencement de la création, [[Dieu|Dieu]] a créé l’être humain homme et femme.**
+7) ***[[Genèse#Versets 4 à 25|C’est pourquoi l’homme laissera son père et sa mère pour s’attacher à sa femme,]]***
+8) ***[[Genèse#Versets 4 à 25|et les deux ne feront plus qu’un.]]* Ainsi, ils ne sont plus deux, ils font un.**
+9) **Que l’homme ne sépare donc pas ce que [[Dieu|Dieu]] a uni.**
+10) De retour à la maison, les disciples l’interrogèrent à nouveau sur ce sujet.
+11) [[Jésus|Il]] leur dit : **Celui qui divorce et se remarie commet un adultère à l’égard de sa première femme.**
+12) **Et si une femme divorce et se remarie, elle commet un adultère.**
 ### Versets 17 à 31
 Intitulé **Les riches et le royaume** par [[Bible#^358f23|BDS]]
 

@@ -1,4 +1,5 @@
 Paroles apportées par le prophète [[Malachie]]
+>Ce livre fait 3 chapitre dans la version [[Bible#^358f23|BDS]], mais dans d'autres versions [[France|françaises]] le chapitre 3 est séparé en 2 chapitres
 ## Chapitre 1
 ### Versets 1 à 5
 Par [[Bible#^358f23|BDS]] :
@@ -9,6 +10,12 @@ Par [[Bible#^358f23|BDS]] :
 4) L’offrande de [[Juda|Juda]] et de [[Jérusalem|Jérusalem]] plaira à l’[[Dieu|Eternel]], comme aux jours d’autrefois, aux années de jadis.
 5) Et je viendrai à vous en vue du jugement, et je me hâterai d’être un témoin à charge contre les magiciens, contre les adultères, et contre les parjures, contre ceux qui privent l’ouvrier de son gain, contre ceux qui oppriment la veuve et l’orphelin, et contre ceux qui violent le droit de l’immigré, ceux qui ne me craignent pas, déclare l’[[Dieu|Eternel]], le [[Dieu|Seigneur]] des armées célestes.
 ## Chapitre 3
+### Versets 1 à 5
+1) Eh bien [[Dieu|je]] vais envoyer [[Dieu|mon]] [[Jean Baptiste|messager]] pour qu’[[Jean Baptiste|il]] aplanisse la route devant [[Dieu|moi]]. Et, soudain, [[Jésus|il]] viendra pour entrer dans son temple, le [[Jésus|Seigneur]] que vous attendez ; c’est l’ange de l’alliance, appelé de vos vœux. Le voici, [[Jésus|il]] arrive, déclare l’[[Dieu|Eternel, le Seigneur des armées célestes]].
+2) Mais qui supportera le jour de [[Jésus|sa]] venue ? Ou qui tiendra quand [[Jésus|il]] apparaîtra ? Car [[Jésus|il]] sera semblable au brasier du fondeur, au savon des blanchisseurs.
+3) [[Jésus|Il]] siégera pour fondre et épurer l’argent ; oui, les descendants de [[Lévi|Lévi]], [[Jésus|il]] les purifiera, [[Jésus|il]] les affinera comme l’or et l’argent, et ils seront alors, pour l’[[Dieu|Eternel]], des hommes qui [[Dieu|lui]] présenteront l’offrande dans les règles.
+4) L’offrande de [[Royaume de Judée|Juda]] et de [[Israël|Jérusalem]] plaira à l’[[Dieu|Eternel]], comme aux jours d’autrefois, aux années de jadis.
+5) Et [[Dieu|je]] viendrai à vous en vue du jugement, et [[Dieu|je]] me hâterai d’être un témoin à charge contre les magiciens, contre les adultères, et contre les parjures, contre ceux qui privent l’ouvrier de son gain, contre ceux qui oppriment la veuve et l’orphelin, et contre ceux qui violent le droit de l’immigré, ceux qui ne [[Dieu|me]] craignent pas, déclare l’[[Dieu|Eternel, le Seigneur des armées célestes]].
 ### Versets 13 à 24
 Intitulé **La fidélité récompensée** par [[Bible#^358f23|BDS]]
 

@@ -10,5 +10,5 @@ La Vulgate contient les livres **Deutérocanonique**, soit des livres ou ajouts 
 - Siracide
 - Baruch
 Inclus dans la Vulgate, mais pas tout le temps car il y a des ajouts dans ces versions par rapport aux [[Tanakh|originales]] :
-- La version grecque du livre d'[[16 - Esther|Esther]]
-- La version grecque du livre de [[27 - Daniel|Daniel]]
+- La version [[Grecs|grecque]] du livre d'[[16 - Esther|Esther]]
+- La version [[Grecs|grecque]] du livre de [[27 - Daniel|Daniel]]

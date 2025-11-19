@@ -763,3 +763,15 @@ Intitulé **Messager d’une bonne nouvelle** par [[Bible#^358f23|BDS]]
     et comme le jardin ╵fait germer ses semences,
     ainsi le [[Seigneur et non seulement sauveur|Seigneur]], l’[[Dieu|Eternel]], ╵va faire germer la justice ╵et la louange
     aux yeux de tous les peuples.
+## Chapitre 66
+### Versets 18 (partie 2) à 24
+Intitulé **Tous les peuples honoreront l’[[Dieu|Eternel]]** par [[Bible#^358f23|BDS]]
+>Ce passage commence par la seconde partie du verset 18 :
+
+18) Voici, [[Dieu|je]] vais venir rassembler tous les peuples et des gens de toutes langues. Ils viendront et verront [[Dieu|ma]] gloire.
+19) [[Dieu|Je]] placerai un signe au milieu d’eux et [[Dieu|j]]’enverrai certains de leurs rescapés vers d’autres peuples, à [[Tarsis|Tarsis]], [[Poul|Poul]] et [[Loud|Loud]], dont les gens bandent l’arc, à [[Toubal (peuple)|Toubal]], à [[Grecs|Yavân]] ; vers les îles et les régions côtières qui sont au loin, qui n’ont pas encore entendu parler de [[Dieu|moi]] et n’ont pas vu [[Dieu|ma]] gloire. Ils feront connaître [[Dieu|ma]] gloire à ces peuples.
+20) Et ils ramèneront, de chez tous les peuples, tous ceux qui sont vos frères sur des chevaux, des chars ou des chariots couverts, sur le dos des mulets ou sur des dromadaires jusqu’à [[Jérusalem|Jérusalem]], à ma montagne sainte, comme une offrande à l’[[Dieu|Eternel]] : ce sera une offrande, dit l’[[Dieu|Eternel]], semblable à celles qu’apportent les [[Israël|Israélites]], dans des récipients purifiés, au temple de l’[[Dieu|Eternel]].
+21) Et même, parmi eux, [[Dieu|j]]’en prendrai certains pour être des prêtres ou des [[Lévi|lévites]], dit l’[[Dieu|Eternel]].
+22) Comme le nouveau ciel et la nouvelle terre que [[Dieu|je]] vais faire subsisteront par-devant [[Dieu|moi]], l’[[Dieu|Eternel]] le déclare, ainsi subsisteront votre postérité et votre nom.
+23) Il adviendra alors que, régulièrement, à chaque nouvelle lune et à chaque sabbat, tous les humains viendront se prosterner devant [[Dieu|moi]], déclare l’[[Dieu|Eternel]].
+24) Et quand ils sortiront, ils verront les cadavres des hommes qui se sont révoltés contre [[Dieu|moi]] ; et le ver qui rongera ces hommes ne mourra pas, le feu qui les dévorera ne s’éteindra jamais, et ils feront horreur à tout être vivant.

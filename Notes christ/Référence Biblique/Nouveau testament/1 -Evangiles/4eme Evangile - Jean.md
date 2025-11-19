@@ -206,7 +206,7 @@ Intitulé **La mort de [[Jésus]]** par [[Bible#^358f23|BDS]]
 18) Celui-ci, portant lui-même sa croix, sortit de la ville pour se rendre à l’endroit appelé « le lieu du crâne » (en hébreu : « [[Golgotha|Golgotha]] »).
 19) C’est là qu’ils [[Jésus|le]] crucifièrent, lui et deux autres. On plaça une croix de chaque côté de la sienne. Celle de [[Jésus]] était au milieu.
 20) [[Pilate]] fit placer un écriteau que l’on fixa au-dessus de la croix. Il portait cette inscription : « [[Jésus]] de [[Nazareth]], le roi des Juifs ».
-21) Comme l’endroit où [[Jésus]] avait été crucifié se trouvait près de la ville, beaucoup de Juifs lurent l’inscription écrite en hébreu, en latin et en grec.
+21) Comme l’endroit où [[Jésus]] avait été crucifié se trouvait près de la ville, beaucoup de Juifs lurent l’inscription écrite en hébreu, en [[Romains|latin]] et en [[Grecs|grec]].
 22) Les chefs des prêtres protestèrent auprès de [[Pilate]] : Il ne fallait pas mettre « le roi des Juifs », mais « Cet homme a dit : Je suis le roi des Juifs ».
 23) [[Pilate]] répliqua : Ce que j’ai écrit restera écrit.
 24) Lorsque les [[Romains|soldats]] eurent crucifié [[Jésus]], ils prirent ses vêtements et en firent quatre parts, une pour chacun d’eux. Restait la tunique qui était sans couture, tissée tout d’une seule pièce de haut en bas.

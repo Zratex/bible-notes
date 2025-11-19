@@ -1,1 +1,1 @@
-==Théophile :== Au delà d'un prénom, il désigne en grecque les **aimés de [[Dieu]]**
+==Théophile :== Au delà d'un prénom, il désigne en [[Grecs|grecque]] les **aimés de [[Dieu]]**

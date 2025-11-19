@@ -180,7 +180,7 @@ Intitulé **Vrai et faux disciple** par [[Bible#^358f23|BDS]]
 ## Chapitre 7
 ### Versets 18 à 35
 Intitulé **[[Jésus]] et [[Jean Baptiste]]** par [[Bible#^358f23|BDS]]
-Ce passage fait écho à `Matthieu 11:2-11` et `Matthieu 11:16-19`
+>Ce passage fait écho à [[1er Evangile - Matthieu#Versets 2 à 19|Matthieu 11:2-11]] et [[1er Evangile - Matthieu#Versets 2 à 19|Matthieu 11:16-19]]
 
 18) [[Jean Baptiste|Jean]] fut informé par ses disciples de tout ce qui se passait. Il appela alors deux d’entre eux
 19) et les envoya auprès du [[Seigneur et non seulement sauveur|Seigneur]] pour demander : Es-tu celui qui devait venir, ou bien devons-nous en attendre un autre ?
@@ -206,6 +206,14 @@ Ce passage fait écho à `Matthieu 11:2-11` et `Matthieu 11:16-19`
 33) **En effet, [[Jean Baptiste|Jean-Baptiste]] est venu, [[Jean Baptiste|il]] ne mangeait pas de pain, [[Jean Baptiste|il]] ne buvait pas de vin. Qu’avez-vous dit alors ? « [[Jean Baptiste|Il]] a un démon en lui ! ».**
 34) **[[Jésus|Le Fils de l'homme]] est venu, [[Jésus|il]] mange et boit, et vous vous écriez : « Cet homme ne pense qu’à faire bonne chère et à boire du vin, [[Jésus|il]] est l’ami des collecteurs d’impôts et des pécheurs notoires. »**
 35) **Cependant, la [[Sagesse|sagesse]] de [[Dieu]] est reconnue comme telle par ceux qui la reçoivent.**
+## Chapitre 8
+### Versets 16 à 18
+Intitulé **La parabole de la lampe** par [[Bible#^358f23|BDS]]
+>Ce passage fait écho à [[2nd Evangile - Marc#Versets 21 à 25|Marc 4:21-25]] :
+
+16) **Personne n’allume une lampe pour la cacher sous un récipient, ou la mettre sous un lit ; on la place, au contraire, sur un pied de lampe pour que ceux qui entrent dans la pièce voient la lumière.**
+17) **Tout ce qui est caché maintenant finira par être mis en lumière, et tout ce qui demeure secret sera finalement connu et paraîtra au grand jour.**
+18) **Faites donc attention à la manière dont vous écoutez, car à celui qui a, on donnera encore davantage ; mais à celui qui n’a pas, on ôtera même ce qu’il croit avoir.**
 ## Chapitre 9
 ### Versets 18 à 22
 Intitulé **Qui est vraiment [[Jésus]] ?** par [[Bible#^358f23|BDS]]
@@ -225,6 +233,16 @@ Intitulé **Comment suivre [[Jésus]]** par [[Bible#^358f23|BDS]]
 25) **Si un homme parvient à posséder le monde entier, à quoi cela lui sert-il s’il se perd ou se détruit lui-même ?**
 26) **Si quelqu’un a honte de [[Jésus|moi]] et de [[Jésus|mes]] paroles, le [[Jésus|Fils de l’homme]], à [[Jésus|son]] tour, aura honte de lui quand il viendra dans sa gloire, dans celle du [[Dieu|Père]] et des saints anges.**
 27) **[[Jésus|Je]] vous l’assure, quelques-uns de ceux qui sont ici présents ne mourront pas avant d’avoir vu le règne de [[Dieu|Dieu]].**
+### Versets 46 à 50
+Intitulé **L’accueil des « petits »** par [[Bible#^358f23|BDS]]
+>Ces 3 prochains versets font écho à [[1er Evangile - Matthieu#Versets 1 à 14|Matthieu 18:1-5]] et [[2nd Evangile - Marc#Versets 33 à 50|Marc 9:33-37]] :
+
+46) Il s’éleva entre eux une discussion : il s’agissait de savoir lequel était le plus grand parmi eux.
+47) [[Jésus|Jésus]], qui connaissait les pensées qu’ils avaient dans leur cœur, prit un petit enfant par la main, le plaça à côté de [[Jésus|lui]]
+48) et leur dit : **Celui qui accueille cet enfant en [[Jésus|mon]] nom m’accueille [[Jésus|moi-même]], et celui qui [[Jésus|m]]’accueille, accueille aussi celui qui [[Dieu|m]]’a envoyé. Car celui qui est le plus petit parmi vous, c’est celui-là qui est grand.**
+>La suite de ce passage fait écho à [[2nd Evangile - Marc#Versets 33 à 50|Marc 9:38-40]] :
+49) [[Jean|Jean]] prit la parole et dit : [[Jésus|Maître]], nous avons vu quelqu’un qui chassait les démons en [[Jésus|ton]] nom, et nous lui avons dit de ne plus le faire, parce qu’il ne [[Jésus|te]] suit pas avec nous.
+50) **– Ne l’en empêchez pas,** lui répondit [[Jésus|Jésus]], **car celui qui n’est pas contre vous est pour vous.**
 ### Versets 51 à 56
 Intitulé **Jésus se dirige vers [[Jérusalem]] : L'opposition en [[Samarie]]** par [[Bible#^358f23]|BDS]]
 #### Versets 54 à 56
@@ -306,6 +324,84 @@ Intitulé **L'entrée dans le [[Royaume de Dieu|royaume]]** par [[Bible#^358f23|
 28) **C’est là qu’il y aura des pleurs et d’amers regrets, quand vous verrez [[Abraham|Abraham]], [[Isaac|Isaac]] et [[Jacob|Jacob]] et tous les prophètes dans le [[Royaume de Dieu|royaume de Dieu]], tandis que vous-mêmes vous en serez exclus.**
 29) **Des hommes viendront de l’Orient et de l’Occident, du Nord et du Midi, et prendront place à table dans le [[Royaume de Dieu|royaume de Dieu]].**
 30) **Alors, certains de ceux qui sont les derniers seront les premiers ; et certains de ceux qui sont les premiers seront les derniers.**
+## Chapitre 14
+### Versets 25 à 35
+Intitulé **S’engager en pleine conscience** par [[Bible#^358f23|BDS]]
+
+25) Comme de grandes foules accompagnaient [[Jésus|Jésus, il]] se retourna vers ceux qui le suivaient et leur dit :
+26) **Si quelqu’un vient à [[Jésus|moi]] et n’est pas prêt à renoncer à son père, sa mère, sa femme, ses enfants, ses frères, ses sœurs, et même à sa propre vie, il ne peut être mon disciple.**
+27) **Celui qui ne porte pas sa croix, et qui ne [[Jésus|me]] suit pas, ne peut être mon disciple.**
+28) **En effet, si l’un de vous veut bâtir une tour, est-ce qu’il ne prend pas d’abord le temps de s’asseoir pour calculer ce qu’elle lui coûtera et de vérifier s’il a les moyens de mener son entreprise à bonne fin ?**
+29) **Sans quoi, s’il n’arrive pas à terminer sa construction après avoir posé les fondations, il risque d’être la risée de tous les témoins de son échec.**
+30) **« Regardez, diront-ils, en voilà un qui a commencé à construire et qui n’a pas pu terminer ! »**
+31) **Ou bien, supposez qu’un roi soit sur le point de partir en guerre contre un autre. Ne prendra-t-il pas le temps de s’asseoir pour examiner s’il peut, avec dix mille hommes, affronter celui qui est sur le point de marcher contre lui avec vingt mille ?**
+32) **S’il se rend compte qu’il en est incapable, il lui enverra une délégation, pendant que l’ennemi est encore loin, pour négocier la paix avec lui.**
+33) **Il en est de même pour vous ; celui qui n’est pas prêt à abandonner tout ce qu’il possède, ne peut pas être [[Jésus|mon]] disciple.**
+>La suite de ce passage fait écho à [[2nd Evangile - Marc#Versets 33 à 50|Marc 9:50]] :
+34) **Le sel est une bonne chose, mais s’il devient insipide, comment lui rendra-t-on sa saveur ?**
+35) **On ne peut plus l’utiliser, ni pour la terre, ni pour le fumier. Il n’y a plus qu’à le jeter. Celui qui a des oreilles pour entendre, qu’il entende !**
+
+## Chapitre 15
+Intitulé **Perdus et retrouvés** par [[Bible#^358f23|BDS]]
+>Ce passage fait écho à [[1er Evangile - Matthieu#Versets 1 à 14|Matthieu 18:12-14]]
+
+1) Les collecteurs d’impôts et autres pécheurs notoires se pressaient tous autour de [[Jésus|Jésus]], avides d’écouter [[Jésus|ses]] paroles.
+2) Les pharisiens et les spécialistes de la [[La Loi de Dieu|Loi]] s’en indignaient et disaient : [[Jésus|Cet individu]] fréquente des pécheurs notoires et s’attable avec eux  !
+3) Alors [[Jésus|Jésus]] leur répondit par cette parabole :
+4) **Si l’un de vous possède cent brebis, et que l’une d’elles vienne à se perdre, n’abandonnera-t-il pas les quatre-vingt-dix-neuf autres au pâturage pour aller à la recherche de celle qui est perdue jusqu’à ce qu’il l’ait trouvée ?**
+5) **Et quand il l’a retrouvée, avec quelle joie il la charge sur ses épaules pour la ramener !**
+6) **Aussitôt rentré chez lui, il appelle ses amis et ses voisins et leur dit : « Réjouissez-vous avec moi, car j’ai retrouvé ma brebis qui était perdue. »**
+7) **[[Jésus|Je]] vous assure qu’il en est de même au ciel : il y aura plus de joie pour un seul pécheur qui change profondément, que pour quatre-vingt-dix-neuf justes qui n’ont pas besoin de changer.**
+8) **Ou bien, supposez qu’une femme ait dix pièces d’argent et qu’elle en perde une, ne s’empressera-t-elle pas d’allumer une lampe, de balayer sa maison et de chercher soigneusement dans tous les recoins jusqu’à ce qu’elle ait retrouvé sa pièce ?**
+9) **Et quand elle l’a trouvée, elle rassemble ses amies et ses voisines et leur dit : « Réjouissez-vous avec moi, j’ai retrouvé la pièce que j’avais perdue. »**
+10) **De même, [[Jésus|je]] vous le déclare, il y a de la joie parmi les anges de [[Dieu|Dieu]] pour un seul pécheur qui change.**
+11) Puis il poursuivit : **Un homme avait deux fils.**
+12) **Le plus jeune lui dit : « Mon père, donne-moi ma part d’héritage, celle qui doit me revenir. »**
+    **Et le père fit le partage de ses biens entre ses fils.**
+13) **Quelques jours plus tard, le cadet vendit tout ce qu’il avait reçu et s’en alla dans un pays lointain. Là, il gaspilla sa fortune en menant grande vie.**
+14) **Quand il eut tout dépensé, une grande famine survint dans ce pays-là et il commença à manquer du nécessaire.**
+15) **Alors il alla se faire embaucher par l’un des propriétaires de la contrée. Celui-ci l’envoya dans les champs garder les porcs.**
+16) **Le jeune homme aurait bien voulu apaiser sa faim avec les caroubes que mangeaient les bêtes, mais personne ne lui en donnait.**
+17) **Alors, il se mit à réfléchir sur lui-même et se dit : « Tous les ouvriers de mon père peuvent manger autant qu’ils veulent, alors que moi, je suis ici à mourir de faim !**
+18) **Je vais me mettre en route, j’irai trouver mon père et je lui dirai : Mon père, j’ai péché contre [[Dieu|Dieu]] et contre toi.**
+19) **Je ne mérite plus d’être considéré comme ton fils. Accepte-moi comme l’un de tes ouvriers. »**
+20) **Il se mit donc en route pour se rendre chez son père. Comme il se trouvait encore à une bonne distance de la maison, son père l’aperçut et fut pris d’une profonde pitié pour lui. Il courut à la rencontre de son fils, se jeta à son cou et l’embrassa longuement.**
+21) **Le fils lui dit : « Mon père, j’ai péché contre [[Dieu|Dieu]] et contre toi, je ne mérite plus d’être considéré comme ton fils… »**
+22) **Mais le père dit à ses serviteurs : « Allez vite chercher un habit, le meilleur que vous trouverez, et mettez-le-lui ; passez-lui une bague au doigt et chaussez-le de sandales.**
+23) **Amenez le veau que nous avons engraissé et tuez-le. Nous allons faire un grand festin et nous réjouir,**
+24) **car voici, mon fils était mort, et il est revenu à la vie ; il était perdu, et je l’ai retrouvé. »
+    Et ils commencèrent à festoyer dans la joie.**
+25) **Pendant ce temps, le fils aîné travaillait aux champs. Sur le chemin du retour, quand il arriva près de la maison, il entendit de la musique et des danses.**
+26) **Il appela un des serviteurs et lui demanda ce qui se passait.**
+27) **Le garçon lui répondit : « C’est ton frère qui est de retour. Ton père a tué le veau gras en son honneur parce qu’il l’a retrouvé sain et sauf. »**
+28) **Alors le fils aîné se mit en colère et refusa de franchir le seuil de la maison. Son père sortit et l’invita à entrer.**
+29) **Mais lui répondit : « Cela fait tant et tant d’années que je suis à ton service ; jamais je n’ai désobéi à tes ordres. Et pas une seule fois tu ne m’as donné un chevreau pour festoyer avec mes amis.**
+30) **Mais quand celui-là revient, “ton fils” qui a mangé ta fortune avec des prostituées, pour lui, tu tues le veau gras !**
+31) **– Mon enfant, lui dit le père, tu es constamment avec moi, et tous mes biens sont à toi ;**
+32) **mais il fallait bien faire une fête et nous réjouir, puisque ton frère que voici était mort et qu’il est revenu à la vie, puisqu’il était perdu et voici qu’il est retrouvé. »**
+## Chapitre 16
+### Versets 16 à 18
+Intitulé **La [[La Loi de Dieu|Loi]] et le [[Royaume de Dieu|royaume]]** par [[Bible#^358f23|BDS]]
+>Ce prochain verset fait écho à [[1er Evangile - Matthieu#Versets 2 à 19|Matthieu 11:12-13]] :
+
+16) **L’époque de la [[La Loi de Dieu|Loi]] et des prophètes va jusqu’à [[Jean Baptiste|Jean-Baptiste]] ; depuis qu’[[Jean Baptiste|il]] est venu, le [[Royaume de Dieu|royaume de Dieu]] est annoncé, et chacun use de violence pour y entrer.**
+>Ce prochain verset fait écho à [[1er Evangile - Matthieu#Versets 13 à 20|Matthieu 5:18]] :
+17) **Il serait plus facile au ciel et à la terre de disparaître qu’à un trait de lettre de la [[La Loi de Dieu|Loi]].**
+>Ce prochain verset fait écho à [[1er Evangile - Matthieu#Versets 21 à 48|Matthieu 5:32]] :
+18) **Celui qui divorce d’avec sa femme et se remarie commet un adultère, et celui qui épouse une femme divorcée d’avec son mari commet un adultère.**
+## Chapitre 17
+### Versets 1 à 4
+Intitulé **Les rapports entre frères** par [[Bible#^358f23|BDS]]
+>Ces 3 prochains versets font écho à [[1er Evangile - Matthieu#Versets 1 à 14|Matthieu 18:6-7]] et [[2nd Evangile - Marc#Versets 33 à 50|Marc 9:42]] :
+
+1) [[Jésus|Jésus]] dit à [[Jésus|ses]] disciples : **Il est inévitable qu’il y ait pour les hommes des occasions de chute, mais malheur à celui qui crée de telles occasions.**
+2) **Mieux vaudrait pour lui être précipité dans le lac avec une pierre de meule attachée au cou que de provoquer la chute de l’un de ces petits.**
+3) **Prenez donc bien garde à vous-mêmes !**
+   >La suite de ce passage fait écho à [[1er Evangile - Matthieu#Versets 15 à 35|Matthieu 18:21-22]] :
+
+	**Si ton frère s’est rendu coupable d’une faute, reprends-le et, s’il change d’attitude  , pardonne-lui.**
+4) **Et même s’il se rend coupable à ton égard sept fois au cours de la même journée, et que sept fois il vienne te trouver en disant qu’il change d’attitude, pardonne-lui.**
+
 ## Chapitre 19
 ### Versets 11 à 27
 Intitulé **La parabole de l'argent à faire fructifier** par [[Bible#^358f23|BDS]]

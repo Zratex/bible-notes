@@ -84,6 +84,17 @@ Intitulé **Les prophètes** par [[Bible#^358f23|BDS]]
 20) Mais si un prophète a l’audace de prononcer en mon nom un message dont je ne l’ai pas chargé, ou s’il se met à parler au nom d’autres divinités, il sera mis à mort.
 21) Peut-être vous demanderez-vous : « Comment saurons-nous qu’une prophétie ne vient pas de l’[[Dieu|Eternel]] ? »
 22) Sachez donc que si le prophète annonce de la part de l’[[Dieu|Eternel]] une chose qui ne se réalise pas, si sa parole reste sans effet, c’est que son message ne vient pas de l’[[Dieu|Eternel]], c’est par présomption que le prophète l’aura prononcé : vous ne vous laisserez donc pas impressionner par lui.
+## Chapitre 19
+### Versets 15 à 21
+Intitulé **Les témoins d'un crime ou d'un délit** par [[Bible#^358f23|BDS]]
+
+15) La déposition d’un seul témoin ne suffira pas pour établir la culpabilité d’un homme accusé d’un crime, d’un délit ou d’une faute quelle qu’elle soit, on ne pourra instruire l’affaire qu’après avoir entendu les déclarations de deux ou de trois témoins.
+16) Si un témoin malveillant accuse quelqu’un d’un méfait,
+17) les deux parties comparaîtront devant l’[[Dieu|Eternel]], devant les prêtres et les juges qui seront en fonction à ce moment-là.
+18) Les juges feront une enquête sérieuse. S’ils découvrent que le témoin a menti et qu’il a fait une fausse déposition contre son frère,
+19) vous lui infligerez la peine qu’il voulait faire subir à celui-ci. Ainsi, vous ferez disparaître le mal du milieu de vous.
+20) Les autres, qui l’apprendront, en éprouveront de la crainte et l’on n’osera plus commettre un tel méfait parmi vous.
+21) Vous ne vous laisserez pas apitoyer, la règle sera : vie pour vie, œil pour œil, dent pour dent, main pour main et pied pour pied.
 ## Chapitre 22
 ### Versets 5 à 12
 Intitulé **Contre les mélanges et autres lois** par [[Bible#^358f23|BDS]]
@@ -119,6 +130,14 @@ Intitulé **Les relations sexuelles illicites** par [[Bible#^358f23|BDS]]
 27) Puisque c’est en plein champ que l’homme l’a rencontrée, elle aura eu beau crier, personne n’est venu à son secours.
 28) Si un homme rencontre une jeune fille non fiancée, qu’il s’empare d’elle et couche avec elle et qu’on les prenne sur le fait,
 29) l’homme qui a couché avec elle versera au père de la jeune fille cinquante pièces d’argent et devra l’épouser puisqu’il l’a violée. De plus, il ne pourra jamais la renvoyer tant qu’il vivra.
+## Chapitre 24
+### Versets 1 à 4
+Intitulé **Divorce et remariage** par [[Bible#^358f23|BDS]]
+
+1) Supposons qu’un homme ait épousé une femme et que, plus tard, il cesse de la considérer avec faveur parce qu’il trouve quelque chose d’infâme à lui reprocher. Alors il rédige une lettre de divorce, il la lui remet et la renvoie de chez lui.
+2) Après être partie de chez lui, cette femme se remarie avec un autre homme.
+3) Supposons que ce second mari cesse aussi de l’aimer, qu’il rédige à son tour une lettre de divorce, la lui remette et la renvoie de chez lui, ou supposons qu’il meure.
+4) Dans ce cas, le premier mari qui l’a renvoyée n’aura pas le droit de la reprendre pour femme, car elle est devenue impure pour lui, et ce serait une chose abominable aux yeux de l’[[Dieu|Eternel]]. Vous ne chargerez pas de péché le pays que l’[[Dieu|Eternel]] votre [[Dieu|Dieu]] vous donne en possession.
 ## Chapitre 30
 ### Versets 15 à 20
 Intitulé **La vie et la mort** par [[Bible#^358f23|BDS]]

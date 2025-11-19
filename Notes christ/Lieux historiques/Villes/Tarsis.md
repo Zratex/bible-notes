@@ -1,2 +1,2 @@
-Sa localisation est imprécise, mais cette ville antique se situerais soit dans l'actuel ville de Tarse en Turquie, soit dans l'actuel ville de Tartessos en Espagne.
+Sa localisation est imprécise, mais cette ville antique se situerais soit dans l'actuel ville de Tarse en [[Asie mineure|Asie mineure]], soit plutôt dans l'actuel ville de Tartessos en [[Espagne|Espagne]].
 C'est une ville lointaine où l'échange de matériaux était souvent réalisé, un peu comme une colonie minière.

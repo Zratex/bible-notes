@@ -1,1 +1,1 @@
-Région [[Romains|Romaines]] correspondant à la région grecque environnante d'[[Athènes]]
+Région [[Romains|Romaines]] correspondant à la région [[Grecs|grecque]] environnante d'[[Athènes]]

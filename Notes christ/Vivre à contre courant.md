@@ -27,24 +27,22 @@ Si **nous ne sommes pas libre à cause de la [[La Loi de Dieu|loi]], c'est parce
 - [[Jésus]] nous a montré que cela est possible
 - Le [[Saint-Esprit]] nous appuie pour y arriver
 
-[[1er Evangile - Matthieu#Versets 1 à 20|Matthieu 7:13]] : [[Jésus]] à lui même dit que beaucoup se perdent, mais si on ne les suis pas, on passe par la porte étroite, et par définition c'est pas simple
+[[1er Evangile - Matthieu#Versets 1 à 20|Matthieu 7:13]] : [[Jésus]] à lui même dit que beaucoup se perdent, mais si on ne suis pas le mouvement de la foule/majorité, de ce fait on passe par la porte étroite, et par définition c'est pas simple
 Mais ça vaut la peine de tenir jusqu'au bout : [[1er Evangile - Matthieu#Versets 1 à 20|Matthieu 7:14]]
--> il déclare ça après qu'il ait expliqué comment on doit se conduire (béatitudes)
->Pour la vie il faut qu'il y ait mort en amont
-Et après ça on doit rester sur le sentier tracé par [[Jésus]]
+-> [[Jésus]] déclare ça après le sermon sur la montagne, ce qui inclus notamment qu'il ait expliqué comment on doit se conduire (béatitudes : [[1er Evangile - Matthieu#Versets 3 à 12|Matthieu 5:3-12]])
 
-`Matthieu 5:11` malheur à nous si on dit de mauvaise chose à notre propos, mais heureux si ils disent de mauvaises choses à cause de [[Jésus]]
-Celà reflète qu'on suis bien [[Jésus]], et au bout d'un moment ça paie
-À noter : celui qui dit non pousse la personne en face à réfléchir, et donc peut impacter son cœur car elle peut percevoir qu'on est solide/intègre.
->Comparaison des saumons remontant le courant pour donner la vie
+[[1er Evangile - Matthieu#Versets 3 à 12|Matthieu 5:11]] : malheur à nous si on dit de mauvaise chose à notre propos, mais **heureux si ils disent de mauvaises choses à cause de [[Jésus]]** car cela reflète qu'on suis bien [[Jésus]], et au bout d'un moment ça paie
+<u>À noter :</u> celui qui dit non sur une façon d'agir par exemple, pousse la personne en face à réfléchir, et donc peut impacter son cœur car elle peut percevoir qu'on est solide/intègre.
 
-[[Paul]] avait dit qu'il a combattu le bon combat
--> ça veut donc dire qu'il y a des oppositions
+[[Paul]] avait dit qu'il a combattu le bon combat -> ça veut donc dire qu'en allant à contre courant il y a des oppositions
+## En contre courant pour donner la vie
+**Pour qu'il y ait vie il faut qu'il y ait mort en amont, en particulier de notre chair**. Et après ça on doit rester sur le sentier tracé par [[Jésus]]
+<u>Comparaison :</u> les saumons remontent les rivières pour donner la vie
 
-`Matthieu 5:44` : c'est contraire à notre nature humaine, mais [[Jésus]] nous ordonne à vivre comme ça
--> mais si il la dit ça veut dire que c'est possible, car [[Dieu]] nous donne cette force
+[[1er Evangile - Matthieu#Versets 21 à 48|Matthieu 5:44]] : aimer ses ennemis c'est contraire à notre nature humaine, mais [[Jésus]] nous ordonne à vivre comme ça
+-> mais si [[Jésus]] la dit ça veut dire que c'est possible, car [[Dieu]] nous donne cette force
 
-`Luc 9:48` : ce n'est pas logique du POV humain, mais [[Jésus]] a dit la vérité : `Matthieu 23:11` même si c'est l'inverse de la conception de ce monde
+[[3eme Evangile - Luc#Versets 46 à 50|Luc 9:48]] : ce n'est pas logique du POV humain, mais [[Jésus]] a dit la vérité : `Matthieu 23:11` même si c'est l'inverse de la conception de ce monde
 
 [[Jésus]] nous a envoyé le [[Saint-Esprit]] pour pouvoir faire celà chaques jours
 Et grâce à lui, nous sommes appelés à être vainqueur : `Romains 8:13-15`

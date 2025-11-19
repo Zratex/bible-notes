@@ -31,7 +31,7 @@ Ce que cela implique : **On peut croire la vérité, mais suivre le mensonge**.
 - [[3eme Evangile - Luc]]
 	- Focus :
 		- Description de l'homme et le fils de l'homme, avec la compassion
-	- Cible : les grecques
+	- Cible : les [[Grecs|grecs]]
 	- Écrit à [[Césarée]], port à portée internationale
 - [[4eme Evangile - Jean]]
 	- Focus :

@@ -13,8 +13,8 @@ L'église catholique a un pouvoir politique incontesté en Europe, et cela s'ill
 
 Mais cette période sera le début des traductions en langue locale de la [[Bible]]
 -> Jusque là, la [[Bible]] était basée sur qu'une seule traduction :
-- En Orient principalement : [[Septante]] en grecque
-- En Occident principalement : [[Vulgate]] en latin
+- En Orient principalement : [[Septante]] en [[Grecs|grecque]]
+- En Occident principalement : [[Vulgate]] en [[Romains|latin]]
 Et à cause de la situation qui avait causé le chaos des textes précédents la création de la [[Vulgate]] par [[Jérôme de Stridon]], personne n'osait traduire ces textes en langue locale pendant plusieurs siècles.
 ### 1.2 Renaissance et humanisme
 ```

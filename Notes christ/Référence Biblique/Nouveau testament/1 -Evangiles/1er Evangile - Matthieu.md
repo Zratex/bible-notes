@@ -70,10 +70,18 @@ Intitulé **Les béatitudes** par [[Bible#^358f23|BDS]]
    **car ils verront [[Dieu]].**
 9) **Heureux ceux qui répandent autour d’eux la paix,**
    **car [[Dieu]] les reconnaîtra pour ses fils.**
-10) **Heureux ceux qui sont opprimés pour la justice,**
-**car le royaume des cieux leur appartient.**
-11) **Heureux serez-vous quand les hommes vous insulteront et vous persécuteront, lorsqu’ils répandront toutes sortes de calomnies sur votre compte à cause de [[Jésus|moi]].**
-10) **Oui, réjouissez-vous alors et soyez heureux, car une magnifique récompense vous attend dans les cieux. Car vous serez ainsi comme les prophètes d’autrefois : eux aussi ont été persécutés avant vous de la même manière.**
+10) **Heureux ceux qui sont opprimés pour la justice,**
+	**car le royaume des cieux leur appartient.**
+11) **Heureux serez-vous quand les hommes vous insulteront et vous persécuteront, lorsqu’ils répandront toutes sortes de calomnies sur votre compte à cause de [[Jésus|moi]].**
+12) **Oui, réjouissez-vous alors et soyez heureux, car une magnifique récompense vous attend dans les cieux. Car vous serez ainsi comme les prophètes d’autrefois : eux aussi ont été persécutés avant vous de la même manière.**
+### Versets 13 à 20
+Intitulé **Témoins** par [[Bible#^358f23|BDS]]
+>Ce passage fait référence à [[2nd Evangile - Marc#Versets 33 à 50|Marc 9:50]], [[2nd Evangile - Marc#Versets 21 à 25|Marc 4:21]] et [[3eme Evangile - Luc#Versets 25 à 35|Luc 14:34-35]] :
+
+13) **Vous êtes le sel de la terre. Si ce sel perd sa saveur, avec quoi la salera-t-on? Ce sel ne vaut plus rien : il n’est bon qu’à être jeté dehors et piétiné.**
+14) **Vous êtes la lumière du monde. Une ville au sommet d’une colline n’échappe pas aux regards.**
+15) **Il en est de même d’une lampe : si on l’allume, ce n’est pas pour la mettre sous une mesure à grains : au contraire, on la fixe sur un pied de lampe pour qu’elle éclaire tous ceux qui sont dans la maison.**
+16) **C’est ainsi que votre lumière doit briller devant tous les hommes, pour qu’ils voient le bien que vous faites et qu’ils en attribuent la gloire à votre [[Dieu|Père céleste]].**
 ### Versets 21 à 48
 Intitulé **La loi de [[Jésus|Jésus]]** par [[Bible#^358f23|BDS]]
 >Ces 6 prochains versets font écho à [[2nd Evangile - Marc#Versets 20 à 26|Marc 11:25]] et [[3eme Evangile - Luc#Versets 54 à 59|Luc 12:57-59]] :
@@ -84,6 +92,32 @@ Intitulé **La loi de [[Jésus|Jésus]]** par [[Bible#^358f23|BDS]]
 24) **laisse là ton offrande devant l’autel, et va d’abord te réconcilier avec ton frère ; puis tu reviendras présenter ton offrande.**
 25) **Si tu es en conflit avec quelqu’un, dépêche-toi de t’entendre avec ton adversaire pendant que tu es encore en chemin avec lui. Sinon, ton adversaire remettra l’affaire entre les mains du juge, qui fera appel aux huissiers de justice, et tu seras mis en prison.**
 26) **Et là, vraiment, [[Jésus|je]] te l’assure : tu n’en sortiras pas avant d’avoir remboursé jusqu’au dernier centime.**
+>Ces 4 prochains versets font écho à [[1er Evangile - Matthieu#Versets 1 à 14|Matthieu 18:8-9]], [[2nd Evangile - Marc#Versets 33 à 50|Marc 9:43]] et [[2nd Evangile - Marc#Versets 33 à 50|Marc 9:47-48]] :
+27) **Vous avez appris qu’il a été dit : *[[2 - Exode#Versets 1 à 17|Tu ne commettras pas d’adultère]]*.**
+28) **Eh bien, moi [[Jésus|je]] vous dis : Si quelqu’un jette sur une femme un regard chargé de désir, il a déjà commis adultère avec elle dans son cœur.**
+29) **Par conséquent, si ton œil droit te fait tomber dans le péché, arrache-le et jette-le au loin, car il vaut mieux pour toi perdre un de tes organes que de voir ton corps entier précipité en enfer.**
+30) **Si ta main droite cause ta chute, coupe-la et jette-la au loin. Il vaut mieux pour toi perdre un de tes membres que de voir tout ton corps jeté en enfer.**
+>Ces 7 prochains versets font écho à [[1er Evangile - Matthieu#Versets 1 à 12|Matthieu 19:7-9]], [[2nd Evangile - Marc#Versets 1 à 12|Marc 10:11-12]] et [[3eme Evangile - Luc#Versets 16 à 18|Luc 16:18]] :
+31)  **Il a aussi été dit : *[[5 - Deutéronome#Versets 1 à 4|Si quelqu’un divorce d’avec sa femme, il doit le lui signifier par une déclaration écrite]]*.**
+32) **Eh bien, moi, [[Jésus|je]] vous dis : Celui qui divorce d’avec sa femme – sauf en cas d’immoralité sexuelle – l’expose à devenir adultère, et celui qui épouse une femme divorcée commet lui-même un adultère.**
+33) **Vous avez encore appris qu’il a été dit à nos ancêtres : *[[3 - Lévitique#Chapitre 19|Tu ne rompras pas ton serment]] ; [[4 - Nombres#Chapitre 30|ce que tu as promis par serment devant le Seigneur, tu l’accompliras]]*.**
+34) **Eh bien, moi [[Jésus|je]] vous dis de ne pas faire de serment du tout. Ne dites pas : « Je le jure par le ciel », car le ciel, c’est le trône de [[Dieu|Dieu]].**
+35) **Ou : « J’en prends la terre à témoin », car elle est l’escabeau où [[Dieu|Dieu]] pose ses pieds. Ou : « Je le jure par [[Jérusalem|Jérusalem]]  ; », car elle est la ville de [[Dieu|Dieu, le grand Roi]].**
+36) **Ne dites pas davantage : « Je le jure sur ma tête », car tu ne peux pas rendre un seul de tes cheveux blanc ou noir.**
+37) **Dites simplement « oui » si c’est oui, « non » si c’est non. Tous les serments qu’on y ajoute viennent du [[Satan|diable]].**
+>Ces 5 prochains versets font écho à [[3eme Evangile - Luc#Versets 27 à 45|Luc 6:29-30]] :
+38) **Vous avez appris qu’il a été dit : *[[5 - Deutéronome#Versets 15 à 21|œil pour œil, dent pour dent]].**
+39) **Eh bien, moi [[Jésus|je]] vous dis : Ne résistez pas à celui qui vous veut du mal ; au contraire, si quelqu’un te gifle sur la joue droite, tends-lui aussi l’autre.**
+40) **Si quelqu’un veut te faire un procès pour avoir ta chemise, ne l’empêche pas de prendre aussi ton vêtement.**
+41) **Et si quelqu’un te réquisitionne pour porter un fardeau sur un kilomètre, porte-le sur deux kilomètres avec lui.**
+42) **Donne à celui qui te demande, ne tourne pas le dos à celui qui veut t’emprunter quelque chose.**
+>La suite de ce passage fait écho à [[3eme Evangile - Luc#Versets 27 à 45|Luc 6:27-36]] :
+43) **Vous avez appris qu’il a été dit : *[[3 - Lévitique#Chapitre 19|Tu aimeras ton prochain]]* et tu haïras ton ennemi.**
+44) **Eh bien, moi [[Jésus|je]] vous dis : Aimez vos ennemis et priez pour ceux qui vous persécutent.**
+45) **Ainsi vous vous comporterez vraiment comme des enfants de votre [[Dieu|Père céleste]], car [[Dieu|lui, il]] fait luire [[Dieu|son]] soleil sur les méchants aussi bien que sur les bons, et [[Dieu|il]] accorde sa pluie aux justes comme aux injustes.**
+46) **Si vous aimez seulement ceux qui vous aiment, allez-vous prétendre à une récompense pour cela ? Les collecteurs d’impôts eux-mêmes n’en font-ils pas autant ?**
+47) **Si vous ne saluez que vos frères, que faites-vous d’extraordinaire ? Les païens n’agissent-ils pas de même ?**
+48) **Votre [[Dieu|Père céleste]] est parfait. Soyez donc parfaits comme [[Dieu|lui]].**
 ## Chapitre 6
 Seconde partie de ce qui est appelé le "serment sur la montage" par [[Jésus]]
 ### Versets 1 à 18
@@ -208,8 +242,36 @@ Intitulé **[[Jésus|Jésus]] guérit un malade et pardonne ses péchés** par [
 7) Le paralysé se leva et s’en alla chez lui.
 8) En voyant cela, les foules furent saisies de frayeur et rendirent gloire à [[Dieu|Dieu]] qui avait donné aux hommes un si grand pouvoir.
 ## Chapitre 11
+1) Quand [[Jésus|Jésus]] eut achevé de donner ces instructions à [[Jésus|ses]] [[Apôtres|douze disciples]], [[Jésus|il]] partit de là pour enseigner et prêcher dans les villes de la région.
+### Versets 2 à 19
+Intitulé **L’[[Évangile|Évangile]] et la montée de l’opposition - [[Jésus|Jésus]] et [[Jean Baptiste|Jean-Baptiste]]** par [[Bible#^358f23|BDS]]
+>Ce passage fait écho à [[3eme Evangile - Luc#Versets 18 à 35|Luc 7:18-35]] :
+
+2) Du fond de sa prison, [[Jean Baptiste|Jean]] apprit tout ce que [[Jésus|Christ]] faisait. [[Jean Baptiste|Il]] envoya auprès de [[Jésus|lui]] deux de [[Jean Baptiste|ses]] disciples. Ils [[Jésus|lui]] demandèrent :
+3) Es-[[Jésus|tu]] celui qui devait venir, ou bien devons-nous en attendre un autre ?
+4) Et [[Jésus|Jésus]] leur répondit : **Retournez auprès de [[Jean Baptiste|Jean]] et racontez-[[Jean Baptiste|lui]] ce que vous entendez et ce que vous voyez :**
+5) ***[[23 - Esaïe#Chapitre 35|les aveugles voient, les paralysés marchent normalement, les lépreux sont purifiés, les sourds entendent, les morts ressuscitent]], [[23 - Esaïe#Chapitre 61|la Bonne Nouvelle est annoncée aux pauvres]]*.**
+6) **Heureux celui qui ne perdra pas la foi à cause de [[Jésus|moi]] !**
+7) Comme les envoyés s’en allaient, [[Jésus|Jésus]] saisit cette occasion pour parler de [[Jean Baptiste|Jean]] à la foule : **Qu’êtes-vous allés voir au désert ?** leur demanda-t-[[Jésus|il]]. **Un roseau agité çà et là par le vent ?**
+8) **Oui, qui donc êtes-vous allés voir ? Un homme habillé avec élégance ? Généralement, ceux qui sont élégamment vêtus vivent dans les palais royaux.**
+9) **Mais qu’êtes-vous donc allés voir au désert ? Un prophète ? Oui, assurément, et même bien plus qu’un prophète, c’est [[Jésus|moi]] qui vous le dis.**
+10) **Car c’est celui dont il est écrit :**
+    ***[[39 - Malachie#Versets 1 à 5|J’enverrai mon messager devant toi,]]***
+    ***[[39 - Malachie#Versets 1 à 5|il te préparera le chemin.]]***
+11) **Vraiment, [[Jésus|je]] vous l’assure : parmi tous les hommes qui sont nés d’une femme, il n’en a paru aucun de plus grand que [[Jean Baptiste|Jean-Baptiste]]. Et pourtant, le plus petit dans le [[Royaume de Dieu|royaume des cieux]] est plus grand que [[Jean Baptiste|lui]].**
+12) **Depuis l’époque où [[Jean Baptiste|Jean-Baptiste]] a paru jusqu’à cette heure, le [[Royaume de Dieu|royaume des cieux]] se force un passage avec violence, et ce sont les violents qui s’en emparent.**
+13) **En effet, jusqu’à [[Jean Baptiste|Jean]], tous les prophètes et la [[La Loi de Dieu|Loi]] l’ont prophétisé.**
+14) **Et, si vous voulez le croire, c’est [[Jean Baptiste|lui]], cet [[Elie|Elie]] qui devait venir.**
+15) **Celui qui a des oreilles, qu’il entende !**
+16) **A qui donc pourrais-[[Jésus|je]] comparer les gens de notre temps ? Ils sont comme ces enfants assis sur la place du marché qui crient à leurs camarades :**
+17) **Quand nous avons joué de la flûte,**
+    **vous n’avez pas dansé !**
+    **Et quand nous avons chanté des airs de deuil,**
+    **vous ne vous êtes pas lamentés !**
+18) **En effet, [[Jean Baptiste|Jean]] est venu, [[Jean Baptiste|il]] ne mangeait pas et ne buvait pas de vin. Et qu’a-t-on dit ? « [[Jean Baptiste|Il]] a un démon en lui ! »**
+19) **[[Jésus|Le Fils de l’homme]] est venu, [[Jésus|il]] mange et boit, et l’on dit : « [[Jésus|Cet homme]] ne pense qu’à faire bonne chère et à boire du vin, [[Jésus|il]] est l’ami des collecteurs d’impôts et des pécheurs notoires. » Et cependant, la [[Sagesse|sagesse]] de [[Dieu|Dieu]] se fait reconnaître comme telle par les œuvres qu’elle accomplit.**
 ### Versets 20 à 30
-Intitulé **Les reproches aux villes rebelles** par [[Bible#^358f23|BDS]]
+Intitulé **L’[[Évangile|Évangile]] et la montée de l’opposition - Les reproches aux villes rebelles** par [[Bible#^358f23|BDS]]
 
 20) Alors [[Jésus|Jésus]] adressa de sévères reproches aux villes où il avait fait la plupart de ses miracles, parce que leurs habitants n’avaient pas changé :
 21) **Malheur à toi, [[Chorazin|Chorazin]]  ! Malheur à toi, [[Bethsaïda|Bethsaïda]] ! car si les miracles qui se sont produits au milieu de vous avaient eu lieu à [[Tyr|Tyr]] et à [[Sidon|Sidonh]], il y a longtemps que leurs habitants auraient changé et l’auraient manifesté en revêtant des habits de toile de sac et en se couvrant de cendre.**
@@ -275,7 +337,70 @@ Intitulé **Comment suivre [[Jésus]]** par [[Bible#^358f23|BDS]]
 26) **Si un homme parvient à posséder le monde entier, à quoi cela lui sert-il s’il perd sa vie ? Et que peut-on donner pour racheter sa vie ?**
 27) **[[Jésus|Le Fils de l’homme]] viendra dans la gloire de son [[Dieu|Père]], avec ses anges, et alors il donnera à chacun ce que lui auront valu ses actes.**
 28) **Vraiment, [[Jésus|je]] vous l’assure, plusieurs de ceux qui sont ici ne mourront pas avant d’avoir vu [[Jésus|le Fils de l’homme]] venir comme Roi.**
+## Chapitre 18
+Intitulé **La communauté du [[Jésus|Messie]]** par [[Bible#^358f23|BDS]]
+### Versets 1 à 14
+Intitulé **L'accueil des « petits »** par [[Bible#^358f23|BDS]]
+>Ces 5 prochains versets font écho à [[2nd Evangile - Marc#Versets 33 à 50|Marc 9:33-37]] et [[3eme Evangile - Luc#Versets 46 à 50|Luc 9:46-48]] :
+1) A ce moment-là, les disciples s’approchèrent de [[Jésus|Jésus]] et [[Jésus|lui]] demandèrent : Qui donc est le plus grand dans le [[Royaume de Dieu|royaume des cieux]] ?
+2) Alors [[Jésus|Jésus]] appela un petit enfant, le plaça au milieu d’eux,
+3) et dit : **Vraiment, [[Jésus|je]] vous l’assure : si vous ne changez pas et ne devenez pas comme de petits enfants, vous n’entrerez pas dans le [[Royaume de Dieu|royaume des cieux]].**
+4) **C’est pourquoi le plus grand dans le [[Royaume de Dieu|royaume des cieux]] est celui qui s’abaisse comme cet enfant,**
+5) **et celui qui accueille, en [[Jésus|mon]] nom, un enfant comme celui-ci, [[Jésus|m]]’accueille [[Jésus|moi-même]].**
+>Les 4 prochains versets font écho à [[2nd Evangile - Marc#Versets 33 à 50|Marc 9:42-48]] et [[3eme Evangile - Luc#Versets 1 à 4|Luc 17:1-2]] :
+
+6) **Si quelqu’un devait causer la chute de l’un de ces petits qui croient en [[Jésus|moi]], il vaudrait mieux qu’on lui attache au cou une de ces pierres de meule que font tourner les ânes, et qu’on le précipite au fond du lac.**
+7) **Quel malheur pour le monde qu’il y ait tant d’occasions de chute ! Il est inévitable qu’il y en ait, mais malheur à celui qui crée de telles occasions.**
+8) **Si ta main ou ton pied causent ta chute, coupe-les, et jette-les au loin. Car il vaut mieux pour toi entrer dans la vie avec une seule main ou un seul pied que de garder tes deux mains ou tes deux pieds et d’être jeté dans le feu éternel.**
+9) **Si ton œil cause ta chute, arrache-le et jette-le au loin, car il vaut mieux pour toi entrer dans la vie avec un seul œil, que de conserver tes deux yeux et d’être jeté dans le feu de l’enfer.**
+>La suite de ce passage fait écho à [[3eme Evangile - Luc#Chapitre 15|Luc 15:1-7]]
+10) **Faites attention ! Ne méprisez pas un seul de ces petits ; [[Jésus|je]] vous l’assure : leurs anges dans le ciel se tiennent constamment en présence de [[Jésus|mon]] [[Dieu|Père céleste]].**
+11) **[Car [[Jésus|le Fils de l'homme]] est venu chercher et amener au salut ce qui était perdu.]**
+12) **Qu’en pensez-vous ? Si un homme a cent brebis, et que l’une d’elles s’égare, ne laissera-t-il pas les quatre-vingt-dix-neuf autres dans la montagne, pour aller à la recherche de celle qui s’est égarée ?**
+13) **Et s’il réussit à la retrouver, vraiment, [[Jésus|je]] vous l’assure : cette brebis lui causera plus de joie que les quatre-vingt-dix-neuf autres qui ne s’étaient pas égarées.**
+14) **Il en est de même pour votre [[Dieu|Père céleste]] : [[Dieu|il]] ne veut pas qu’un seul de ces petits se perde.**
+### Versets 15 à 35
+Intitulé **La démarche du pardon** par [[Bible#^358f23|BDS]]
+
+15) **Si ton frère s’est rendu coupable [à ton égard], va le trouver en tête-à-tête et convaincs-le de sa faute. S’il t’écoute, tu auras gagné ton frère.**
+16) **S’il ne t’écoute pas, prends avec toi une ou deux autres personnes, *[[5 - Deutéronome#Versets 15 à 21|pour que toute affaire se règle sur les déclarations de deux ou trois témoins]]*.**
+17) **S’il refuse de les écouter, dis-le à l’[[Eglise|Eglise]]. S’il refuse aussi d’écouter l’[[Eglise|Eglise]], considère-le comme un païen et un collecteur d’impôts.**
+18) **Vraiment, [[Jésus|je]] vous l’assure : tout ce que vous interdirez sur la terre sera interdit aux yeux de [[Dieu|Dieu]] et tout ce que vous autoriserez sur la terre sera autorisé aux yeux de [[Dieu|Dieu]].**
+19) **[[Dieu|J]]’ajoute que si deux d’entre vous se mettent d’accord ici-bas au sujet d’un problème pour l’exposer à [[Jésus|mon]] [[Dieu|Père céleste]], [[Jésus|il]] les exaucera.**
+20) **Car là où deux ou trois sont ensemble en [[Jésus|mon]] nom, [[Jésus|je]] suis présent au milieu d’eux.**
+21) Alors [[Simon Pierre|Pierre]] s’approcha de [[Jésus|Jésus]] et [[Jésus|lui]] demanda : [[Jésus|Seigneur]], si [[Simon Pierre|mon]] frère se rend coupable à [[Simon Pierre|mon]] égard, combien de fois devrai-[[Simon Pierre|je]] lui pardonner ? Irai-[[Simon Pierre|je]] jusqu’à sept fois ?
+22) **– Non,** [[Simon Pierre|lui]] répondit [[Jésus|Jésus]], **[[Jésus|je]] ne [[Simon Pierre|te]] dis pas d’aller jusqu’à sept fois, mais jusqu’à soixante-dix fois sept fois.**
+23) **En effet, il en est du [[Royaume de Dieu|royaume des cieux]] comme d’un roi qui voulut régler ses comptes avec ses serviteurs.**
+24) **Lorsqu’il commença à compter, on lui en présenta un qui lui devait soixante millions de pièces d’argent.**
+25) **Comme ce serviteur n’avait pas de quoi rembourser ce qu’il devait, son maître ordonna de le vendre comme esclave avec sa femme et ses enfants ainsi que tous ses biens pour rembourser sa dette.**
+26) **Le serviteur se jeta alors aux pieds du roi et, se prosternant devant lui, supplia : « Sois patient envers moi et je te rembourserai tout. »**
+27) **Pris de pitié pour lui, son maître le renvoya libre, après lui avoir remis toute sa dette.**
+28) **A peine sorti, ce serviteur rencontra un de ses compagnons de service qui lui devait cent pièces d’argent. Il le saisit à la gorge en criant : « Paie-moi ce que tu me dois ! »**
+29) **Son compagnon se jeta à ses pieds et le supplia : « Sois patient envers moi, lui dit-il, et je te rembourserai tout. »**
+30) **Mais l’autre ne voulut rien entendre. Bien plus : il alla le faire jeter en prison en attendant qu’il ait payé tout ce qu’il lui devait.**
+31) **D’autres compagnons de service, témoins de ce qui s’était passé, en furent profondément attristés et allèrent rapporter toute l’affaire à leur maître.**
+32) **Alors celui-ci fit convoquer le serviteur qui avait agi de la sorte : « Serviteur mauvais ! lui dit-il. Tout ce que tu me devais, je te l’avais remis parce que tu m’en avais supplié.**
+33) **Ne devais-tu pas, toi aussi, avoir pitié de ton compagnon, comme j’ai eu pitié de toi ? »**
+34) **Et, dans sa colère, son maître le livra aux bourreaux jusqu’à ce qu’il ait remboursé toute sa dette.**
+35) **Voilà comment [[Jésus|mon]] [[Dieu|Père céleste]] vous traitera, vous aussi, si chacun de vous ne pardonne pas du fond du cœur à son frère.**
 ## Chapitre 19
+Intitulé **La rupture de la grâce** par [[Bible#^358f23|BDS]]
+### Versets 1 à 12
+Intitulé **Controverse sur le divorce** par [[Bible#^358f23|BDS]]
+>Ce passage fait écho à [[2nd Evangile - Marc#Versets 1 à 12|Marc 10:1-12]] :
+
+1) Après avoir donné ces enseignements, [[Jésus|Jésus]] quitta la [[Galilée|Galilée]] et se rendit dans la partie de la [[Judée|Judée]] située de l’autre côté du [[Jourdain|Jourdain]].
+2) De grandes foules [[Jésus|le]] suivaient et [[Jésus|il]] guérit là les malades.
+3) Des pharisiens s’approchèrent de [[Jésus|lui]] avec l’intention de [[Jésus|lui]] tendre un piège. Ils [[Jésus|lui]] demandèrent : Un homme a-t-il le droit de divorcer d’avec sa femme pour une raison quelconque ?
+4) [[Jésus|Il]] leur répondit : **N’avez-vous pas lu dans les [[Torah|Ecritures]] qu’au commencement [[Dieu|le Créateur]] a créé l’être humain homme et femme**
+5) **et qu’[[Dieu|il]] a déclaré : *[[Genèse#Versets 4 à 25|C’est pourquoi l’homme laissera son père et sa mère pour s’attacher à sa femme, et les deux ne feront plus qu’un ?]]***
+6) **Ainsi, ils ne sont plus deux, ils font un. Que l’homme ne sépare donc pas ce que [[Dieu|Dieu]] a uni.**
+7) Mais les pharisiens objectèrent : Pourquoi alors [[Moïse|Moïse]] a-t-il [[5 - Deutéronome#Versets 1 à 4|commandé]] à l’homme de remettre à sa femme un certificat de divorce quand il divorce d’avec elle ?
+8) [[Jésus|Il]] leur répondit : **C’est à cause de la dureté de votre cœur que [[Moïse|Moïse]] vous a permis de divorcer d’avec votre épouse. Mais, au commencement, il n’en était pas ainsi.**
+9) **Aussi, [[Jésus|je]] vous déclare que celui qui divorce et se remarie, commet un adultère – sauf en cas d’immoralité sexuelle.**
+10) Les disciples [[Jésus|lui]] dirent : Si telle est la situation de l’homme par rapport à la femme, il n’est pas intéressant pour lui de se marier.
+11) [[Jésus|Il]] leur répondit : **Tous les hommes ne sont pas capables d’accepter cet enseignement. Cela n’est possible qu’à ceux qui en ont reçu le don. **
+12) **En effet, il y a ceux qui ne peuvent pas avoir de vie sexuelle normale parce que, de naissance, ils en sont incapables ; pour d’autres, il en est ainsi à cause d’une intervention humaine ; d’autres, enfin, y renoncent à cause du [[Royaume de Dieu|royaume des cieux]]. Que celui qui est capable d’accepter cet enseignement, l’accepte !**
 ### Versets 16 à 30
 Intitulé **Les riches et le royaume de [[Dieu]]** par [[Bible#^358f23|BDS]]
 #### Versets 21 et 22

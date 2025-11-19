@@ -80,3 +80,23 @@ Intitulé **[[Balaam]] bénit [[Israël]] une deuxième fois** par [[Bible#^358f
     sans avoir bu le sang ╵de ses victimes.
 25) [[Balaq]] dit à [[Balaam]] : Si tu ne peux pas le maudire, au moins ne le bénis pas !
 26) Mais [[Balaam]] répondit à [[Balaq]] : Ne t’ai-je pas prévenu que je ferai tout ce que l’[[Dieu|Eternel]] m’ordonnera ?
+## Chapitre 30
+Intitulé **La loi sur les vœux** par [[Bible#^358f23|BDS]]
+
+1) [[Moïse|Moïse]] communiqua aux [[Israël|Israélites]] tout ce que l’[[Dieu|Eternel]] lui avait ordonné.
+2) [[Moïse|Il]] parla aux chefs des tribus d’[[Israël|Israël]] en disant : Voici ce que l’[[Dieu|Eternel]] a ordonné :
+3) Si un homme fait un vœu à l’[[Dieu|Eternel]], ou s’il prend certains engagements par serment, il ne violera pas sa parole ; il agira conformément à ce qu’il a dit.
+4) Si une jeune fille fait un vœu à l’[[Dieu|Eternel]] en prenant un certain engagement pendant qu’elle habite encore chez son père,
+5) et que son père, après en avoir été informé, n’y objecte pas, ces vœux et ces engagements seront valables.
+6) Mais si son père la désapprouve le jour où il en est informé, aucun de ses vœux et de ses engagements qu’elle se sera imposés ne sera valide ; il ne lui sera pas tenu rigueur d’avoir manqué à sa parole puisque son père a annulé ses vœux.
+7) Supposons qu’une jeune fille ait fait un vœu ou se soit engagée verbalement, et qu’ensuite elle vienne à se marier.
+8) Si son mari en est informé et n’y objecte pas le jour où il l’apprend, ses vœux et ses engagements seront valides.
+9) Mais si, ce jour-là, il la désapprouve et annule le vœu qu’elle a fait et l’engagement qu’elle a pris, l’[[Dieu|Eternel]] ne lui tiendra pas rigueur d’avoir manqué à sa parole.
+10) Mais une femme veuve ou divorcée reste liée, elle, par ses vœux et par tout engagement qu’elle a pris.
+11) Si une femme mariée fait un vœu ou prend un engagement par serment,
+12) et si son mari, après en avoir été informé, n’y a pas fait d’objection et ne l’a pas désapprouvée, elle reste liée par ses vœux et engagements.
+13) Si, toutefois, il les annule le jour où il en est informé, tout ce qu’elle aura prononcé, en fait de vœux ou d’engagements, sera sans valeur. Puisque son mari les a annulés, l’[[Dieu|Eternel]] ne lui tiendra pas rigueur d’avoir manqué à sa parole.
+14) Son mari peut donc ratifier ou annuler tout vœu ou tout serment par lequel elle s’impose de renoncer à quelque chose.
+15) S’il n’oppose aucune objection jusqu’au lendemain, sa femme est alors liée par tous les vœux ou les engagements qu’elle a pris, car il les ratifie en ne lui disant rien le jour où il en a été informé.
+16) S’il décide de les annuler après le jour où il en a eu connaissance, c’est lui qui portera la responsabilité de la faute de sa femme.
+17) Telles sont les lois que l’[[Dieu|Eternel]] a prescrites à [[Moïse|Moïse]] sur les relations entre un homme et sa femme, ainsi qu’entre un père et sa fille, tant qu’elle est chez son père, durant sa jeunesse.

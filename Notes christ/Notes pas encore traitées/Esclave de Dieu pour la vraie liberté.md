@@ -5,10 +5,10 @@ Notion de la liberté : de qui/quoi veux t on être esclave ? Car on est forcém
 
 (Tableau de Blaise Pascal) Il a vu que toutes choses est un gain (écho à [[11 - Philippiens#Versets 12 à 26|Philippiens1:21]])
 
-Le terme d'esclave dans le passage romain a plus une connotation de serviteur en grecque au delà du simple esclavagisme
+Le terme d'esclave dans le passage romain a plus une connotation de serviteur en [[Grecs|grecque]] au delà du simple esclavagisme
 -> donc si on est esclave du péché, on sert le péché
 
-Péché : une faute, une erreur en latin. En grecque : manquer quelque chose, de dévier de l'objectif. En araméen, c'est lié à la dette
+Péché : une faute, une erreur en latin. En [[Grecs|grecque]] : manquer quelque chose, de dévier de l'objectif. En araméen, c'est lié à la dette
 
 `Habakuk 2:5-6` : vivre comme on le souhaite c'est de l'orgueil. Et les orgueilleux sont de quelques choses qui nous asservit : le péché
 La finalité de cette dette, c'est la [[Mort]]
