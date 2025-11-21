@@ -114,6 +114,18 @@ Intitulé **Le [[Jésus|Fils]] de l'homme** par [[Bible#^358f23|BDS]]
 26) Mais alors, la cour de justice siégera et on ôtera la domination à ce roi pour l’anéantir et la faire disparaître définitivement.
 27) Le règne, la souveraineté et la grandeur de tous les royaumes qui sont sous le ciel seront attribués aux membres du peuple saint [[Dieu|du Très-Haut]]. Le règne de ce peuple est éternel, et toutes les puissances du monde le serviront et lui obéiront. »
 28) Ici prend fin le récit. Quant à [[Daniel|moi, Daniel, je]] fus très effrayé par mes pensées et [[Daniel|j]]’en devins blême. [[Daniel|Je]] gardai ces choses en mémoire.
+## Chapitre 9
+### Versets 20 à 27
+Intitulé **La vision de [[Daniel|Daniel]]** par [[Bible#^358f23|BDS]]
+
+20) [[Daniel|Je]] continuais à parler dans [[Daniel|ma]] prière, en confessant [[Daniel|mes]] péchés et les péchés de [[Daniel|mon]] peuple [[Israël|Israël]], et en suppliant l’[[Dieu|Eternel]] [[Daniel|mon]] [[Dieu|Dieu]] en faveur de [[Dieu|sa]] sainte montagne.
+21) [[Daniel|J]]’étais encore en train de prononcer [[Daniel|ma]] prière, quand [[Ange Gabriel|Gabriel]], ce personnage que [[Daniel|j]]’avais vu dans une vision précédente, s’approcha de [[Daniel|moi]] d’un vol rapide au moment de l’offrande du soir.
+22) [[Ange Gabriel|Il]] s’entretint avec [[Daniel|moi]] et [[Daniel|me]] donna des explications en me disant : [[Daniel|Daniel]], [[Ange Gabriel|je]] suis venu maintenant pour [[Daniel|t]]’éclairer.
+23) Dès que [[Daniel|tu]] as commencé [[Daniel|ta]] supplique, un message a été émis, et [[Ange Gabriel|je]] suis venu pour [[Daniel|te]] le communiquer, car [[Daniel|tu]] es bien-aimé de [[Dieu|Dieu]]. Sois donc attentif à ce message et comprends cette vision.
+24) Une période de soixante-dix septaines a été fixée pour [[Daniel|ton]] [[Israël|peuple]] et pour [[Daniel|ta]] [[Jérusalem|ville sainte]], pour mettre un terme à la révolte contre [[Dieu|Dieu]], pour en finir avec les péchés, et pour expier, les fautes ainsi que pour instaurer une justice éternelle, pour accomplir vision et prophétie, et pour conférer l’onction à un sanctuaire très saint.
+25) Voici donc ce que [[Daniel|tu]] dois savoir et comprendre : Depuis le moment où le décret ordonnant de restaurer et de rebâtir [[Jérusalem|Jérusalem]] a été promulgué jusqu’à l’avènement d’un chef ayant reçu l’onction, il s’écoulera sept septaines et soixante-deux septaines. La [[Jérusalem|ville]] sera rebâtie et rétablie avec ses places et ses fossés, en des temps de détresse.
+26) A la fin des soixante-deux septaines, un homme ayant reçu l’onction sera mis à mort, bien qu’on ne puisse rien lui reprocher. Quant à la [[Jérusalem|ville]] et au sanctuaire, ils seront détruits par le peuple d’un chef qui viendra, mais sa fin arrivera, provoquée comme par une inondation, et jusqu’à la fin, séviront la guerre et les dévastations qui ont été décrétées.
+27) L’oint conclura une alliance ferme avec un grand nombre au cours d’une septaine et, à la moitié de la septaine, il fera cesser le sacrifice et l’offrande. Dans le Temple sera établie l’abominable profanation, et cela durera jusqu’à ce que l’entière destruction qui a été décrétée s’abatte sur le dévastateur.
 ## Chapitre 10
 Intitulé **Le temps de la fin** par [[Bible#^358f23|BDS]]
 ### Versets 1 à 9
@@ -128,3 +140,11 @@ Intitulé **La vision de l’homme vêtu de lin** par [[Bible#^358f23|BDS]]
 7) Moi, [[Daniel]], je fus seul à voir cette apparition, les gens qui étaient avec moi ne la virent pas, ils furent soudain saisis d’une grande frayeur et s’enfuirent pour se cacher.
 8) [[Daniel|Je]] demeurai donc seul à contempler cette apparition grandiose. [[Daniel|J]]’en perdis mes forces, [[Daniel|je]] devins tout pâle et [[Daniel|mes]] traits se décomposèrent ; [[Daniel|je]] me sentais défaillir.
 9) [[Daniel|J]]’entendis le personnage prononcer des paroles et, en entendant sa voix, [[Daniel|je]] perdis connaissance et [[Daniel|je]] tombai la face contre terre.
+## Chapitre 12
+### Versets 1 à 4
+Intitulé **Détresse et résurrection** par [[Bible#^358f23|BDS]]
+
+1) En ce temps-là, se lèvera [[Ange Michel|Michel]], le grand chef qui a pour mission d’aider [[Daniel|ton]] peuple. Ce sera un temps de détresse tel qu’il n’y en a jamais eu depuis que des nations existent jusqu’à ce moment-là. En ce temps-là seront sauvés ceux de [[Daniel|ton]] peuple dont le nom est inscrit dans le livre.
+2) Les nombreux humains qui dorment dans la poussière de la terre se réveilleront, les uns pour la vie éternelle, les autres pour la honte et l’horreur éternelles.
+3) Les hommes qui auront eu de la sagesse resplendiront alors comme le firmament, ceux qui auront amené un grand nombre à être justes brilleront comme les étoiles, à toujours et à jamais.
+4) Quant à [[Daniel|toi, Daniel]], tiens caché le sens de ces paroles et conserve le livre scellé jusqu’au temps de la fin. Alors, beaucoup l’étudieront et verront leur connaissance s’accroître.

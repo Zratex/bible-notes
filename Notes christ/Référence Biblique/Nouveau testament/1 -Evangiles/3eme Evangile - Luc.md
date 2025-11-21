@@ -278,6 +278,7 @@ Intitulé **Comment prier** par [[Bible#^358f23|BDS]]
 13) **Si donc, tout mauvais que vous êtes, vous savez donner de bonnes choses à vos enfants, à combien plus forte raison le [[Dieu|Père céleste]] donnera-t-il l’[[Saint-Esprit|Esprit Saint]] à ceux qui le [[Dieu|lui]] demandent.**
 ### Versets 14 à 28
 Intitulé **[[Dieu]] ou [[Satan]] ?** par [[Bible#^358f23|BDS]]
+>Ces 10 prochains versets font écho à [[1er Evangile - Matthieu#Versets 22 à 45|Matthieu 12:22-30]] et [[2nd Evangile - Marc#Versets 20 à 30|Marc 3:20-27]]
 
 14) Un jour, [[Jésus|Jésus]] chassait un démon qui rendait un homme muet. Quand le démon fut sorti, le muet se mit à parler, et la foule était émerveillée.
 15) Cependant quelques-uns disaient : C’est par le pouvoir de [[Satan|Béelzébul]], le chef des démons, qu’[[Jésus|il]] chasse les démons.
@@ -289,12 +290,74 @@ Intitulé **[[Dieu]] ou [[Satan]] ?** par [[Bible#^358f23|BDS]]
 21) **Tant qu’un homme fort et bien armé garde sa maison, ses biens sont en sécurité ;**
 22) **mais si un autre, plus fort que lui, l’attaque et parvient à le maîtriser, il lui enlève toutes les armes sur lesquelles le premier comptait, lui prend tous ses biens et les distribue.**
 23) **Celui qui n’est pas avec [[Jésus|moi]] est contre [[Jésus|moi]], et celui qui ne se joint pas à [[Jésus|moi]] pour rassembler, disperse.**
+>La suite de ce passage fait écho à [[1er Evangile - Matthieu#Versets 22 à 45|Matthieu 12:43-45]]
 24) **Lorsqu’un esprit mauvais est sorti de quelqu’un, il erre çà et là dans des lieux déserts, à la recherche d’un lieu de repos, et il n’en trouve pas. Il se dit alors : « Mieux vaut regagner la demeure que j’ai quittée. »**
 25) **Il y retourne donc et la trouve balayée et mise en ordre.**
 26) **Alors il va chercher sept autres esprits encore plus méchants que lui et les amène avec lui. Ils entrent dans la demeure et s’y installent. Finalement, la condition de cet homme est pire qu’avant.**
-27) Pendant qu’il parlait ainsi, du milieu de la foule, une femme s’écria : Heureuse [[Marie|la femme]] qui [[Jésus|t]]’a mis au monde et qui [[Jésus|t]]’a allaité !
+27) Pendant qu’[[Jésus|il]] parlait ainsi, du milieu de la foule, une femme s’écria : Heureuse [[Marie|la femme]] qui [[Jésus|t]]’a mis au monde et qui [[Jésus|t]]’a allaité !
 28) Mais [[Jésus|Jésus]] répondit : **Heureux plutôt ceux qui écoutent la Parole de [[Dieu|Dieu]] et qui y obéissent !**
+### Versets 29 à 36
+Intitulé **Signe et lumière** par [[Bible#^358f23|BDS]]
+>Ces 4 prochains versets font écho à [[1er Evangile - Matthieu#Versets 22 à 45|Matthieu 12:38-42]] :
+
+29) Comme la foule grossissait autour de [[Jésus|lui]], il dit : **Les gens de notre temps sont mauvais. Ils réclament un signe miraculeux. Un signe… il ne leur en sera pas accordé d’autre que celui de [[Jonas|Jonas]].**
+30) **Car, de même que [[Jonas|Jonas]] a été un signe pour les habitants de [[Ninive|Ninive]], de même aussi [[Jésus|le Fils de l’homme]] sera un signe pour les gens de notre temps.**
+31) **Au jour du jugement, la [[Reine de Saba|reine du Midi]] se lèvera et condamnera les gens de notre temps, car [[Reine de Saba|elle]] est venue du bout du monde pour écouter l’enseignement plein de [[Sagesse|sagesse]] de [[Salomon|Salomon]]. Or, il y a ici plus que [[Salomon|Salomon]] !**
+32) **Au jour du jugement, les habitants de [[Ninive|Ninive]] se lèveront et condamneront les gens de notre temps, car ils ont changé en réponse à la prédication de [[Jonas|Jonas]]. Or, il y a ici plus que [[Jonas|Jonas]].**
+>Ce verset fait référence à [[1er Evangile - Matthieu#Versets 13 à 20|Matthieu 5:15]] et [[2nd Evangile - Marc#Versets 21 à 25|Marc 4:21]] :
+33) **Personne n’allume une lampe pour la mettre dans un recoin ou sous une mesure à grain. Non, on la place sur un pied de lampe pour que ceux qui entrent voient la lumière.**
+>La suite de ce passage fait référence à [[1er Evangile - Matthieu#Versets 19 à 34|Matthieu 6:22-23]] :
+34) **Tes yeux sont comme une lampe pour ton corps. Si tes yeux sont en bon état, tout ton corps jouit de la lumière ; mais s’ils sont malades, tout ton corps est plongé dans l’obscurité.**
+35) **Fais donc attention à ce que ta lumière ne soit pas obscurcie.**
+36) **Si ton corps tout entier est dans la lumière, sans aucune partie dans l’obscurité, il jouira pleinement de la lumière, comme lorsque la lampe t’éclaire de sa clarté.**
+### Versets 37 à 52
+Intitulé **La condamnation des chefs religieux** par [[Bible#^358f23|BDS]]
+>Ce passage fait écho à [[1er Evangile - Matthieu#Versets 1 à 36|Matthieu 23:4-36]] :
+
+37) Pendant qu’[[Jésus|il]] parlait, un pharisien [[Jésus|l]]’invita à venir manger chez lui. [[Jésus|Jésus]] entra dans la maison et [[Jésus|se]] mit à table.
+38) Le pharisien remarqua qu’[[Jésus|il]] n’avait pas fait les ablutions rituelles avant le repas, et il s’en étonna.
+39) Le [[Jésus|Seigneur]] lui dit alors : **Vous pharisiens, vous nettoyez soigneusement l’extérieur de vos coupes et de vos plats, mais à l’intérieur, vous êtes remplis du désir de voler et pleins de méchanceté.**
+40) **Fous que vous êtes ! Est-ce que celui qui a créé l’extérieur n’a pas aussi fait l’intérieur ?
+41) **Donnez plutôt en offrande à [[Dieu|Dieu]] votre être intérieur, et vous serez du même coup entièrement purs.**
+42) **Mais malheur à vous, pharisiens, vous vous acquittez scrupuleusement de la dîme sur toutes les plus petites herbes, comme la menthe et la rue, et sur le moindre légume, mais vous négligez la droiture et l’amour de [[Dieu|Dieu]] ! Voilà ce qu’il fallait faire, sans laisser le reste de côté.**
+43) **Malheur à vous, pharisiens, parce que vous aimez les sièges d’honneur dans les synagogues ; vous aimez qu’on vous salue respectueusement sur les places publiques.**
+44) **Malheur à vous ! Vous ressemblez à ces tombes que rien ne signale au regard et sur lesquelles on passe sans s’en douter.**
+45) Là-dessus, un enseignant de la [[La Loi de Dieu|Loi]] se mit à protester en disant : [[Jésus|Maître]], en parlant ainsi, [[Jésus|tu]] nous insultes, nous aussi !
+46) **– Oui, malheur à vous aussi, enseignants de la Loi,** lui répondit [[Jésus|Jésus]], **vous imposez aux gens des fardeaux accablants ; mais vous-mêmes, vous n’y touchez pas du petit doigt !**
+47) **Malheur à vous, parce que vous édifiez des monuments funéraires pour les prophètes, ces prophètes que vos ancêtres ont tués !**
+48) **Vous montrez clairement par là que vous approuvez ce que vos ancêtres ont fait : eux, ils ont tué les prophètes, et vous, vous bâtissez leurs tombeaux !**
+49) **C’est bien pour cela que [[Dieu|Dieu]], dans [[Dieu|sa]] [[Sagesse|sagesse]], a déclaré : « [[Dieu|Je]] leur enverrai des prophètes et des messagers ; ils tueront les uns, ils persécuteront les autres. »**
+50) **C’est pourquoi les gens de notre temps auront à répondre du meurtre de tous les prophètes qui ont été tués depuis le commencement du monde,**
+51) **depuis le meurtre d’[[Abel|Abel]], jusqu’à celui de [[Zacharie (fils de Yehoyada)|Zacharie]], assassiné entre l’autel du sacrifice et le Temple. Oui, [[Jésus|je]] vous l’assure, les hommes de notre temps auront à répondre de tous ces crimes.**
+52) **Malheur à vous, enseignants de la [[La Loi de Dieu|Loi]], vous vous êtes emparés de la clé de la connaissance. Non seulement vous n’entrez pas vous-mêmes, mais vous empêchez d’entrer ceux qui voudraient le faire !**
+53) Quand [[Jésus|Jésus]] fut sorti de la maison, les spécialistes de la [[La Loi de Dieu|Loi]] et les pharisiens s’acharnèrent contre [[Jésus|lui]] et le harcelèrent de questions sur toutes sortes de sujets :
+54) ils [[Jésus|lui]] tendaient ainsi des pièges pour trouver dans [[Jésus|ses]] paroles un motif d’accusation.
 ## Chapitre 12
+### Versets 1 à 12
+Intitulé **Prendre parti pour [[Jésus|Jésus]]** par [[Bible#^358f23|BDS]]
+>Ce passage fait écho à [[1er Evangile - Matthieu#Versets 26 à 42|Matthieu 26:33]] et [[1er Evangile - Matthieu#Versets 16 à 25|Matthieu 10:19-20]] :
+
+1) Pendant ce temps, des milliers de gens s’étaient rassemblés, au point qu’ils se marchaient sur les pieds les uns les autres. [[Jésus|Jésus]] commença par s’adresser à ses disciples : **Gardez-vous,** leur dit-[[Jésus|il]], **de ce levain : l’hypocrisie des pharisiens.**
+2) **Car tout ce qui est tenu secret sera dévoilé, et tout ce qui est caché finira par être connu.**
+3) **Ainsi, tout ce que vous aurez dit dans l’obscurité sera entendu ouvertement en plein jour, et tout ce que vous aurez chuchoté dans le creux de l’oreille, derrière des portes bien closes, sera crié du haut des toits en terrasses.**
+4) **Mes chers amis, [[Jésus|je]] vous le dis : ne craignez pas ceux qui peuvent tuer le corps, mais qui n’ont pas le pouvoir de faire davantage.**
+5) **Savez-vous qui vous devez craindre ? [[Jésus|Je]] vais vous le dire : c’est celui qui, après la mort, a le pouvoir de vous jeter en enfer. Oui, je vous l’assure, c’est lui que vous devez craindre.**
+6) **Ne vend-on pas cinq moineaux pour deux sous ? Et pourtant, [[Dieu|Dieu]] prend soin de chacun d’eux.**
+7) **Bien plus : même les cheveux de votre tête sont comptés. N’ayez aucune crainte, car vous avez plus de valeur que toute une volée de moineaux.**
+8) **[[Jésus|Je]] vous l’assure, tous ceux qui se déclareront pour [[Jésus|moi]] devant les hommes, [[Jésus|le Fils de l’homme]] aussi se déclarera pour eux devant les anges de [[Dieu|Dieu]].**
+9) **Mais celui qui aura prétendu devant les hommes qu’il ne [[Jésus|me]] connaît pas, [[Jésus|je]] ne le reconnaîtrai pas non plus devant les anges de [[Dieu|Dieu]].**
+10) **Si quelqu’un dit du mal du [[Jésus|Fils de l’homme]], il lui sera pardonné ; mais pour celui qui aura blasphémé contre l’[[Saint-Esprit|Esprit Saint]] il n’y aura pas de pardon.**
+11) **Quand on vous traînera dans les synagogues devant les dirigeants et les autorités, ne vous inquiétez pas au sujet de ce que vous aurez à dire pour votre défense, ni de la manière dont vous la présenterez.**
+12) **Car le [[Saint-Esprit|Saint-Esprit]] vous enseignera à l’instant même ce que vous devrez dire.**
+### Versets 49 à 53
+Intitulé **La division et le jugement** par [[Bible#^358f23|BDS]]
+
+49) **[[Jésus|Je]] suis venu jeter un feu sur la terre ; comme [[Jésus|je]] voudrais qu’il soit déjà allumé !**
+50) **Mais il y a un baptême que [[Jésus|je]] dois recevoir, et quelle angoisse est la mienne, tant que [[Jésus|je]] ne l’ai pas reçu !**
+>La suite de ce passage fait écho à [[1er Evangile - Matthieu#Versets 26 à 42|Matthieu 10:34-36]] :
+51) **Pensez-vous que [[Jésus|je]] sois venu pour apporter la paix sur la terre ? Non, mais la division.**
+52) **En effet, à partir de maintenant, s’il y a cinq personnes dans une famille, elles seront divisées trois contre deux, et deux contre trois.**
+53) **Le père sera contre le fils et le fils contre son père ; la mère contre sa fille, et la fille contre sa mère : la belle-mère contre sa belle-fille, et la belle-fille contre sa belle-mère.**
 ### Versets 54 à 59
 Intitulé **Le discernement nécessaire** par [[Bible#^358f23|BDS]]
 >Les 3 versets qui suivent font échos à [[1er Evangile - Matthieu#Versets 1 à 12|Matthieu 16:2-3]] :
@@ -401,9 +464,82 @@ Intitulé **Les rapports entre frères** par [[Bible#^358f23|BDS]]
 
 	**Si ton frère s’est rendu coupable d’une faute, reprends-le et, s’il change d’attitude  , pardonne-lui.**
 4) **Et même s’il se rend coupable à ton égard sept fois au cours de la même journée, et que sept fois il vienne te trouver en disant qu’il change d’attitude, pardonne-lui.**
+### Versets 20 à 37
+Intitulé **Comment vient le [[Royaume de Dieu|royaume]]** par [[Bible#^358f23|BDS]]
 
+20) Un jour, les pharisiens [[Jésus|lui]] demandèrent quand arriverait le [[Royaume de Dieu|royaume de Dieu]]. [[Jésus|Jésus]] leur répondit : **Le [[Royaume de Dieu|royaume de Dieu]] ne viendra pas de façon visible.**
+21) **On ne dira pas : « Venez, il est ici », ou : « Il est là », car, notez-le bien, le [[Royaume de Dieu|royaume de Dieu]] est parmi vous.**
+22) Puis [[Jésus|il]] s’adressa à ses disciples : **Le temps viendra où vous désirerez ardemment être avec [[Jésus|le Fils de l’homme]], ne fût-ce qu’un seul jour, mais vous ne le pourrez pas.**
+>Les 3 prochains versets font écho à [[1er Evangile - Matthieu#Versets 1 à 35|Matthieu 24:23-28]] :
+23) **Alors on vous dira : « Il est ici ! » ou « Il est là ! » N’y allez pas ! Ne vous y précipitez pas !**
+24) **L’éclair jaillit d’un point du ciel et l’illumine d’un bout à l’autre. Ainsi en sera-t-il du [[Jésus|Fils de l’homme]] en son Jour.**
+25) **Mais il faut d’abord qu’[[Jésus|il]] endure beaucoup de souffrances et qu’[[Jésus|il]] soit rejeté par les gens de notre temps.**
+>La suite de ce passage fait écho à [[1er Evangile - Matthieu#Versets 36 à 51|Matthieu 24:37-41]] :
+26) **Le jour où [[Jésus|le Fils de l’homme]] reviendra, les choses se passeront comme au temps de [[Noé|Noé]] :**
+27) **les gens mangeaient, buvaient, se mariaient et étaient donnés en mariage, jusqu’au jour où *[[Genèse#Versets 1 à 10|Noé entra dans le bateau]]*. Alors vint le déluge qui les fit tous périr.**
+28) **C’est encore ce qui est arrivé du temps de [[Loth|Loth]] : les gens mangeaient, buvaient, achetaient, vendaient, plantaient, bâtissaient.**
+29) **Mais le jour où [[Loth|Loth]] sortit de [[Sodome|Sodome]], une pluie de feu et de soufre tomba du ciel et les fit tous périr.**
+30) **Il en sera de même le jour où [[Jésus|le Fils de l’homme]] apparaîtra.**
+31) **En ce jour-là, si quelqu’un est sur le toit en terrasse de sa maison, qu’il n’en descende pas pour prendre les affaires qu’il aura laissées en bas ; de même, que celui qui se trouvera dans les champs ne retourne pas chez lui.**
+32) **Rappelez-vous ce qui est arrivé à la femme de [[Loth|Loth]].**
+33) **Celui qui cherchera à préserver sa vie, la perdra ; mais celui qui la perdra, la conservera.**
+34) **Cette nuit-là, [[Jésus|je]] vous le dis, deux personnes seront couchées dans un même lit : l’une sera emmenée, l’autre sera laissée.**
+35) **Deux femmes seront en train de tourner ensemble la pierre de meule : l’une sera emmenée, l’autre laissée.**
+36) **[Deux hommes seront dans un champ : l’un sera emmené, l’autre laissé.]**
+37) Alors les disciples lui demandèrent : Où cela se passera-t-il, [[Jésus|Seigneur]] ?
+    [[Jésus|Il]] leur répondit : **Là où sera le cadavre, là se rassembleront les vautours.**
 ## Chapitre 19
 ### Versets 11 à 27
 Intitulé **La parabole de l'argent à faire fructifier** par [[Bible#^358f23|BDS]]
 
 13) Il convoqua dix de ses serviteurs et leur remit, à chacun, une pièce d’or. Puis il leur recommanda : « Faites fructifier cet argent jusqu’à mon retour ! »
+## Chapitre 20
+### Versets 45 à 47
+Intitulé **La condamnation des spécialistes de la Loi** par [[Bible#^358f23|BDS]]
+>Ce passage fait écho à [[1er Evangile - Matthieu#Versets 1 à 36|Matthieu 23:6]] et [[1er Evangile - Matthieu#Versets 22 à 45|Matthieu 12:38-40]] :
+
+45) Tandis que la foule [[Jésus|l]]’écoutait, [[Jésus|il]] dit à [[Jésus|ses]] disciples :
+46) **Gardez-vous des spécialistes de la [[La Loi de Dieu|Loi]] qui aiment à parader en costume de cérémonie, qui affectionnent qu’on les salue sur les places publiques, qui veulent les sièges d’honneur dans les synagogues et les meilleures places dans les banquets.**
+47) **Ils dépouillent les veuves de leurs biens tout en faisant de longues prières pour l’apparence. Leur condamnation n’en sera que plus sévère.**
+## Chapitre 21
+### Versets 5 à 38
+Intitulé **De la destruction de [[Jérusalem|Jérusalem]] à la venue du [[Jésus|Fils de l’homme]]** par [[Bible#^358f23|BDS]]
+>Ces 7 prochains versets font écho à [[1er Evangile - Matthieu#Versets 1 à 35|Matthieu 24:1-8]] et [[2nd Evangile - Marc#Chapitre 13|Marc 13:1-8]] :
+
+5) Certains disaient du Temple : « Avec ses belles pierres et les beaux objets déposés en offrandes, il est magnifique ». [[Jésus|Jésus]] leur dit :
+6) **Il viendra un temps où tout ce que vous regardez sera détruit ; pas une pierre ne restera sur une autre.**
+7) – Maître, [[Jésus|lui]] demandèrent-ils alors, quand cela se produira-t-il et à quel signe reconnaîtra-t-on que tous ces événements devront avoir lieu ?
+8) [[Jésus|Jésus]] leur dit : **Faites attention, ne vous laissez pas induire en erreur. Car plusieurs viendront sous [[Jésus|mon]] nom en disant : « C’est moi le Messie ! » ou encore : « Le temps est venu ! » Ne les suivez pas !**
+9) **Quand vous entendrez parler de guerres et de soulèvements, ne vous effrayez pas. Car tout cela doit arriver d’abord ; mais la fin ne viendra pas aussitôt après.**
+10) Puis [[Jésus|il]] ajouta : ***[[23 - Esaïe#Versets 1 à 15|On verra se dresser une nation contre une nation, un royaume contre un autre]]*.**
+11) **Il y aura de grands tremblements de terre et, en divers lieux, des famines et des épidémies séviront ; des phénomènes terrifiants se produiront et, dans le ciel, des signes extraordinaires apparaîtront.**
+>Ces 8 prochains versets font écho à [[1er Evangile - Matthieu#Versets 16 à 25|Matthieu 10:17-22]] et [[2nd Evangile - Marc#Chapitre 13|Marc 13:9-13]] :
+12) **Mais, auparavant, on se saisira de vous, on vous persécutera, on vous traduira devant les synagogues et vous serez jetés en prison. A cause de [[Jésus|moi]], vous serez traînés devant des rois et des gouverneurs.**
+13) **Ces choses vous arriveront pour vous donner l’occasion d’apporter un témoignage.**
+14) **Ayez donc cette ferme conviction : vous n’aurez pas à vous préoccuper de votre défense.**
+15) **C’est [[Jésus|moi]], en effet, qui vous donnerai des paroles qu’aucun de vos adversaires ne pourra réfuter, et une sagesse à laquelle personne ne pourra résister.**
+16) **Vous serez livrés même par vos parents, vos frères, vos proches et vos amis, qui feront mettre à mort plusieurs d’entre vous.**
+17) **Tout le monde vous haïra à cause de [[Jésus|moi]].**
+18) **Mais pas un seul cheveu de votre tête ne se perdra.**
+19) **En tenant bon, vous parviendrez au salut.**
+>Ces 5 prochains versets font écho à [[1er Evangile - Matthieu#Versets 1 à 35|Matthieu 24:15-21]] et [[2nd Evangile - Marc#Chapitre 13|Marc 13:14-19]] :
+20) **Quand vous verrez des armées ennemies encercler [[Jérusalem|Jérusalem]], sachez que sa destruction est imminente.**
+21) **Alors, que les habitants de la [[Judée|Judée]] s’enfuient dans les montagnes. Que ceux qui se trouveront dans [[Jérusalem|Jérusalem]] s’empressent d’en sortir. Que ceux qui seront dans les champs ne rentrent pas dans la ville !**
+22) **Ces jours-là, en effet, seront des jours de châtiment où tout ce que disent les [[Ancien Testament|Ecritures]] s’accomplira.**
+23) **Malheur, en ces jours-là, aux femmes enceintes et à celles qui allaitent ! Car ce pays connaîtra une terrible épreuve et le jugement s’abattra sur ce peuple.**
+24) **Ses habitants seront passés au fil de l’épée ou déportés dans tous les pays étrangers, et [[Jérusalem|Jérusalem]] sera foulée aux pieds par les peuples étrangers jusqu’à ce que leur temps soit révolu.**
+>La suite de ce passage fait écho à [[1er Evangile - Matthieu#Versets 1 à 35|Matthieu 24:29-35]] et [[2nd Evangile - Marc#Chapitre 13|Matthieu 13:24-31]] :
+25) **Il y aura des signes extraordinaires dans le soleil, la lune et les étoiles. Sur la terre, les peuples seront paralysés de frayeur devant le fracas d’une mer démontée.**
+26) **Plusieurs mourront de peur dans l’appréhension des malheurs qui frapperont le monde entier, car les puissances célestes seront ébranlées.**
+27) **Alors on verra *[[27 - Daniel#Versets 9 à 28|le Fils de l’homme venir sur les nuées]]* avec beaucoup de puissance et de gloire.**
+28) **Quand ces événements commenceront à se produire, levez la tête et prenez courage, car alors votre délivrance sera proche.**
+29) [[Jésus|Il]] ajouta cet exemple : **Prenez le figuier, ou n’importe quel autre arbre.**
+30) **Il vous suffit de voir que les bourgeons commencent à pousser, et vous savez que l’été est proche.**
+31) **De même, quand vous verrez ces événements se produire, sachez que le [[Royaume de Dieu|royaume de Dieu]] est proche.**
+32) **Vraiment, [[Jésus|je]] vous assure que cette génération-ci ne passera pas jusqu’à ce que tout vienne à se réaliser.**
+33) **Le ciel et la terre passeront, mais [[Jésus|mes]] paroles ne passeront jamais.**
+34) **Prenez garde à vous-mêmes pour que vos esprits ne s’alourdissent pas à force de trop bien manger, de trop boire et de vous tracasser pour les choses de la vie, sinon ce grand jour vous surprendra tout à coup.**
+35) **Car il s’abattra comme un filet sur tous les habitants de la terre.**
+36) **Restez sur vos gardes et priez sans relâche que [[Dieu|Dieu]] vous donne la force d’échapper à tout ce qui doit arriver et de vous présenter debout devant le [[Jésus|Fils de l’homme]].**
+37) [[Jésus|Jésus]] passait ses journées à enseigner dans la cour du Temple ; ensuite, [[Jésus|il]] sortait de la ville et passait la nuit sur la colline appelée « mont des Oliviers ».
+38) Dès le point du jour, tout le peuple affluait vers [[Jésus|lui]], dans la cour du Temple, pour l’écouter.

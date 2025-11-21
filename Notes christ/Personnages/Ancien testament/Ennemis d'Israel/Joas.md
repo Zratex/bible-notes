@@ -1,0 +1,1 @@
+**Joas** était un roi du [[Royaume de Judée]] dont [[Yehoyada]] était bienveillant envers Joas, mais Joas assassina son fils [[Zacharie (fils de Yehoyada)]] ([[12&13 - Chroniques#Versets 17 à 22|2 Chroniques 24:22]])

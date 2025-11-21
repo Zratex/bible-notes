@@ -1,0 +1,2 @@
+**Ophir** aurait été un port où beaucoup d'or y transitait, en particulier à l'époque de [[Salomon]].
+Cependant sa localisation n'est peu claire, mais les théories pointes principalement autour des rives de la [[Mer Rouge]]

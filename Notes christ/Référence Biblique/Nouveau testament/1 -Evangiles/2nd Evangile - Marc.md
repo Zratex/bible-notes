@@ -77,7 +77,23 @@ Intitulé **[[Jésus|Jésus]] guérit un malade et pardonne ses péchés** par [
 10) **Eh bien, vous saurez que le [[Jésus|Fils de l'homme]] a, sur la terre, le pouvoir de pardonner les péchés.**
 11) Alors [[Jésus|il]] déclara au paralysé : **[[Jésus|Je]] te l’ordonne : lève-toi, prends ton brancard, et rentre chez toi !**
 12) Aussitôt, cet homme se leva, prit son brancard, et sortit devant tout le monde.
-    Tous en furent stupéfaits et rendirent gloire à [[di]] en disant : Nous n’avons jamais rien vu de pareil !
+    Tous en furent stupéfaits et rendirent gloire à [[Dieu|di]] en disant : Nous n’avons jamais rien vu de pareil !
+## Chapitre 3
+### Versets 20 à 30
+Intitulé **[[Jésus|Jésus]] : [[Dieu|Dieu]] ou [[Satan]] ?** par [[Bible#^358f23|BDS]]
+>Ce passage fait écho à [[1er Evangile - Matthieu#Versets 22 à 45|Matthieu 12:22-32]], [[3eme Evangile - Luc#Versets 14 à 28|Luc 11:15-23]] et [[3eme Evangile - Luc#Versets 1 à 12|Luc 12:10]] :
+
+20) [[Jésus|Jésus]] alla à la maison et, de nouveau, la foule s’y pressa au point que [[Jésus|lui]] et ses disciples n’arrivaient même plus à manger.
+21) Quand les membres de [[Jésus|sa]] famille l’apprirent, ils vinrent pour [[Jésus|le]] ramener de force avec eux. Ils disaient en effet : « [[Jésus|Il]] est devenu fou. »
+22) Les spécialistes de la [[La Loi de Dieu|Loi]] qui étaient venus de [[Jérusalem|Jérusalem]] disaient : [[Jésus|Il]] est sous l’emprise de [[Satan|Béelzébul]] ; c’est par le pouvoir [[Satan|du chef des démons]] qu’[[Jésus|il]] chasse les démons.
+23) Alors [[Jésus|Jésus]] les appela et leur parla en paraboles : **Comment [[Satan|Satan]] peut-il chasser [[Satan|Satan]] ?**
+24) **Un royaume déchiré par la guerre civile ne peut pas subsister.**
+25) **Si une famille est divisée, cette famille ne peut pas subsister.**
+26) **Si donc [[Satan|Satan]] se bat contre [[Satan|lui-même]], s’[[Satan|il]] est en conflit avec [[Satan|lui-même]], [[Satan|il]] ne peut plus subsister, c’en est fini de [[Satan|lui]].**
+27) **En fait, personne ne peut pénétrer dans la maison d’un homme fort pour s’emparer de ses biens sans avoir d’abord ligoté cet homme fort : c’est alors qu’il pillera sa maison.**
+28) **Vraiment, [[Jésus|je]] vous avertis : tout sera pardonné aux hommes, leurs péchés et les blasphèmes qu’ils auront prononcés.**
+29) **Mais si quelqu’un blasphème contre l’[[Saint-Esprit|Esprit Saint]], il ne lui sera jamais pardonné : il portera éternellement la charge de ce péché.**
+30) [[Jésus|Jésus]] leur parla ainsi parce qu’ils disaient : « [[Jésus|Il]] est sous l’emprise d’un esprit mauvais. »
 ## Chapitre 4
 ### Versets 21 à 25
 Intitulé **La parabole de la lampe** par [[Bible#^358f23|BDS]]
@@ -210,6 +226,13 @@ Intitulé **La leçon du figuier desséché** par [[Bible#^358f23|BDS]]
 25) **Quand vous priez, si vous avez quoi que ce soit contre quelqu’un, pardonnez-lui, pour que votre [[Dieu|Père céleste]] vous pardonne, lui aussi, vos fautes.**
 26) **[Mais si vous ne pardonnez pas, votre [[Dieu|Père]] qui est dans les cieux ne vous pardonnera pas non plus vos fautes.]**
 ## Chapitre 12
+### Versets 38 à 40
+Intitulé **La condamnation des spécialistes de la [[La Loi de Dieu|Loi]]** par [[Bible#^358f23|BDS]]
+>Ce passage fait écho à [[1er Evangile - Matthieu#Versets 1 à 36|Matthieu 23:1-12]] et [[3eme Evangile - Luc#Versets 45 à 47|Luc 20:45-47]] :
+
+38) [[Jésus|Il]] disait dans [[Jésus|son]] enseignement : **Gardez-vous des spécialistes de la [[La Loi de Dieu|Loi]] : ils aiment à parader en costume de cérémonie, à être salués sur les places publiques,**
+39) **à avoir les sièges d’honneur dans les synagogues et les meilleures places dans les banquets.**
+40) **Mais ils dépouillent les veuves de leurs biens, tout en faisant de longues prières pour l’apparence. Leur condamnation n’en sera que plus sévère.**
 ### Versets 41 à 44
 Intitulé **La vraie générosité** par [[Bible#^358f23|BDS]]
 
@@ -220,13 +243,14 @@ Intitulé **La vraie générosité** par [[Bible#^358f23|BDS]]
 
 ## Chapitre 13
 Intitulé **De la destruction de [[Jérusalem]] à la venue du [[Jésus|Fils]] de l’homme** par [[Bible#^358f23|BDS]]
-Même intitulé que [[1er Evangile - Matthieu#Chapitre 24|Matthieu 24]]
+>Ces 4 premiers versets font écho à [[1er Evangile - Matthieu#Versets 1 à 35|Matthieu 24:1-3]] et [[3eme Evangile - Luc#Versets 5 à 7|Luc 21:5-7]] :
 
 1) Comme [[Jésus|Jésus]] sortait du Temple, un de ses disciples lui dit : Regarde, [[Jésus|Maître]], quelles belles pierres ! Quel édifice magnifique !
 2) [[Jésus|Jésus]] lui répondit : **Oui, regarde bien ces grandes constructions : il ne restera pas une pierre sur une autre, tout sera démoli.**
 3) Puis [[Jésus|il]] alla s’asseoir sur les pentes du mont des Oliviers, en face du Temple.
 	[[Simon Pierre|Pierre]], [[Jacques (apôtre)|Jacques]], [[Jean]] et [[André|André]] le prirent à part et lui demandèrent :
-4) Dis-nous : quand cela se produira-t-il et à quel signe reconnaîtra-t-on que tous ces événements seront près de s’accomplir  ?
+4) Dis-nous : quand cela se produira-t-il et à quel signe reconnaîtra-t-on que tous ces événements seront près de s’accomplir ?
+>Ces 9 prochains versets font écho à [[1er Evangile - Matthieu#Versets 1 à 35|Matthieu 24:4-14]] et [[3eme Evangile - Luc#Versets 5 à 38|Luc 21:8-19]] :
 5) Là-dessus, [[Jésus|Jésus]] leur dit : **Faites attention que personne ne vous induise en erreur.**
 6) **Plusieurs viendront sous [[Jésus|mon]] nom en disant : « C’est moi le Messie  ! », et ils tromperont beaucoup de gens.**
 7) **Quand vous entendrez parler de guerres et de menaces de guerres, ne vous laissez pas troubler, car cela doit arriver, mais ce ne sera pas encore la fin.**
@@ -236,12 +260,13 @@ Même intitulé que [[1er Evangile - Matthieu#Chapitre 24|Matthieu 24]]
 11) **Quand on vous emmènera pour vous traduire devant les autorités, ne vous inquiétez pas à l’avance de ce que vous direz, mais dites simplement ce qui vous sera donné au moment même : car ce n’est pas vous qui parlerez, mais l’[[Saint-Esprit|Esprit Saint]].**
 12) **Le frère livrera son propre frère pour le faire condamner à mort, et le père livrera son enfant. Des enfants se dresseront contre leurs parents et les feront mettre à mort.**
 13) **Tout le monde vous haïra à cause de [[Jésus|moi]]. Mais celui qui tiendra bon jusqu’au bout sera sauvé.**
-14) **Quand vous verrez l’abominable profanation  établie dans le lieu où elle ne doit pas être – que celui qui lit comprenne ! – alors, que ceux qui sont en [[Judée|Judée]] s’enfuient dans les montagnes.**
+>Ces 12 prochains versets font écho à [[1er Evangile - Matthieu#Versets 1 à 35|Matthieu 24:15-31]], [[3eme Evangile - Luc#Versets 5 à 38|Luc 21:20-28]] et [[3eme Evangile - Luc#Versets 20 à 37|Luc 17:23-24]] :
+14) **Quand vous verrez *[[27 - Daniel#Versets 20 à 27|l’abominable profanation]]* établie dans le lieu où elle ne doit pas être – que celui qui lit comprenne ! – alors, que ceux qui sont en [[Judée|Judée]] s’enfuient dans les montagnes.**
 15) **Si quelqu’un est sur son toit en terrasse, qu’il ne rentre pas à l’intérieur de sa maison pour emporter quelque bien qui s’y trouve.**
 16) **Que celui qui sera dans les champs ne retourne pas chez lui pour aller chercher son manteau.**
 17) **Malheur, en ces jours-là, aux femmes enceintes et à celles qui allaitent !**
 18) **Priez pour que cela n’arrive pas en hiver,**
-19) **car ce seront des jours de détresse comme on n’en a pas connus depuis que [[Dieu|Dieu]] a créé le monde et comme jamais plus on n’en verra de semblables.**
+19) **car ce seront *[[27 - Daniel#Versets 1 à 4|des jours de détresse comme on n’en a pas connus depuis que Dieu a créé le monde]]* et comme jamais plus on n’en verra de semblables.**
 20) **Vraiment, si le [[Dieu|Seigneur]] n’avait pas décidé de réduire le nombre de ces jours, personne n’en réchapperait ; mais, à cause de ceux qu’[[Dieu|il]] a choisis, [[Dieu|il]] abrégera ce temps.**
 21) **Si quelqu’un vous dit alors : « Voyez, le Messie est ici ! » ou : « Il est là ! » ne le croyez pas.**
 22) **De faux messies surgiront, ainsi que de faux prophètes. Ils produiront des signes miraculeux et des prodiges au point de tromper, si c’était possible, ceux que [[Dieu|Dieu]] a choisis.**
@@ -250,16 +275,18 @@ Même intitulé que [[1er Evangile - Matthieu#Chapitre 24|Matthieu 24]]
     ***[[23 - Esaïe#Chapitre 13|le soleil s’obscurcira,]]***
     ***[[23 - Esaïe#Chapitre 13|la lune perdra sa clarté,]]***
 25) ***[[23 - Esaïe#Versets 1 à 15|les étoiles tomberont du ciel ;]]***
-	***[[23 - Esaïe#Versets 1 à 15|les puissances célestes ╵seront ébranlées.]]***
-26) **Alors on verra *[[27 - Daniel#Versets 9 à 28|le Fils de l’homme venir sur les nuées]]* avec beaucoup de puissance et de gloire.**
-27) **Il enverra ses anges rassembler ses élus des quatre coins du monde, d’un bout à l’autre de l’univers.**
-28) **Que l’exemple du figuier vous serve d’enseignement : quand ses rameaux deviennent tendres et que ses feuilles poussent, vous savez que l’été est proche.**
-29) **De même, quand vous verrez se produire ces événements, sachez que le [[Jésus|Fils]] de l’homme est proche, comme aux portes de la ville.**
-30) **Vraiment, [[Jésus|je]] vous assure que cette génération-ci ne passera pas jusqu’à ce que tout cela vienne à se réaliser.**
-31) **Le ciel et la terre passeront, mais [[Jésus|mes]] paroles ne passeront jamais.**
-32) **Quant au jour ou à l’heure, personne ne sait quand cela se produira, ni les anges du ciel, ni même le [[Jésus|Fils]] ; seul, le [[Dieu|Père]] le sait.**
-33) **Soyez vigilants, restez sur vos gardes, puisque vous ne savez pas quand viendra le moment.**
-34) **Les choses se passeront comme lorsqu’un homme quitte sa maison pour un long voyage et en laisse la responsabilité à ses serviteurs, en confiant à chacun sa tâche. Il commande au portier de veiller.**
-35) **Tenez-vous donc vous aussi en éveil ! Car vous ne savez pas quand le maître de la maison doit revenir : sera-ce tard ? à minuit ? au chant du coq ? ou le matin ?**
-36) **Qu’il ne vous trouve pas en train de dormir s’il revient à l’improviste !**
-37) **Ce que [[Jésus|je]] dis là, [[Jésus|je]] vous le dis à tous : Tenez-vous en éveil !**
+	***[[23 - Esaïe#Versets 1 à 15|les puissances célestes ╵seront ébranlées]]*.**
+>Les 6 prochains versets font écho à [[1er Evangile - Matthieu#Versets 1 à 35|Matthieu 24:32-35]]+[[1er Evangile - Matthieu#Versets 36 à 51|Matthieu 24:36]], et [[3eme Evangile - Luc#Versets 5 à 38|Luc 21:29-33]] :
+25) **Alors on verra *[[27 - Daniel#Versets 9 à 28|le Fils de l’homme venir sur les nuées]]* avec beaucoup de puissance et de gloire.**
+26) **Il enverra ses anges rassembler ses élus des quatre coins du monde, d’un bout à l’autre de l’univers.**
+27) **Que l’exemple du figuier vous serve d’enseignement : quand ses rameaux deviennent tendres et que ses feuilles poussent, vous savez que l’été est proche.**
+28) **De même, quand vous verrez se produire ces événements, sachez que le [[Jésus|Fils]] de l’homme est proche, comme aux portes de la ville.**
+29) **Vraiment, [[Jésus|je]] vous assure que cette génération-ci ne passera pas jusqu’à ce que tout cela vienne à se réaliser.**
+30) **Le ciel et la terre passeront, mais [[Jésus|mes]] paroles ne passeront jamais.**
+31) **Quant au jour ou à l’heure, personne ne sait quand cela se produira, ni les anges du ciel, ni même le [[Jésus|Fils]] ; seul, le [[Dieu|Père]] le sait.**
+32) **Soyez vigilants, restez sur vos gardes, puisque vous ne savez pas quand viendra le moment.**
+>La suite de ce passage fait écho à [[1er Evangile - Matthieu#Versets 36 à 51|Matthieu 24:42]] :
+33) **Les choses se passeront comme lorsqu’un homme quitte sa maison pour un long voyage et en laisse la responsabilité à ses serviteurs, en confiant à chacun sa tâche. Il commande au portier de veiller.**
+34) **Tenez-vous donc vous aussi en éveil ! Car vous ne savez pas quand le maître de la maison doit revenir : sera-ce tard ? à minuit ? au chant du coq ? ou le matin ?**
+35) **Qu’il ne vous trouve pas en train de dormir s’il revient à l’improviste !**
+36) **Ce que [[Jésus|je]] dis là, [[Jésus|je]] vous le dis à tous : Tenez-vous en éveil !**

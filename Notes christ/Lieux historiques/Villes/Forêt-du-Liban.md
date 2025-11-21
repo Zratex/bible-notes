@@ -1,0 +1,2 @@
+**Palais de [[Salomon]]** qui aurait été construit dans `1 Rois 7:2`, et qui serait apparemment localisé au sud du Temple donc à [[Jérusalem]].
+Son nom vient du fait qu'il a été construit avec le bois du cèdre du [[Liban]]

@@ -11,6 +11,14 @@ Intitulé **L'espérance du salut : Une espérance vivante** par [[Bible#^358f23
 7) celles-ci servent à éprouver la valeur de votre foi. Le feu du creuset n’éprouve-t-il pas l’or qui pourtant disparaîtra un jour ? Pourtant, votre foi qui a résisté à l’épreuve a une valeur beaucoup plus précieuse. Elle vous vaudra louange, gloire et honneur, lorsque [[Jésus|Jésus-Christ]] apparaîtra.
 8) [[Jésus]], vous ne l’avez pas vu, et pourtant vous l’aimez ; mais en plaçant votre confiance en lui sans le voir encore, vous êtes remplis d’une joie glorieuse et inexprimable,
 9) car vous obtenez en retour votre salut qui est le but de votre foi.
+## Chapitre 5
+### Versets 8 à 11
+Intitulé **Encouragements** par [[Bible#^358f23|BDS]]
+
+8) Faites preuve de modération et soyez vigilants. Votre adversaire, [[Satan|le diable]], rôde autour de vous comme un lion rugissant, qui cherche quelqu’un à dévorer.
+9) Résistez-[[Satan|lui]] en demeurant fermes dans votre foi, car vous savez que vos frères et sœurs dispersés à travers le monde connaissent les mêmes souffrances.
+10) Mais quand vous aurez souffert un peu de temps, [[Dieu|Dieu]], l’auteur de toute grâce, qui vous a appelés à connaître [[Dieu|sa]] gloire éternelle dans l’union à [[Jésus|Jésus-Christ]], vous rétablira [[Dieu|lui-même]] ; [[Dieu|il]] vous affermira, vous fortifiera et vous rendra inébranlables.
+11) A [[Dieu|lui]] appartient la puissance pour toujours. Amen !
 ## Chapitre 2
 ### Versets 18 à 25
 Intitulé **Vivre dans un monde hostile : Les esclaves et leurs maîtres** par [[Bible#^358f23|BDS]]

@@ -3,7 +3,39 @@ Intitulé **La fuite de [[Jonas]]** par [[Bible#^358f23|BDS]]
 1) L’[[Dieu|Eternel]] adressa la parole à [[Jonas]], fils d’Amittaï, en ces termes :
 2) Mets-toi en route, va à [[Ninive]] la grande ville et proclame des menaces contre ses habitants, car l’écho de leur méchanceté est parvenu jusqu’à [[Dieu|moi]].
 3) [[Jonas]] se mit en route pour s’enfuir à [[Tarsis]], loin de la présence de l’[[Dieu|Eternel]]. Il descendit au port de [[Jaffa]], où il trouva un navire en partance pour [[Tarsis]]. Il paya le prix de la traversée et descendit dans le bateau pour aller avec l’équipage à [[Tarsis]], loin de la présence de l’[[Dieu|Eternel]].
+### Chapitre 2
+Intitulé **Prière de [[Jonas|Jonas]] au fond des mers** par [[Bible#^358f23|BDS]]
 
+1) L’[[Dieu|Eternel]] fit venir un grand poisson pour avaler [[Jonas|Jonas]]. Durant trois jours et trois nuits, [[Jonas|Jonas]] resta dans le ventre du poisson.
+2) Dans le ventre du poisson, [[Jonas|il]] adressa cette prière à l’[[Dieu|Eternel]] [[Jonas|son]] [[Dieu|Dieu]] :
+3) Dans [[Jonas|ma]] détresse, ╵[[Jonas|moi, j']]’ai crié à l’[[Dieu|Eternel]]
+   et [[Dieu|il]] [[Jonas|m]]’a répondu.
+   Oui, du cœur du séjour des morts
+   [[Jonas|j]]’ai crié au secours
+   et [[Dieu|tu]] [[Jonas|m]]’as entendu.
+4) [[Dieu|Tu]] [[Dieu|m]]’avais jeté dans l’abîme ╵au fond des mers
+   et les courants m’ont encerclé,
+   tous [[Dieu|tes]] flots et [[Dieu|tes]] vagues ╵ont déferlé sur [[Jonas|moi]].
+5) [[Jonas|Je me]] disais :
+   [[Jonas|Je]] suis chassé de devant [[Dieu|toi]].
+   Pourtant, [[Jonas|je]] reverrai ╵[[Dieu|ton]] temple saint.
+6) Les eaux [[Jonas|m]]’environnaient ╵et menaçaient [[Jonas|ma]] vie,
+   l’abîme [[Jonas|m]]’enserrait  ;
+   tout autour de [[Jonas|ma]] tête, ╵les algues s’enlaçaient.
+7) Et [[Jonas|je]] suis descendu ╵jusqu’au tréfonds des mers ╵où naissent les montagnes.
+   La terre avait déjà ╵tiré derrière [[Jonas|moi]] ╵ses verrous pour toujours.
+   Mais du fond de la fosse ╵[[Dieu|tu]] [[Jonas|m]]’as fait remonter vivant,
+   ô [[Dieu|Eternel]], [[Jonas|mon]] [[Dieu|Dieu]]  !
+8) Quand [[Jonas|je]] désespérais ╵de conserver la vie,
+   [[Jonas|je me]] suis souvenu ╵de [[Dieu|toi]], ô [[Dieu|Eternel]],
+   et [[Jonas|ma]] prière ╵est montée jusqu’à [[Dieu|toi]],
+   jusqu’à [[Dieu|ton]] temple saint.
+9) Ceux qui s’attachent ╵à de vaines idoles
+   se privent de la grâce.
+10) Mais [[Jonas|moi je]] [[Dieu|t]]’offrirai ╵un sacrifice ╵en disant [[Jonas|ma]] reconnaissance,
+    et [[Jonas|je m]]’acquitterai ╵des vœux que [[Jonas|j]]’ai formés,
+    car c’est de l’[[Dieu|Eternel]] ╵que vient la délivrance.
+11) L’[[Dieu|Eternel]] parla au poisson qui rejeta [[Jonas|Jonas]] sur la terre ferme.
 ## Chapitre 3
 Intitulé **La conversion de [[Ninive]]** par [[Bible#^358f23|BDS]]
 ### Versets 1 à 4

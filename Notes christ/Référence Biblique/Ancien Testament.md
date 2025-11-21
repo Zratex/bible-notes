@@ -42,7 +42,7 @@ Il a comme appellation "la loi et les prophéties" ou "**les Ecritures**" dans l
 	- [[30 - Amos|Amos]]
 	- [[31 - Abdias|Abdias]]
 	- [[32 - Jonas|Jonas]]
-	- Michée
+	- [[33 - Michée|Michée]]
 	- Nahum
 	- [[35 - Habakuk|Habakuk]]
 	- Sophonie

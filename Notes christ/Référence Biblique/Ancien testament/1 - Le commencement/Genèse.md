@@ -163,6 +163,20 @@ Intitulé **L'histoire de la famille d'[[Adam]] - d'[[Adam]] aux fils de [[Noé]
 30) Après cela, [[Lémek|Lémek]] vécut encore 595 ans, et il eut d’autres enfants.
 31) [[Lémek|Il]] mourut à l’âge de 777 ans.
 32) Quand [[Noé|Noé]] fut âgé de 500 ans, il eut pour fils [[Sem|Sem]], [[Cham|Cham]] et [[Japhet|Japhet]].
+## Chapitre 7
+### Versets 1 à 10
+Intitulé **L'embarquement** par [[Bible#^358f23|BDS]]
+
+1) Puis l’[[Dieu|Eternel]] dit à [[Noé|Noé]] : Entre dans le bateau, [[Noé|toi]] et toute ta famille car [[Dieu|je]] ne vois que [[Noé|toi]] qui sois juste parmi tes contemporains.
+2) Prends sept couples des animaux purs, sept mâles et sept femelles, et un couple de tous les animaux qui ne sont pas purs, le mâle et sa femelle.
+3) Prends aussi sept couples de chaque espèce d’oiseaux pour en perpétuer la race sur toute la terre.
+4) Car dans sept jours, [[Dieu|je]] vais faire pleuvoir sur la terre durant quarante jours et quarante nuits et [[Dieu|j]]’effacerai de la surface de la terre tous les êtres que [[Dieu|j]]’ai créés.
+5) [[Noé|Noé]] fit tout ce que l’[[Dieu|Eternel]] lui avait ordonné.
+6) [[Noé|Noé]] était âgé de six cents ans quand le déluge vint sur la terre.
+7) [[Noé|Il]] entra dans le bateau avec ses fils, sa femme et ses belles-filles pour échapper aux eaux du déluge.
+8) Un couple d’animaux – un mâle et une femelle de ceux qui sont purs et de ceux qui ne le sont pas – ainsi que des oiseaux et de tout ce qui se meut à ras de terre
+9) deux par deux, vinrent trouver [[Noé|Noé]] pour entrer dans le bateau, comme [[Dieu|Dieu l]]’avait prescrit à [[Noé|Noé]].
+10) Au bout de sept jours, les eaux du déluge s’abattirent sur la terre.
 ## Chapitre 12
 ### Versets 1 à 9
 Intitulé **L'appel d'[[Abraham|Abram]]** par [[Bible#^358f23|BDS]]

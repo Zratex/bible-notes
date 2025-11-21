@@ -241,6 +241,45 @@ Intitulé **[[Jésus|Jésus]] guérit un malade et pardonne ses péchés** par [
    Alors [[Jésus|il]] dit au paralysé : **[[Jésus|Je]] te l’ordonne : lève-toi, prends ton brancard, et rentre chez toi !**
 7) Le paralysé se leva et s’en alla chez lui.
 8) En voyant cela, les foules furent saisies de frayeur et rendirent gloire à [[Dieu|Dieu]] qui avait donné aux hommes un si grand pouvoir.
+## Chapitre 10
+### Versets 16 à 25
+Intitulé **Les difficultés de la mission** par [[Bible#^358f23|BDS]]
+>Ce passage fait écho à [[2nd Evangile - Marc#Chapitre 13|Marc 13:9-13]] et [[3eme Evangile - Luc#Versets 5 à 38|Luc 21:12-19]] :
+
+16) **Voici : [[Jésus|moi, je]] vous envoie comme des brebis au milieu des loups. Soyez prudents comme des serpents et innocents comme des colombes.**
+17) **Soyez sur vos gardes ; car on vous traduira devant les tribunaux des [[Israël|Juifs]] et l’on vous fera fouetter dans leurs synagogues.**
+18) **On vous forcera à comparaître devant des gouverneurs et des rois à cause de [[Jésus|moi]] pour leur apporter un témoignage, ainsi qu’aux non-[[Israël|Juifs]].**
+19) **Lorsqu’on vous livrera aux autorités, ne vous inquiétez ni du contenu ni de la forme de ce que vous direz, car cela vous sera donné au moment même.**
+20) **En effet, ce n’est pas vous qui parlerez, ce sera l’[[Saint-Esprit|Esprit]] de votre [[Dieu|Père]] qui parlera par votre bouche.**
+21) **Le frère livrera son propre frère pour le faire condamner à mort, et le père livrera son enfant. Des enfants se dresseront contre leurs parents et les feront mettre à mort.**
+22) **Tout le monde vous haïra à cause de [[Jésus|moi]]. Mais celui qui tiendra bon jusqu’au bout sera sauvé.**
+23) **Si l’on vous persécute dans une ville, fuyez dans une autre ; vraiment, [[Jésus|je]] vous l’assure : vous n’achèverez pas le tour des villes d’[[Israël|Israël]] avant que [[Jésus|le Fils de l’homme]] vienne.**
+24) **Le disciple n’est pas plus grand que celui qui l’enseigne, ni le serviteur supérieur à son maître.**
+25) **Il suffit au disciple d’être comme celui qui l’enseigne et au serviteur d’être comme son maître. S’ils ont traité le maître de la maison de [[Satan|Béelzébul]], que diront-ils de ceux qui font partie de cette maison ?**
+### Versets 26 à 42
+Intitulé **Prendre courage pour la mission** par [[Bible#^358f23|BDS]]
+>Ces 8 prochains versets font écho à [[3eme Evangile - Luc#Versets 1 à 12|Luc 12:2-9]] :
+
+26) **N’ayez donc pas peur de ces gens-là ! Car tout ce qui est tenu secret sera dévoilé, et tout ce qui est caché finira par être connu.**
+27) **Ce que [[Jésus|je]] vous dis en secret, répétez-le en plein jour. Ce qu’on vous chuchote dans le creux de l’oreille, criez-le du haut des toits.**
+28) **Ne craignez donc pas ceux qui peuvent tuer le corps, mais qui n’ont pas le pouvoir de faire mourir l’âme. Craignez plutôt celui qui peut vous faire périr corps et âme dans l’enfer.**
+29) **Ne vend-on pas une paire de moineaux pour un sou ? Et pourtant, pas un seul d’entre eux ne tombe à terre sans le consentement de votre [[Dieu|Père]].**
+30) **Quant à vous, même les cheveux de votre tête sont tous comptés.**
+31) **N’ayez donc aucune crainte, car vous, vous avez plus de valeur que toute une volée de moineaux.**
+32) **C’est pourquoi, celui qui se déclarera pour [[Jésus|moi]] devant les hommes, [[Jésus|je me]] déclarerai [[Jésus|moi]] aussi pour lui devant [[Jésus|mon]] [[Dieu|Père céleste]].**
+33) **Mais celui qui aura prétendu ne pas [[Jésus|me]] connaître devant les hommes, [[Jésus|je]] ne le reconnaîtrai pas non plus devant mon [[Dieu|Père céleste]].**
+>Ces 3 prochains versets font écho à [[3eme Evangile - Luc#Versets 49 à 53|Luc 12:51-53 :]]
+34) **Ne croyez pas que [[Jésus|je]] sois venu apporter la paix sur terre : [[Jésus|je]] ne suis pas venu apporter la paix, mais l’épée.**
+35) **Oui, [[Jésus|je]] suis venu opposer *[[33 - Michée#Versets 1 à 7|le fils à son père, la fille à sa mère, la belle-fille à sa belle-mère :]]****
+36) ***[[33 - Michée#Versets 1 à 7|on aura pour ennemis les gens de sa propre famille]]*.**
+>Ces 3 prochains versets font écho à [[3eme Evangile - Luc#Versets 25 à 35|Luc 14:26-27]] :
+37) **Celui qui aime son père ou sa mère plus que [[Jésus|moi]] n’est pas digne de [[Jésus|moi]]. Celui qui aime son fils ou sa fille plus que [[Jésus|moi]] n’est pas digne de [[Jésus|moi]].**
+38) **Et celui qui ne se charge pas de sa croix et ne [[Jésus|me]] suit pas n’est pas digne de [[Jésus|moi]].**
+39) **Celui qui cherche à sauver sa vie la perdra ; et celui qui aura perdu sa vie à cause de [[Jésus|moi]] la retrouvera.**
+>La suite de ce passage fait écho à [[2nd Evangile - Marc#Versets 33 à 50|Marc 9:41]] :
+40) **Si quelqu’un vous accueille, c’est [[Jésus|moi]] qu’il accueille. Or celui qui [[Jésus|m]]’accueille, accueille [[Dieu|celui]] qui [[Jésus|m]]’a envoyé.**
+41) **Celui qui accueille un prophète parce qu’il est un prophète recevra la même récompense que le prophète. Et celui qui accueille un juste parce que c’est un juste aura la même récompense que le juste.**
+42) **Si quelqu’un donne à boire, ne serait-ce qu’un verre d’eau fraîche, au plus petit de [[Jésus|mes]] disciples parce qu’il est [[Jésus|mon]] disciple, vraiment, [[Jésus|je]] vous l’assure, il ne perdra pas sa récompense.**
 ## Chapitre 11
 1) Quand [[Jésus|Jésus]] eut achevé de donner ces instructions à [[Jésus|ses]] [[Apôtres|douze disciples]], [[Jésus|il]] partit de là pour enseigner et prêcher dans les villes de la région.
 ### Versets 2 à 19
@@ -284,6 +323,38 @@ Intitulé **L’[[Évangile|Évangile]] et la montée de l’opposition - Les re
 28) **Venez à [[Jésus|moi]], vous tous qui êtes accablés sous le poids d’un lourd fardeau, et [[Jésus|je]] vous donnerai du repos.**
 29) **Prenez [[Jésus|mon]] joug sur vous et mettez-vous à mon école, car [[Jésus|je]] suis doux et humble de cœur, et vous trouverez le repos pour vous-mêmes.**
 30) **Oui, [[Jésus|mon]] joug est facile à porter et la charge que [[Jésus|je]] vous impose est légère.**
+## Chapitre 12
+### Versets 22 à 45
+Intitulé **[[Dieu|Dieu]] ou [[Satan|Satan]]** par [[Bible#^358f23|BDS]]
+>Les 11 prochains versets font écho à [[2nd Evangile - Marc#Versets 20 à 30|Marc 3:20-30]], [[3eme Evangile - Luc#Versets 14 à 28|Luc 11:14-23]] et [[3eme Evangile - Luc#Versets 1 à 12|Luc 12:10]] :
+
+22) On [[Jésus|lui]] amena encore un homme qui était sous l’emprise d’un démon qui le rendait aveugle et muet. [[Jésus|Jésus]] le guérit, et l’homme put de nouveau parler et voir.
+23) La foule, stupéfaite, disait : Cet homme n’est-il pas le [[Jésus|Fils]] de [[David|David]] ?
+24) Les pharisiens, ayant appris ce qu’on disait de [[Jésus|lui]], déclarèrent : Si [[Jésus|cet homme]] chasse les démons, c’est par le pouvoir de [[Satan|Béelzébul, le chef des démons]].
+25) Mais [[Jésus|Jésus]], connaissant leurs pensées, leur dit : **Tout royaume déchiré par la guerre civile est dévasté. Aucune ville, aucune famille divisée ne peut subsister.**
+26) **Si donc [[Satan|Satan]] se met à chasser [[Satan|Satan]], [[Satan|il]] est en conflit avec [[Satan|lui-même]]. Comment alors [[Satan|son]] royaume subsistera-t-il ?**
+27) **D’ailleurs, si [[Jésus|moi je]] chasse les démons par [[Satan|Béelzébul]], qui donc donne à vos disciples le pouvoir de les chasser ? C’est pourquoi ils seront eux-mêmes vos juges.**
+28) **Mais si c’est par l’[[Saint-Esprit|Esprit]] de [[Dieu|Dieu]] que [[Jésus|je]] chasse les démons, alors, de toute évidence, le [[Royaume de Dieu|royaume de Dieu]] est venu jusqu’à vous.**
+29) **Ou encore : Comment quelqu’un peut-il pénétrer dans la maison d’un homme fort et s’emparer de ses biens s’il n’a pas, tout d’abord, ligoté cet homme fort ? C’est alors qu’il pillera sa maison.**
+30) **Celui qui n’est pas avec [[Jésus|moi]] est contre [[Jésus|moi]], et celui qui ne se joint pas à [[Jésus|moi]] pour rassembler, disperse.**
+31) **C’est pourquoi [[Jésus|je]] vous avertis : tout péché, tout blasphème sera pardonné aux hommes mais pas le blasphème contre le [[Saint-Esprit|Saint-Esprit]].**
+32) **Si quelqu’un dit une parole contre [[Jésus|le Fils de l’homme]], il lui sera pardonné ; mais si quelqu’un parle contre le [[Saint-Esprit|Saint-Esprit]], il ne recevra pas le pardon, ni dans la vie présente ni dans le monde à venir.**
+>Ces 5 prochains versets font écho à [[3eme Evangile - Luc#Versets 27 à 45|Luc 6:43-45]] :
+33) **Considérez ou bien que l’arbre est bon et que son fruit est bon, ou bien que l’arbre est mauvais et que son fruit est mauvais, car c’est à son fruit que l’on reconnaît l’arbre.**
+34) **Espèces de vipères ! Comment pouvez-vous tenir des propos qui soient bons alors que vous êtes mauvais ? Car ce qu’on dit vient de ce qui remplit le cœur.**
+35) **L’homme qui est bon tire de bonnes choses du bon trésor qui est en lui ; mais l’homme qui est mauvais tire de mauvaises choses du mauvais trésor qui est en lui.**
+36) **Or, [[Jésus|je]] vous le déclare, au jour du jugement les hommes rendront compte de toute parole sans fondement qu’ils auront prononcée.**
+37) **En effet, c’est en fonction de tes propres paroles que tu seras déclaré juste, ou que tu seras condamné.**
+>Ces 5 prochains versets font écho à [[2nd Evangile - Marc#Versets 11 à 21|Marc 8:11-12]] et [[3eme Evangile - Luc#Versets 29 à 36|Luc 11:29-32]] :
+38) Quelques spécialistes de la [[La Loi de Dieu|Loi]] et des pharisiens intervinrent en disant : [[Jésus|Maître]], nous voudrions [[Jésus|te]] voir faire un signe miraculeux.
+39) [[Jésus|Il]] leur répondit : **Ces gens de notre temps qui sont mauvais et infidèles à [[Dieu|Dieu]] réclament un signe miraculeux ! Un signe… il ne leur en sera pas accordé d’autre que celui du prophète [[Jonas|Jonas]].**
+40) **En effet, comme *[[32 - Jonas#Chapitre 2|Jonas resta trois jours et trois nuits dans le ventre du poisson]]*, ainsi le [[Jésus|Fils de l’homme]] passera trois jours et trois nuits dans le sein de la terre.**
+41) **Au jour du jugement, les habitants de [[Ninive|Ninive]] se lèveront et condamneront les gens de notre temps, car ils ont changé en réponse à la prédication de [[Jonas|Jonas]]. Or, il y a ici plus que [[Jonas|Jonas]].**
+42) **Au jour du jugement, [[Reine de Saba|la reine du Midi]] se lèvera et condamnera les gens de notre temps, car [[Reine de Saba|elle]] est venue du bout du monde pour écouter l’enseignement plein de [[Sagesse|sagesse]] de [[Salomon|Salomon]]. Or, il y a ici plus que [[Salomon|Salomon]] !**
+>La suite du passage fait écho à [[3eme Evangile - Luc#Versets 14 à 28|Luc 11:24-26]] :
+43) **Lorsqu’un esprit mauvais est sorti de quelqu’un, il erre çà et là dans des lieux déserts, à la recherche d’un lieu de repos, et il n’en trouve pas.**
+44) **Il se dit alors : « Mieux vaut regagner la demeure que j’ai quittée. » Il y retourne donc et la trouve vide, balayée et mise en ordre.**
+45) **Alors il va chercher sept autres esprits encore plus méchants que lui et les amène avec lui. Ils entrent dans la demeure et s’y installent. Finalement, la condition de cet homme est pire qu’avant. C’est exactement ce qui arrivera à ces gens de notre temps qui sont mauvais.**
 ## Chapitre 13
 ### Versets 54 à 58
 Intitulé **[[Jésus]] rejeté à [[Nazareth]]** par [[Bible#^358f23|BDS]]
@@ -419,6 +490,47 @@ Intitulé **La malédiction du figuier** par [[Bible#^358f23|BDS]]
 20) En voyant cela, les disciples furent très étonnés et s’écrièrent : Comment ce figuier est-il devenu sec en un instant ?
 21) **– Vraiment, [[Jésus|je]] vous l’assure,** répondit [[Jésus|Jésus]], **si vous avez la foi, si vous ne doutez pas, non seulement vous pourrez accomplir ce que [[Jésus|j]]’ai fait à ce figuier, mais même si vous dites à cette colline : « Soulève-toi de là et jette-toi dans la mer », cela se fera.**
 22) **Si vous priez avec foi, tout ce que vous demanderez, vous l’obtiendrez.**
+## Chapitre 23
+### Versets 1 à 36
+Intitulé **La condamnation des chefs religieux** par [[Bible#^358f23|BDS]]
+>Ce passage fait écho à [[2nd Evangile - Marc#Versets 38 à 40|Marc 12:38-40]], [[3eme Evangile - Luc#Versets 37 à 52|Luc 11:39-52]] et [[3eme Evangile - Luc#Versets 45 à 47|Luc 20:45-47]] :
+
+1) Alors [[Jésus|Jésus, s]]’adressant à la foule et à [[Jésus|ses]] disciples, dit :
+2) **Les spécialistes de la [[La Loi de Dieu|Loi]] et les pharisiens sont chargés d’enseigner la [[La Loi de Dieu|Loi]] de [[Moïse|Moïse]].**
+3) **Faites donc tout ce qu’ils vous disent, et réglez votre conduite sur leur enseignement. Mais gardez-vous de prendre modèle sur leurs actes, car ils parlent d’une manière et agissent d’une autre.**
+4) **Ils lient de pesants fardeaux et les placent sur les épaules des hommes ; mais ils ne bougeraient même pas le petit doigt pour les déplacer.**
+5) **Dans tout ce qu’ils font, ils agissent pour être vus des hommes. Ainsi, les petits coffrets à versets qu’ils portent pendant la prière sont plus grands que ceux des autres, et les franges de leurs manteaux plus longues.**
+6) **Ils affectionnent les meilleures places dans les banquets et les sièges d’honneur dans les synagogues.**
+7) **Ils aiment qu’on les salue sur les places publiques et qu’on les appelle « Maître ».**
+8) **Mais vous, ne vous faites pas appeler « Maître », car pour vous, il n’y a qu’un seul [[Jésus|Maître]], et vous êtes tous frères.**
+9) **Ne donnez pas non plus à quelqu’un, ici-bas, le titre de « Père », car pour vous, il n’y a qu’un seul [[Dieu|Père : le Père céleste]].**
+10) **Ne vous faites pas non plus appeler chefs, car un seul est votre [[Jésus|Chef : Christ]].**
+11) **Le plus grand parmi vous sera votre serviteur.**
+12) **Car celui qui s’élève sera abaissé ; et celui qui s’abaisse sera élevé.**
+13) **Malheur à vous, spécialistes de la [[La Loi de Dieu|Loi]] et pharisiens hypocrites ! Parce que vous barrez aux autres l’accès au [[Royaume de Dieu|royaume des cieux]]. Non seulement vous n’y entrez pas vous-mêmes, mais vous empêchez d’entrer ceux qui voudraient le faire !**
+14) **[Malheur à vous, spécialistes de la [[La Loi de Dieu|Loi]] et pharisiens hypocrites, car vous dépouillez les veuves de leurs biens, tout en faisant de longues prières pour l’apparence. C’est pourquoi votre condamnation n’en sera que plus sévère.]**
+15) **Malheur à vous, spécialistes de la [[La Loi de Dieu|Loi]] et pharisiens hypocrites ! Vous parcourez terre et mer pour amener ne fût-ce qu’un seul païen à votre religion, et quand vous l’avez gagné, vous lui faites mériter l’enfer deux fois plus que vous.**
+16) **Malheur à vous, guides aveugles ! En effet, vous dites : Si quelqu’un jure « par le Temple  », il n’est pas tenu par son serment, mais s’il jure « par l’or du Temple », il doit tenir son serment.**
+17) **Insensés et aveugles que vous êtes ! Qu’est-ce qui est plus important : l’or ou le Temple qui rend cet or sacré ?**
+18) **Ou bien vous dites : Si quelqu’un jure « par l’autel », il n’est pas tenu par son serment ; mais s’il jure « par l’offrande qui est sur l’autel », il doit tenir son serment.**
+19) **Aveugles que vous êtes ! Qu’est-ce qui est plus important : l’offrande ou l’autel qui rend cette offrande sacrée ?**
+20) **En fait, celui qui jure « par l’autel », jure à la fois par l’autel et par tout ce qui est dessus.**
+21) **Celui qui jure « par le Temple », jure à la fois par le Temple et par celui qui y habite.**
+22) **Celui qui jure « par le ciel », jure à la fois par le trône de [[Dieu|Dieu]] et par celui qui y siège.**
+23) **Malheur à vous, spécialistes de la [[La Loi de Dieu|Loi]] et pharisiens hypocrites ! Vous vous acquittez de la dîme sur la menthe, l’anis et le cumin, mais vous laissez de côté ce qu’il y a de plus important dans la [[La Loi de Dieu|Loi]], c’est-à-dire la justice, la compassion et la fidélité. Voilà ce qu’il fallait pratiquer, sans négliger le reste.**
+24) **Guides aveugles que vous êtes ! Vous filtrez vos boissons pour éliminer le moindre moucheron, mais vous avalez le chameau tout entier.**
+25) **Malheur à vous, spécialistes de la [[La Loi de Dieu|Loi]] et pharisiens hypocrites ! Vous nettoyez soigneusement l’extérieur de vos coupes et de vos assiettes, mais vous les remplissez du produit de vos vols et de vos désirs incontrôlés.**
+26) **Pharisien aveugle, commence donc par purifier l’intérieur de la coupe et de l’assiette, alors l’extérieur sera pur.**
+27) **Malheur à vous, spécialistes de la [[La Loi de Dieu|Loi]] et pharisiens hypocrites ! Vous êtes comme ces tombeaux crépis de blanc, qui sont beaux au-dehors. Mais à l’intérieur, il n’y a qu’ossements de cadavres et pourriture.**
+28) **Vous de même, à l’extérieur, vous avez l’air d’être justes aux yeux des hommes, mais, à l’intérieur, il n’y a qu’hypocrisie et désobéissance à [[Dieu|Dieu]].**
+29) **Malheur à vous, spécialistes de la [[La Loi de Dieu|Loi]] et pharisiens hypocrites ! Vous édifiez des tombeaux aux prophètes, vous couvrez d’ornements ceux des justes.**
+30) **Vous dites : Si nous avions vécu du temps de nos ancêtres, nous ne nous serions pas associés à eux pour tuer les prophètes.**
+31) **En disant cela, vous attestez vous-mêmes que vous êtes bien les descendants de ceux qui ont fait périr les prophètes.**
+32) **Eh bien, ce que vos pères ont commencé, portez-le à son comble !**
+33) **Serpents, race de vipères ! Comment pouvez-vous penser que vous éviterez le châtiment de l’enfer ?**
+34) **En effet, [[Jésus|je]] vais vous envoyer des prophètes, des sages et des spécialistes de l’[[Ancien Testament|Ecriture]] : vous allez tuer ou crucifier les uns, fouetter les autres dans vos synagogues, et les persécuter d’une ville à l’autre,**
+35) **pour que retombe sur vous le châtiment qu’appelle le meurtre de tous les innocents, depuis celui d’[[Abel|Abel]], le juste, jusqu’à celui de [[Zacharie (fils de Yehoyada)|Zacharie, fils de Barachie]], que vous avez assassiné entre le Temple et l’autel du sacrifice.**
+36) **Oui, vraiment, [[Jésus|je]] vous l’assure : le châtiment mérité par tous ces meurtres retombera sur les hommes de cette génération.**
 ## Chapitre 24
 Intitulé **La suite des temps** par [[Bible#^358f23|BDS]]
 ### Versets 1 à 35

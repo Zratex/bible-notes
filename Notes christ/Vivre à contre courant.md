@@ -1,6 +1,6 @@
 Message partagé par Tarik le 16/11/2025
 
-Le monde témoigne que la [[Bible]] est à contre courant, voir même que le monde mène à sa perte, et cela est du au fait que le monde se laisse couler.
+Le monde témoigne que la [[Bible]] est à contre courant, voir même que le monde mène à sa propre perte, et cela est du au fait que le monde se laisse couler.
 La source de cette rivière est devant nous et nous devons nous diriger vers celle ci, ce qui est difficile puisse que dans ce cas on se retrouve à contre-courant.
 
 Mais il est à noter que :
@@ -24,14 +24,14 @@ Si **nous ne sommes pas libre à cause de la [[La Loi de Dieu|loi]], c'est parce
 	- Comparaison de la rivière : **nager dans le sens du courant**
 
 **Pour aller à la source**, il faut tenir ferme et **c'est difficile**. Mais :
-- [[Jésus]] nous a montré que cela est possible
+- [[Jésus]] nous a montré que cela est possible en venant sur Terre
 - Le [[Saint-Esprit]] nous appuie pour y arriver
 
-[[1er Evangile - Matthieu#Versets 1 à 20|Matthieu 7:13]] : [[Jésus]] à lui même dit que beaucoup se perdent, mais si on ne suis pas le mouvement de la foule/majorité, de ce fait on passe par la porte étroite, et par définition c'est pas simple
+[[1er Evangile - Matthieu#Versets 1 à 20|Matthieu 7:13]] : [[Jésus]] à lui même dit que beaucoup se perdent, mais si on ne suis pas le mouvement de la foule/majorité, de ce fait on passe par la porte étroite, et par définition c'est pas simple.
 Mais ça vaut la peine de tenir jusqu'au bout : [[1er Evangile - Matthieu#Versets 1 à 20|Matthieu 7:14]]
 -> [[Jésus]] déclare ça après le sermon sur la montagne, ce qui inclus notamment qu'il ait expliqué comment on doit se conduire (béatitudes : [[1er Evangile - Matthieu#Versets 3 à 12|Matthieu 5:3-12]])
 
-[[1er Evangile - Matthieu#Versets 3 à 12|Matthieu 5:11]] : malheur à nous si on dit de mauvaise chose à notre propos, mais **heureux si ils disent de mauvaises choses à cause de [[Jésus]]** car cela reflète qu'on suis bien [[Jésus]], et au bout d'un moment ça paie
+[[1er Evangile - Matthieu#Versets 3 à 12|Matthieu 5:11]] : malheur à nous si on dit de mauvaise chose à notre propos, mais **heureux si ils disent de mauvaises choses de nous à cause de [[Jésus]]** car cela reflète qu'on suis bien [[Jésus]], et au bout d'un moment ça paie
 <u>À noter :</u> celui qui dit non sur une façon d'agir par exemple, pousse la personne en face à réfléchir, et donc peut impacter son cœur car elle peut percevoir qu'on est solide/intègre.
 
 [[Paul]] avait dit qu'il a combattu le bon combat -> ça veut donc dire qu'en allant à contre courant il y a des oppositions
@@ -40,14 +40,17 @@ Mais ça vaut la peine de tenir jusqu'au bout : [[1er Evangile - Matthieu#Verset
 <u>Comparaison :</u> les saumons remontent les rivières pour donner la vie
 
 [[1er Evangile - Matthieu#Versets 21 à 48|Matthieu 5:44]] : aimer ses ennemis c'est contraire à notre nature humaine, mais [[Jésus]] nous ordonne à vivre comme ça
--> mais si [[Jésus]] la dit ça veut dire que c'est possible, car [[Dieu]] nous donne cette force
+-> mais si [[Jésus]] l'a dit, ça veut dire que c'est possible, car [[Dieu]] nous donne cette force au travers du [[Saint-Esprit]]
 
-[[3eme Evangile - Luc#Versets 46 à 50|Luc 9:48]] : ce n'est pas logique du POV humain, mais [[Jésus]] a dit la vérité : `Matthieu 23:11` même si c'est l'inverse de la conception de ce monde
+```
+[...] celui qui est le plus petit parmi vous, c’est celui-là qui est grand. - Luc 9:48
+```
+[[3eme Evangile - Luc#Versets 46 à 50|Luc 9:48]] et [[1er Evangile - Matthieu#Versets 1 à 36|Matthieu 23:11]] : ce n'est pas logique du POV humain et c'est donc l'inverse de la conception de ce monde, **mais [[Jésus]] a dit la vérité**
 
-[[Jésus]] nous a envoyé le [[Saint-Esprit]] pour pouvoir faire celà chaques jours
-Et grâce à lui, nous sommes appelés à être vainqueur : `Romains 8:13-15`
+[[Jésus]] nous a envoyé le [[Saint-Esprit]] pour pouvoir faire cela chaque jours
+Et grâce à [[Jésus|lui]], nous sommes appelés à être vainqueur : [[6 - Romains#Versets 1 à 17|Romains 8:13-15]] 
 ## Conclusion
-`Romains 12:2`
+[[6 - Romains#Versets 1 et 2|Romains 12:2]] : il ne faut pas se conformer au monde, et donc d'aller dans le sens du courant
 
-`1 Pierre 5:8` : nous sommes plus que vainqueur en [[Jésus]], et il faut nous alimenter de la [[Bible]]
-`1 Pierre 5:9` : il faut demeurer ferme, et chaque chrétiens a ce même combat ce qui nous fortifie. Car nous communiquons la vie là où la mort reigne
+[[20&21 - Pierre#Versets 8 à 11|1 Pierre 5:8]] : nous sommes plus que vainqueur en [[Jésus]], et il faut nous alimenter de la [[Bible]]
+[[20&21 - Pierre#Versets 8 à 11|1 Pierre 5:9]] : il faut demeurer ferme, et chaque chrétiens a ce même combat ce qui nous fortifie. Car ce même combat est que ==nous communiquons la vie là où la mort règne==

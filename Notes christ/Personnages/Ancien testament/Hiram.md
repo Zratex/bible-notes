@@ -1,0 +1,1 @@
+**Hiram** serait vraisemblablement un artisan du bronze dans `1 Rois 7:13` de la tribu de [[Dan]], qui a aidé à la construction du temple de [[Salomon]]

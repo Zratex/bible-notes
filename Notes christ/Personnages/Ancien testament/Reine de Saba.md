@@ -1,0 +1,1 @@
+La **Reine du Midi** (ou Reine du royaume de [[Saba|Saba]]) est montée en [[Israël]] pour mettre à l'épreuve la sagesse de [[Salomon]] dans [[11&12 - Rois#Versets 1 à 10|1 Rois 10:1-10]] et [[12&13 - Chroniques#Versets 1 à 12|1 Chroniques 9:1-12]]

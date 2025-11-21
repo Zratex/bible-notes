@@ -20,20 +20,6 @@
               "icon": "lucide-file",
               "title": "Vivre à contre courant"
             }
-          },
-          {
-            "id": "3085fb470521fe93",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.md",
-                "mode": "source",
-                "source": false
-              },
-              "icon": "lucide-file",
-              "title": "1er Evangile - Matthieu"
-            }
           }
         ]
       }
@@ -108,7 +94,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Vie équilibré.md",
+                "file": "Vivre à contre courant.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -118,7 +104,7 @@
                 "unlinkedCollapsed": true
               },
               "icon": "links-coming-in",
-              "title": "Backlinks for Vie équilibré"
+              "title": "Backlinks for Vivre à contre courant"
             }
           },
           {
@@ -127,12 +113,12 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "Vie équilibré.md",
+                "file": "Vivre à contre courant.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               },
               "icon": "links-going-out",
-              "title": "Outgoing links from Vie équilibré"
+              "title": "Outgoing links from Vivre à contre courant"
             }
           },
           {
@@ -142,7 +128,9 @@
               "type": "tag",
               "state": {
                 "sortOrder": "frequency",
-                "useHierarchy": true
+                "useHierarchy": true,
+                "showSearch": false,
+                "searchQuery": ""
               },
               "icon": "lucide-tags",
               "title": "Tags"
@@ -174,7 +162,8 @@
               "title": "all-properties"
             }
           }
-        ]
+        ],
+        "currentTab": 1
       }
     ],
     "direction": "horizontal",
@@ -194,32 +183,38 @@
   },
   "active": "3cf5f68be44d4c98",
   "lastOpenFiles": [
-    "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.md",
+    "di.md",
     "Référence Biblique/Nouveau testament/1 -Evangiles/2nd Evangile - Marc.md",
-    "Référence Biblique/Nouveau testament/1 -Evangiles/3eme Evangile - Luc.md",
     "Vivre à contre courant.md",
-    "Référence Biblique/Ancien testament/2 - La loi de Dieu/5 - Deutéronome.md",
-    "Référence Biblique/Ancien testament/2 - La loi de Dieu/3 - Lévitique.md",
-    "Référence Biblique/Ancien testament/2 - La loi de Dieu/2 - Exode.md",
-    "Référence Biblique/Ancien testament/2 - La loi de Dieu/4 - Nombres.md",
-    "Référence Biblique/Ancien testament/7 - Seconds livres prophétiques/39 - Malachie.md",
-    "Personnages/Ancien testament/Juges/Eli.md",
-    "Personnages/Ancien testament/Prophètes/Elie.md",
-    "Référence Biblique/Ancien testament/6 - Premiers livres prophétiques/23 - Esaïe.md",
-    "Référence Biblique/Ancien testament/1 - Le commencement/Genèse.md",
-    "Personnages/Ancien testament/Patriarches/Famille d'Abraham/Fils de Jacob/Lévi.md",
-    "Définitions/Divinités étrangères/Zeus.md",
-    "Définitions/Vulgate.md",
-    "Lieux historiques/Villes/Thyatire.md",
-    "Définitions/Théophile.md",
-    "Définitions/Septante.md",
-    "Définitions/Seigneur.md",
-    "Définitions/Renoncement.md",
-    "Notes pas encore traitées/Réalité spirituelle.md",
-    "Lieux historiques/Villes/Philippes (ville).md",
-    "Lieux historiques/Villes/Philadelphie.md",
-    "Définitions/Pentecôte.md",
-    "Formation disciples/Histoire de l'Eglise/L'Eglise au temps des réformes.md",
+    "Référence Biblique/Nouveau testament/4 - Lettres générales/20&21 - Pierre.md",
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/6 - Romains.md",
+    "Référence Biblique/Nouveau testament/1 -Evangiles/3eme Evangile - Luc.md",
+    "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.md",
+    "Personnages/Ancien testament/Zacharie (fils de Yehoyada).md",
+    "Référence Biblique/Ancien testament/4 - Seconds livres historiques/12&13 - Chroniques.md",
+    "Personnages/Ancien testament/Ennemis d'Israel/Joas.md",
+    "Personnages/Ancien testament/Yehoyada.md",
+    "Personnages/Ancien testament/Benaya.md",
+    "Référence Biblique/Ancien testament/3 - Premiers livres historiques/11&12 - Rois.md",
+    "Définitions/Divinités étrangères/Baal.md",
+    "Définitions/Divinités étrangères/Ashéra.md",
+    "Personnages/Ancien testament/Ennemis d'Israel/Balaq.md",
+    "Personnages/Ancien testament/Untitled.md",
+    "Personnages/Nouveau testament/Zacharie.md",
+    "Référence Biblique/Ancien testament/7 - Seconds livres prophétiques/38 - Zacharie.md",
+    "Personnages/Ancien testament/Zacharie (prophète).md",
+    "Référence Biblique/Ancien testament/7 - Seconds livres prophétiques/32 - Jonas.md",
+    "Personnages/Ancien testament/Prophètes/Jonas.md",
+    "Personnages/Ancien testament/Reine de Saba.md",
+    "Lieux historiques/Royaumes/Saba.md",
+    "Lieux historiques/Villes/Forêt-du-Liban.md",
+    "Lieux historiques/Régions géographiques/Arabie.md",
+    "Lieux historiques/Images/Bab al-Mandab.png",
+    "Lieux historiques/Images/Bab al-Mandab.png.0.pdnSave",
+    "Lieux historiques/Images/Arabian Peninsula.jpg",
+    "Lieux historiques/Images/Arabian_Peninsula_dust_SeaWiFS.jpg",
+    "Lieux historiques/Images/Shéba.jpg",
+    "Lieux historiques/Images/Map_of_Aksum_and_South_Arabia_ca._230_AD.jpg",
     "Lieux historiques/Images/Grèce.gif",
     "Lieux historiques/Images/Gr-map.gif",
     "Personnages/Ancien testament/Patriarches/Famille de Noé/Fils de Japhet",
@@ -230,15 +225,9 @@
     "Lieux historiques/Régions géographiques/Histoire de l'église",
     "Lieux historiques/Royaumes/Histoire de l'église",
     "~syncthing~Vivre à contre courant.md.tmp",
-    "Lieux historiques/Images/Sorek.PNG",
-    "Lieux historiques/Images/Ziph.PNG",
-    "Lieux historiques/Images/Hebron.PNG",
     "Définitions/Courants de pensée",
     "Notes pas encore traitées",
-    "Lieux historiques/Images/Césarée (Israël).PNG",
     "Personnages/Ancien testament/Rois d'Israel/Famille de David/Enfants de David",
-    "Personnages/Ancien testament/Patriarches/Famille d'Abraham/Fils de Jacob/Petits-enfants de Jacob",
-    "Personnages/Ancien testament/Patriarches/Famille d'Abraham/Fils de Jacob",
-    "Lieux historiques/Régions géographiques/Pannonia_SPQR.png"
+    "Personnages/Ancien testament/Patriarches/Famille d'Abraham/Fils de Jacob/Petits-enfants de Jacob"
   ]
 }

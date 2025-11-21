@@ -1,1 +1,1 @@
-Grand prêtre, père de [[Benaya]]
+Grand prêtre, père de [[Benaya]] et [[Zacharie (fils de Yehoyada)]]

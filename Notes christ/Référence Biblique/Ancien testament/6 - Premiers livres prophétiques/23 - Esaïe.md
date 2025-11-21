@@ -100,6 +100,7 @@ Intitulé **Contre [[Babylone]]** par [[Bible#^358f23|BDS]]
     Son heure approche,
     et ses jours ne seront pas prolongés.
 ## Chapitre 19
+Intitulé **Sur l'[[Egypte]]** par [[Bible#^358f23|BDS]]
 ### Versets 1 à 15
 Intitulé **Menace - Sur l'[[Egypte]]** par [[Bible#^358f23|BDS]]
 

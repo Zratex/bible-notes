@@ -1,0 +1,2 @@
+C'est un ange de [[Dieu]] qui serait un des chefs de l'armée céleste, il est notamment cité dans les visions de [[Daniel]] quand à son implication dans l'[[Apocalypse]] pour terrasser [[Satan]], car il au vu de son statut il exerce les combats spirituels. 
+A confirmer : il serait aussi à certains temps clé le protecteur spirituel d'[[Israël]]

@@ -1,0 +1,2 @@
+Le détroit de Bab el-Mandeb (ou **Bab al-Mandab**) est un détroit entre la corne de l'Afrique et l'[[Arabie]], faisait lien la [[Mer Rouge]] et le Golf d'Aden (sous-mer de la mer d'[[Arabie]], qui elle même est une sous-mer de l'océan Indien)
+![[Bab al-Mandab.png]]
