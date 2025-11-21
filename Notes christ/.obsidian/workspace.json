@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Vivre à contre courant.md",
+                "file": "À la croisé des chemins.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Vivre à contre courant"
+              "title": "À la croisé des chemins"
             }
           }
         ]
@@ -94,7 +94,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Vivre à contre courant.md",
+                "file": "À la croisé des chemins.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -104,7 +104,7 @@
                 "unlinkedCollapsed": true
               },
               "icon": "links-coming-in",
-              "title": "Backlinks for Vivre à contre courant"
+              "title": "Backlinks for À la croisé des chemins"
             }
           },
           {
@@ -113,12 +113,12 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "Vivre à contre courant.md",
+                "file": "À la croisé des chemins.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               },
               "icon": "links-going-out",
-              "title": "Outgoing links from Vivre à contre courant"
+              "title": "Outgoing links from À la croisé des chemins"
             }
           },
           {
@@ -183,9 +183,11 @@
   },
   "active": "3cf5f68be44d4c98",
   "lastOpenFiles": [
+    "Vivre à contre courant.md",
+    "À la croisé des chemins.md",
+    "~syncthing~À la croisé des chemins.md.tmp",
     "di.md",
     "Référence Biblique/Nouveau testament/1 -Evangiles/2nd Evangile - Marc.md",
-    "Vivre à contre courant.md",
     "Référence Biblique/Nouveau testament/4 - Lettres générales/20&21 - Pierre.md",
     "Référence Biblique/Nouveau testament/3 - Lettres de Paul/6 - Romains.md",
     "Référence Biblique/Nouveau testament/1 -Evangiles/3eme Evangile - Luc.md",
@@ -208,7 +210,6 @@
     "Personnages/Ancien testament/Reine de Saba.md",
     "Lieux historiques/Royaumes/Saba.md",
     "Lieux historiques/Villes/Forêt-du-Liban.md",
-    "Lieux historiques/Régions géographiques/Arabie.md",
     "Lieux historiques/Images/Bab al-Mandab.png",
     "Lieux historiques/Images/Bab al-Mandab.png.0.pdnSave",
     "Lieux historiques/Images/Arabian Peninsula.jpg",
@@ -227,7 +228,6 @@
     "~syncthing~Vivre à contre courant.md.tmp",
     "Définitions/Courants de pensée",
     "Notes pas encore traitées",
-    "Personnages/Ancien testament/Rois d'Israel/Famille de David/Enfants de David",
-    "Personnages/Ancien testament/Patriarches/Famille d'Abraham/Fils de Jacob/Petits-enfants de Jacob"
+    "Personnages/Ancien testament/Rois d'Israel/Famille de David/Enfants de David"
   ]
 }

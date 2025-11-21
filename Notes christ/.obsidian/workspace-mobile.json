@@ -144,6 +144,20 @@
             }
           },
           {
+            "id": "cc9b07ef967b441d",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "À la croisé des chemins.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "À la croisé des chemins"
+            }
+          },
+          {
             "id": "2396c82b93bbd57c",
             "type": "leaf",
             "state": {
@@ -172,7 +186,7 @@
             }
           }
         ],
-        "currentTab": 9
+        "currentTab": 10
       }
     ],
     "direction": "vertical"
@@ -303,11 +317,17 @@
       "bases:Create new base": false
     }
   },
-  "active": "c23ce10c4aad0ac4",
+  "active": "cc9b07ef967b441d",
   "lastOpenFiles": [
+    "L'affaire.md",
+    "Référence Biblique/Nouveau testament/2 - Actes des apôtres/Actes.md",
+    "Combat spirituel.md",
+    "Lieux historiques/Régions géographiques/Bithynie.md",
+    "Personnages/Saint-Esprit.md",
+    "À la croisé des chemins.md",
+    "Bénédictions et malédictions.md",
     "Vivre à contre courant.md",
     "Sommes nous des propulseurs.md",
-    "Bénédictions et malédictions.md",
     "Esprit de compassion.md",
     "7 actions dans la prière.md",
     "Formation disciples/Service église locale/Eglise locale.md",
@@ -327,12 +347,6 @@
     "Marcher dans le royaume de Dieu.md",
     "De l'espoir.md",
     "A quiconque désire suivre Jésus.md",
-    "Immuabilité de la parole.md",
-    "Les promesses du Seigneur.md",
-    "Seigneur et non seulement sauveur.md",
-    "Rafraîchissement.md",
-    "S'aimer pour aimer.md",
-    "Repos de l'âme.md",
     "Référence Biblique/Nouveau testament/5 - La fin",
     "Référence Biblique/Nouveau testament/4 - Lettres générales",
     "Référence Biblique/Nouveau testament/3 - Lettres de Paul",
