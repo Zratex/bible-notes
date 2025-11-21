@@ -104,6 +104,19 @@ Intitulé **La parabole de la lampe** par [[Bible#^358f23|BDS]]
 23) **Si quelqu’un a des oreilles pour entendre, qu’il entende !**
 24) [[Jésus|Il]] ajouta : **Faites bien attention à ce que vous entendez. On vous appliquera la mesure dont vous vous serez servi pour mesurer, et on y ajoutera.**
 25) **Car à celui qui a, on donnera encore, mais à celui qui n’a pas, on ôtera même ce qu’il a.**
+## Chapitre 6
+### Versets 1 à 6
+Intitulé **[[Jésus|Jésus]] rejeté à [[Nazareth|Nazareth]]** par [[Bible#^358f23|BDS]]
+>Ce passage fait écho à [[1er Evangile - Matthieu#Versets 54 à 58|Matthieu 13:54-58]] et [[3eme Evangile - Luc#Versets 14 à 30|Luc 4:16-30]] :
+
+1) [[Jésus|Jésus]] partit de là et retourna dans [[Nazareth|la ville]] dont [[Jésus|il]] était originaire, accompagné de ses disciples.
+2) Le jour du sabbat, [[Jésus|il]] se mit à enseigner dans la synagogue.
+   Beaucoup de ses auditeurs furent très étonnés : D’où tient-[[Jésus|il]] cela ? disaient-ils. Qui [[Jésus|lui]] a donné cette [[Sagesse|sagesse]] ? D’où [[Jésus|lui]] vient le pouvoir d’accomplir tous ces miracles ?
+3) N’est-[[Jésus|il]] pas le charpentier, [[Jésus|le fils]] de [[Marie|Marie]], [[Jésus|le frère]] de [[Jacques (épistolier)|Jacques]], de Joseph, de [[Jude|Jude]] et de Simon ? Ses sœurs ne vivent-elles pas [[Nazareth|ici]] parmi nous ?
+   Et voilà pourquoi ils trouvaient en lui un obstacle à la foi.
+4) Alors [[Jésus|Jésus]] leur dit : **C’est seulement dans sa patrie, dans sa parenté et dans sa famille que l’on refuse d’honorer un prophète.**
+5) [[Jésus|Il]] ne put accomplir là aucun miracle, sinon pour quelques malades à qui [[Jésus|il]] imposa les mains et qu’[[Jésus|il]] guérit.
+6) [[Jésus|Il]] fut étonné de leur incrédulité.
 ## Chapitre 7
 ### Versets 1 à 23
 Intitulé **[[Jésus]] et la tradition religieuse juive**

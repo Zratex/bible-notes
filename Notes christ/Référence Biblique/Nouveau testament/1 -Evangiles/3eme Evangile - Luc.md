@@ -67,22 +67,32 @@ Intitulé **[[Marie]] chez [[Elisabeth]]** par [[Bible#^358f23|BDS]]
 ## Chapitre 4
 ### Versets 14 à 30
 Intitulé **[[Jésus]], le Serviteur choisi par [[Dieu]]** par [[Bible#^358f23|BDS]]
+>Ces 2 versets font écho à [[1er Evangile - Matthieu#Versets 12 à 25|Matthieu 4:12-17]] et [[2nd Evangile - Marc#Versets 14 à 20|Marc 1:14-15]] :
 
-18) *L’[[Saint-Esprit|Esprit]] du [[Dieu|Seigneur]] est sur moi*
-    *car il m’a oint*
-    *pour annoncer une bonne nouvelle aux pauvres.*
-    *Il m’a envoyé ╵pour annoncer aux captifs la délivrance,*
-    *aux aveugles le recouvrement de la vue,*
-    *pour apporter la liberté aux opprimés*
-19) *et proclamer une année de faveur accordée par le [[Dieu|Seigneur]].*
+14) [[Jésus|Jésus]], rempli de la puissance de l’[[Saint-Esprit|Esprit]], retourna en [[Galilée|Galilée]]. [[Jésus|Sa]] réputation se répandit dans toute la région.
+15) [[Jésus|Il]] enseignait dans les synagogues et tous faisaient son éloge.
+
+>Le reste de ce passage fait écho à [[1er Evangile - Matthieu#Versets 54 à 58|Matthieu 13:53-58]] et [[2nd Evangile - Marc#]] :
+16) [[Jésus|Il]] se rendit aussi à [[Nazareth|Nazareth]], où [[Jésus|il]] avait été élevé, et [[Jésus|il]] entra dans la synagogue le jour du sabbat, comme [[Jésus|il]] en avait l’habitude. [[Jésus|Il]] se leva pour faire la lecture [[Ancien Testament|biblique]],
+17) et on [[Jésus|lui]] présenta [[23 - Esaïe|le rouleau]] du prophète [[Esaïe|Esaïe]]. En déroulant le parchemin, [[Jésus|il]] trouva le passage où il est écrit :
+18) ***[[23 - Esaïe#Chapitre 61|L’Esprit du Seigneur est sur moi]]***
+    ***[[23 - Esaïe#Chapitre 61|car il m’a oint]]***
+    ***[[23 - Esaïe#Chapitre 61|pour annoncer une bonne nouvelle aux pauvres.]]***
+    ***[[23 - Esaïe#Chapitre 61|Il m’a envoyé ╵pour annoncer aux captifs la délivrance,]]***
+    ***[[23 - Esaïe#Chapitre 61|aux aveugles le recouvrement de la vue,]]***
+    ***[[23 - Esaïe#Chapitre 61|pour apporter la liberté aux opprimés]]***
+19) ***[[23 - Esaïe#Chapitre 61|et proclamer une année de faveur accordée par le Seigneur]].***
 20) Il roula le livre, le rendit au servant et s’assit. Dans la synagogue, tous les yeux étaient braqués sur lui.
-21) – Aujourd’hui même, commença-t-il, pour vous qui l’entendez, cette prophétie de l’Ecriture est devenue réalité.
-22) Aucun de ses auditeurs ne restait indifférent : les paroles de grâce qu’il prononçait les étonnaient beaucoup. Aussi disaient-ils : N’est-il pas le fils de [[Joseph de Nazareth|Joseph]] ?
-23) Alors il leur dit : Vous ne manquerez pas de m’appliquer ce dicton : « Médecin, guéris-toi toi-même » et vous me direz : « On nous a parlé de ce que tu as accompli à Capernaüm. Fais-en donc autant ici, dans ta propre ville ! »
-24) Et il ajouta : Vraiment, je vous l’assure : aucun prophète n’est bien accueilli dans sa patrie.
-25) Voici la vérité, je vous le déclare : il y avait beaucoup de veuves en [[Israël]] à l’époque d’[[Elie]], quand, pendant trois ans et demi, il n’y a pas eu de pluie et qu’une grande famine a sévi dans tout le pays.
-26) Or, [[Elie]] n’a été envoyé vers aucune d’entre elles, *mais vers une veuve qui vivait à [[Sarepta]], dans le pays de [[Sidon]]*.
-    > Référence : [[11&12 - Rois#Versets 8 à 16|1 Rois 17:9]]
+21) **– Aujourd’hui même,** commença-t-[[Jésus|il]], **pour vous qui l’entendez, cette prophétie de l’[[Ancien Testament|Ecriture]] est devenue réalité.**
+22) Aucun de ses auditeurs ne restait indifférent : les paroles de grâce qu’[[Jésus|il]] prononçait les étonnaient beaucoup. Aussi disaient-ils : N’est-il pas [[Jésus|le fils]] de [[Joseph de Nazareth|Joseph]] ?
+23) Alors [[Jésus|il]] leur dit : **Vous ne manquerez pas de [[Jésus|m]]’appliquer ce dicton : « Médecin, guéris-toi toi-même » et vous [[Jésus|me]] direz : « On nous a parlé de ce que [[Jésus|tu]] as accompli à [[Capharnaüm|Capernaüm]]. Fais-en donc autant ici, dans [[Jésus|ta]] propre [[Nazareth|ville]] ! »**
+24) Et [[Jésus|il]] ajouta : **Vraiment, [[Jésus|je]] vous l’assure : aucun prophète n’est bien accueilli dans sa patrie.**
+25) **Voici la vérité, [[Jésus|je]] vous le déclare : il y avait beaucoup de veuves en [[Israël]] à l’époque d’[[Elie]], quand, pendant trois ans et demi, il n’y a pas eu de pluie et qu’une grande famine a sévi dans tout le pays.**
+26) **Or, [[Elie]] n’a été envoyé vers aucune d’entre elles, *[[11&12 - Rois#Versets 8 à 16|mais vers une veuve qui vivait à Sarepta, dans le pays de Sidon]]*.**
+27) **Il y avait aussi beaucoup de lépreux en [[Israël|Israël]] au temps du prophète [[Elisée|Elisée]]. Et pourtant, aucun d’eux n’a été guéri. C’est le [[Syrie|Syrien]] [[Naaman|Naaman]] qui l’a été.**
+28) En entendant ces paroles, tous ceux qui étaient dans la synagogue se mirent en colère.
+29) Ils se levèrent, firent sortir [[Jésus|Jésus]] de [[Nazareth|la ville]], et le menèrent jusqu’au sommet de la montagne sur laquelle [[Nazareth|elle]] était bâtie, afin de [[Jésus|le]] précipiter dans le vide.
+30) Mais [[Jésus|il]] passa au milieu d’eux et s’en alla.
 ### Versets 31 à 44
 Intitulé **Exorcisme et guérisons à [[Capharnaüm|Capernaüm]]** par [[Bible#^358f23|BDS]]
 >Ces 7 prochains versets font écho à [[2nd Evangile - Marc#Versets 21 à 45|Marc 1:21-28]] :

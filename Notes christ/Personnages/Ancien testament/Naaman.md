@@ -1,0 +1,1 @@
+**Naaman** était le général en chef de l'armée du roi de [[Syrie]] à l'époque d'[[Elisée]], comme décrit dans [[11&12 - Rois#Versets 1 à 19|1 Rois 5:1-19]] qui a été guérit et purifié

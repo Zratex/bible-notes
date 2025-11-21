@@ -360,7 +360,7 @@ Intitulé **[[Dieu|Dieu]] ou [[Satan|Satan]]** par [[Bible#^358f23|BDS]]
 Intitulé **[[Jésus]] rejeté à [[Nazareth]]** par [[Bible#^358f23|BDS]]
 
 54) [[Jésus|Il]] retourna dans [[Nazareth|la ville où il avait vécu]]. Il enseignait ses concitoyens dans leur synagogue. Son enseignement les impressionnait, si bien qu’ils disaient : D’où tient-il cette sagesse et le pouvoir d’accomplir ces miracles ?
-55) N’est-il pas le fils [[Joseph de Nazareth|du charpentier]] ? N’est-il pas le fils de [[Marie|Marie]], et le frère de [[Jacques (épistolier)|Jacques]], de Joseph, de Simon et de [[Jude|Jude]] !
+55) N’est-il pas le fils [[Joseph de Nazareth|du charpentier]] ? N’est-il pas le fils de [[Marie|Marie]], et [[Jésus|le frère]] de [[Jacques (épistolier)|Jacques]], de Joseph, de Simon et de [[Jude|Jude]] !
 56) Ses sœurs ne vivent-elles pas toutes parmi nous ? D’où a-t-il reçu tout cela ?
 57) Et voilà pourquoi ils trouvaient en lui un obstacle à la foi.
     Alors [[Jésus|Jésus]] leur dit : **C’est seulement dans sa patrie et dans sa propre famille que l’on refuse d’honorer un prophète.**

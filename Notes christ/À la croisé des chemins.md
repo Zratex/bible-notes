@@ -1,21 +1,27 @@
 Message partagé par Manu le 19/11/2025
 
-On marche, mais avons nous pris le temps de s'arrêter, et voir où on se dirige.
-Que faisons-nous à la croisé des chemins ?
-C'est à ce moment là qu'il faut parler avec [[Dieu]]
-`Exode 3:1-10` : [[Moïse]] n'est pas juste berger mais prépare les troupeaux du sacrificateur, ce qui a déjà aiguisé son esprit.
-Il a l'habitude d'aller à [[Mont Sinaï]], mais il remarque qu'il y a quelque chose de pas normal dans cette routine et s'arrête.
-Et à l'appel de [[Dieu]] il a répondu présent.
-Et tout ça le prépare à simplement faire un choix en écoutant les options.
-## Demander le chemin
-Est ce qu'on prend le temps pour ça ?
-Est ce qu'on est toujours là où [[Dieu]] qu'on soit à l'instant présent ?
-C'est faire un choix éclairé parce que c'est prendre un choix 
+On marche constamment dans notre vie, mais avons nous pris le temps de s'arrêter, et voir où on se dirige ?
+>Que faisons-nous à la croisé des chemins ?
 
-Désert~=parole en hébreu, car les déserts sont les moments où on est arrêté et donc qu'on peut parler avec [[Dieu]]
+-> C'est à ce moment là qu'il faut parler avec [[Dieu]]
+
+[[2 - Exode#Chapitre 3|Exode 3:1-10]] : [[Moïse]] n'est pas juste berger mais :
+- il prépare les troupeaux du sacrificateur, ce qui a déjà aiguisé son esprit
+- il a l'habitude d'aller à [[Mont Sinaï]]
+
+-> Néanmoins cette fois [[Moïse|il]] remarque qu'il y a quelque chose de pas normal dans cette routine, et prend le temps de s'arrêter.
+Ensuite, à l'appel de [[Dieu]], [[Moïse]] a répondu présent.
+-> Et tout ça c'est juste **pour le préparer à simplement faire un choix** en écoutant les options qui vont s'offrir à [[Moïse]]
+## Demander le chemin
+- Est ce qu'on prend le temps pour demander le chemin ?
+- Est ce qu'on est toujours là où [[Dieu]] qu'on soit à l'instant présent ?
+
+-> Si oui, le choix qu'on fait c'est faire **un choix éclairé**
+
+"Désert" à la même racine que "parole" en hébreu, car **les déserts sont les moments où on est arrêté, et donc qu'on peut parler avec [[Dieu]]**.
 Et ces temps nous permette de nous concentrer sur l'essentiel
 
-[[3eme Evangile - Luc#Versets 31 à 44|Luc 4:28-35]] : est ce qu'on a toujours notre saveur ?
+[[3eme Evangile - Luc#Chapitre 4|Luc 4:28-35]] : est ce qu'on a toujours notre saveur ?
 ## Tromper de chemin serait se perdre ?
 [[Moïse]] s'est planté en tuant quelqu'un, pour autant il n'a pas été disqualifié par [[Dieu]], et il a pris 40 ans pour le préparer.
 Il a emprunté le chemin que [[Dieu]] lui a proposé.
