@@ -12,6 +12,7 @@ Il est nommé différemment au fur et à mesure de la [[Bible]] :
 - Roi des juifs
 - Fils de l'homme
 - Fils de [[David|David]]
+- [[Yahweh]]
 ## Généalogie
 Une note est dédié à l'analyse de sa [[Généalogie#^d7dc7e|généalogie]]
 ## Références
