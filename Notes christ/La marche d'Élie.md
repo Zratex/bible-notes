@@ -1,5 +1,5 @@
-[[19 - Jacques#Chapitre 5|Jacques 5:10-20]] [[Elie]] était un homme de même nature que nous.
-> Apporté par le pasteur José le 4 Février, c'est voué à être une série
+Partagé par José le 4/02/2025, c'est voué à être une série
+[[19 - Jacques#Chapitre 5|Jacques 5:10-20]] : [[Elie]] était un homme de même nature que nous.
 ## Contexte historique
 400 ans patriarches, puis esclavagisme en [[Egypte]], puis [[Moïse]] et les 40 ans dans le désert. Puis les juges pendant 360 ans.
 

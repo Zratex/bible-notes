@@ -1,4 +1,4 @@
-Note commencé le 8 Octobre 2023, apporté par le pasteur José Neves à Porte Ouvertes Reims.
+Note commencé le 8 Octobre 2023, partagé par José.
 `Matthieu 5:1`
 ## Colère
 `Matthieu 5:21-22` il met au même rang ceux qui dénigrent et rabaissent, que ceux qui tue.

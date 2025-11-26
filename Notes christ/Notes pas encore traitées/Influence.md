@@ -36,7 +36,7 @@ L'objectif de ces influenceurs est de nous faire perdre. Car on est sauvé en [[
 
 > Si on entend des influenceurs rien ne se passe. Or si on ==écoute==, on se fait influencer
 
-`1 Pierre 2:25` (le pasteur ici est [[Jésus]])
+`1 Pierre 2:25` (le [[Pasteur]] ici est [[Jésus]])
 
 `Luc 11:21-25`
 

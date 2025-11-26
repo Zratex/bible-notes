@@ -39,9 +39,9 @@ Composer avec le caractères des autres amène des prévus et imprévus
 
 Service dans les pôles nous permet de vivre des expériences, parfois des miracles, et ce pour fortifier notre foi mais surtout pour le témoignage
 
-La communion fraternelle se reflète surtout par ça : `1 Pierre 5:5-7` (un ancien, c'est un ancien dans la foi, comme par exemple un pasteur)
+La communion fraternelle se reflète surtout par ça : `1 Pierre 5:5-7` (un ancien, c'est un ancien dans la foi, comme par exemple un [[Pasteur|pasteur]])
 Les responsables sont là pour nous cadrer dans l'humilité
-`Ephesiens 4:1` : le pasteur est le premier responsable de tous les pôles de l'église
->L'objectif de tous les pasteurs c'est d'amener tout les croyants sous sa responsabilité à approcher de la stature de [[Jésus]]
+`Ephesiens 4:1` : le [[Pasteur|pasteur]] est le premier responsable de tous les pôles de l'église
+>L'objectif de tous les [[Pasteur|pasteurs]] c'est d'amener tout les croyants sous sa responsabilité à approcher de la stature de [[Jésus]], donc vers le [[Royaume de Dieu]]
 
 À rappeler que le pasteur suprême est [[Jésus]] lui-même

@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "À la croisé des chemins.md",
+                "file": "Formation disciples/Ce qu'est un pasteur.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "À la croisé des chemins"
+              "title": "Ce qu'est un pasteur"
             }
           }
         ]
@@ -94,7 +94,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "À la croisé des chemins.md",
+                "file": "Formation disciples/Ce qu'est un pasteur.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -104,7 +104,7 @@
                 "unlinkedCollapsed": true
               },
               "icon": "links-coming-in",
-              "title": "Backlinks for À la croisé des chemins"
+              "title": "Backlinks for Ce qu'est un pasteur"
             }
           },
           {
@@ -182,37 +182,39 @@
   },
   "active": "3cf5f68be44d4c98",
   "lastOpenFiles": [
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/6 - Romains.md",
-    "À la croisé des chemins.md",
+    "Définitions/Pasteur.md",
+    "Référence Biblique/Nouveau testament/1 -Evangiles/4eme Evangile - Jean.md",
+    "Définitions/Prêtre.md",
+    "Formation disciples/Service église locale/Etude service.md",
+    "Vie victorieuse en Christ.md",
+    "Notes pas encore traitées/Veiller sur le cœur.md",
+    "Temps d'apostasie.md",
+    "Notes pas encore traitées/Servir dans l'église locale.md",
+    "Notes pas encore traitées/Notes perso/Relation.md",
+    "Sagesse (note).md",
+    "Notes pas encore traitées/Rafraîchissement.md",
+    "Définitions/Ministères.md",
+    "La marche d'Élie.md",
+    "Formation disciples/Histoire de l'Eglise/L'Eglise primitive jusqu'avant la réforme.md",
+    "Notes pas encore traitées/Influence.md",
+    "Formation disciples/Formation disciples POC Reims.md",
+    "Formation disciples/Service église locale/Eglise locale.md",
+    "Formation disciples/Ce qu'est un pasteur.md",
+    "Définitions/Pape.md",
+    "Définitions/Untitled.md",
     "Référence Biblique/Nouveau testament/3 - Lettres de Paul/10 - Ephésiens.md",
-    "Référence Biblique/Ancien testament/6 - Premiers livres prophétiques/23 - Esaïe.md",
-    "Lieux historiques/Royaumes/Saba.md",
-    "Personnages/Ancien testament/Ennemis d'Israel/Darius.md",
-    "Personnages/Ancien testament/Ennemis d'Israel/Cyrus.md",
-    "Lieux historiques/Royaumes/Perse.md",
-    "Définitions/Seigneur.md",
-    "Référence Biblique/Ancien testament/2 - La loi de Dieu/2 - Exode.md",
-    "Référence Biblique/Ancien testament/5 - Livres poétiques/20 - Proverbes.md",
-    "Référence Biblique/Nouveau testament/1 -Evangiles/3eme Evangile - Luc.md",
-    "Référence Biblique/Nouveau testament/1 -Evangiles/2nd Evangile - Marc.md",
-    "Personnages/Nouveau testament/Marie.md",
-    "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.md",
-    "Personnages/Nouveau testament/Jude.md",
-    "Personnages/Nouveau testament/Jacques (épistolier).md",
-    "Référence Biblique/Ancien testament/3 - Premiers livres historiques/11&12 - Rois.md",
+    "Personnages/Dieu.md",
+    "Personnages/Eglise.md",
+    "Formation disciples/Prière, louange et adoration.md",
+    "Formation disciples/Comportement et éthiques.md",
+    "À la croisé des chemins.md",
+    "~syncthing~Fil à plomb de Dieu.md.tmp",
+    "~syncthing~Ce qu'est un pasteur.md.tmp",
     "Lieux historiques/Images/Pannonia_SPQR.png",
-    "Personnages/Ancien testament/Naaman.md",
-    "Lieux historiques/Régions géographiques/Parpar (Assi).md",
-    "Lieux historiques/Régions géographiques/Oronte.md",
-    "Lieux historiques/Régions géographiques/Anti-Liban.md",
     "Lieux historiques/Images/Orontes_river.png",
     "Lieux historiques/Images/Non confirmé 801218.crdownload",
-    "Lieux historiques/Régions géographiques/Barada (Amana).md",
     "Lieux historiques/Images/Barada.PNG",
-    "Vivre à contre courant.md",
     "~syncthing~À la croisé des chemins.md.tmp",
-    "di.md",
-    "Référence Biblique/Nouveau testament/4 - Lettres générales/20&21 - Pierre.md",
     "Lieux historiques/Images/Bab al-Mandab.png",
     "Lieux historiques/Images/Bab al-Mandab.png.0.pdnSave",
     "Lieux historiques/Images/Arabian Peninsula.jpg",
@@ -225,8 +227,6 @@
     "Personnages/Ancien testament/Patriarches/Famille de Noé",
     "Lieux historiques/Régions géographiques/Histoire de l'église",
     "Lieux historiques/Royaumes/Histoire de l'église",
-    "~syncthing~Vivre à contre courant.md.tmp",
-    "Définitions/Courants de pensée",
-    "Notes pas encore traitées"
+    "~syncthing~Vivre à contre courant.md.tmp"
   ]
 }

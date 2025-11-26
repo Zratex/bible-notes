@@ -54,7 +54,7 @@ Exemples :
 Autres exemples : missionnaires qui restent dans des zones complexes même si aller autre part est plus simple
 
 La vision doit importé par dessus tout :
-- Les pasteurs aiment leur église non pas par leur titre mais principalement car c'est la vision qu'ils ont reçu
+- Les [[Pasteur|pasteurs]] aiment leur église non pas par leur titre mais principalement car c'est la vision qu'ils ont reçu
 - [[Paul]] a du quitter son ami [[Barnabas]] pour respecter la vision de [[Dieu]]
 	- Parfois ces choix ont des conséquences : rupture de l'amitié
 - [[Néhémie]] sur la muraille malgré que le peuple d'[[Israël]] l'harcelait pour qu'il arrête
@@ -120,7 +120,7 @@ Témoignage d'Yves où il a prit autorité sur la pire classe de son établissem
 `Matthieu 8:5-10` : l'autorité qu'il décrit qui a été donné à cet homme reflète à quel point il est soumis, ce qui a étonné [[Jésus]] et a été la clé pour débloquer cette situation
 >On observe la souveraineté en particulier quand on fait quelque chose qu'on est pas spécialement d'accord avec celui qui a l'autorité
 
-Prendre une décision de placer quelqu'un par exemple (dans le cas d'un pasteur c'est de placer des responsables), c'est en réalité rendre service à celles ci
+Prendre une décision de placer quelqu'un par exemple (dans le cas d'un [[Pasteur|pasteur]] c'est de placer des responsables), c'est en réalité rendre service à celles ci
 
 **L'autorité est à exercer par la foi**
 -> Exemple des forces de l'ordre qui sont (normalement) conscients par la foi d'une certaine manière de leur puissance grâce à l'autorité qui est derrière eux, par conséquent cela impose (normalement) un respect auprès de la population car en théorie : `Romains 13:1-2`

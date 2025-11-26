@@ -1,4 +1,4 @@
-C'est une série débutée par pasteure Camille de Hillsong Paris sur les [[20 - Proverbes|Proverbes]]. Mais ces notes serviront pour des notes a propos de la sagesse en général. Il n'y aura donc pas que des notes sur ce qu'à dit Camille
+C'est une série débutée par Camille de Hillsong Paris sur les [[20 - Proverbes|Proverbes]]. Mais ces notes serviront pour des notes a propos de la sagesse en général. Il n'y aura donc pas que des notes sur ce qu'à dit Camille
 ## Sagesse
 > Personnage de [[Salomon]] a connaître pour le contexte
 

@@ -30,13 +30,13 @@ Il n'y a pas d'église sans au moins ces 3 personnes :
 - Vision venant de [[Dieu]] (surtout pour lancer l'église, pour la suite c'est développé dans [[Eglise locale#Où va l'église ?]])
 - Une personne spécifique de l'assemblée appelée pour réaliser cette vision et fonder l'église
 	  Pourquoi une personne : [[Dieu]] l'a dit dans `Ezekiel 22`, et il y a beaucoup d'exemples dans notamment l'[[Ancien Testament]]
-- Un groupe de brebis reconnaissent le pasteur comme leur berger venant de [[Dieu]]
+- Un groupe de brebis reconnaissent le [[Pasteur|pasteur]] comme leur berger venant de [[Dieu]]
 ## Où va l'église ?
 `Actes 26:19` : sans vision, le peuple n'a pas de directions
 -> Donc l'église a une vision, puisse qu'on ne peut résister aux visions célestes de [[Dieu]]
 >La foi sans vision ne suffit pas pour l'église
 
-`Habacuc 2:1-3` : une église doit d'abord avoir un pasteur qui soit à son poste et en communion avec [[Dieu]] et une position d'obéissance
+`Habacuc 2:1-3` : une église doit d'abord avoir un [[Pasteur|pasteur]] qui soit à son poste et en communion avec [[Dieu]] et une position d'obéissance
 Puis, il faut **écrire la vision** qu'il obtiendra, car le peuple doit savoir où on va
 >La vision s'accomplira dans tout les cas, car ça vient de [[Dieu]]
 ### Vision
@@ -72,26 +72,25 @@ Exemple de [[Simon Pierre|Pierre]] : qui a fait des choses dont notamment renier
 [[Jésus]] a dit "Aimez vous les uns les autres comme je vous ai aussi aimé", et [[Paul]] a dit "Supportez vous les uns les autres"
 -> Donc on ne peut fuir sauf si [[Dieu]] nous l'ordonne
 ### Dirigeants de l'église
-`Ephesiens 4:11-12` : ceux qui dirigent l'église sont là pour la faire grandir
-Mais [[Jésus]] est le dirigeant de l'[[Eglise]] car il est le pasteur des pasteurs, et **on ne peut critiquer négativement l'[[Eglise]]** (parce que logiquement [[Jésus]] en tant que mari le prendrais mal)
+[[10 - Ephésiens#Versets 7 à 16|Ephesiens 4:11-12]] : ceux qui dirigent l'église locale sont là pour la faire grandir
+Mais [[Jésus]] est le dirigeant de l'[[Eglise]] car il est le [[Pasteur]] des [[Pasteur|pasteurs]], et **on ne peut critiquer négativement l'[[Eglise]]** (parce que logiquement [[Jésus]] en tant que mari le prendrais mal)
 
-[[Jésus]] délègue son autorité à des ministères, et un ministère qui est mené par le [[Saint-Esprit]] ne doit pas être limité ou laissé fait par des personnes non appelées
+[[Jésus]] délègue son autorité à des [[Ministères|ministères]], et un [[Ministères|ministère]] qui est mené par le [[Saint-Esprit]] ne doit pas être limité ou laissé fait par des personnes non appelées par [[Dieu]]
 
 On peut réaliser des choses qui nous paraissent bonnes, sans que ce soit dans le peuple de [[Dieu]], ce qui a pour conséquence de soit nous mener dans les problèmes ou dans les blocages.
->En résumé, on ne peut pas forcer [[Dieu]] à faire ce qu'il ne veut pas
+>En résumé, on ne peut pas forcer [[Dieu]] à faire ce qu'[[Dieu|il]] ne veut pas
 
-Les dirigeants de l'église, voir même un chrétien, ne sont **pas des stars** (voir idoles), **mais des serviteurs**
+Les dirigeants de l'église locale, voir même un chrétien à l'échelle individuelle, ne sont **pas des stars** (voir idoles), **mais des serviteurs** de [[Dieu]]
 
-Une église locale n'a pas forcément les 5 grands types de ministères, mais un pasteur doit faire attention à ce chaque membre rencontre chaque ministère
-## Responsabilités
-Quels sont les responsabilités des chrétiens vis à vis du pasteur ?
-`Hebreux 13:17` : la tâche de pasteur est déjà difficile, donc il faut que l'on veille à ne pas rendre ce travail plus compliqué
->On doit percevoir les pasteurs (et ministères) comme des dons de [[Jésus]] pour l'église locale
+Une église locale n'a pas forcément les 5 grands types de [[Ministères|ministères]], mais un [[Pasteur|pasteur]] doit faire attention à ce chaque membres de l'église locale puisse interagir avec chaque [[Ministères|ministères]]
+## Responsabilités des chrétiens vis à vis du [[Pasteur]]
+`Hebreux 13:17` : la tâche de [[Pasteur|pasteur]] est déjà difficile, donc il faut que l'on veille à ne pas rendre ce travail plus compliqué
+>On doit percevoir les [[Pasteur|pasteurs]] (de même pour les [[Ministères|ministères]]) comme des dons de [[Jésus]] pour l'église locale
 >Donc on peut y manifester une forme de respect dans leur réception
 ### Engagements vis à vis du pasteur
 `1 Timothée 5:17-19` : pour rendre honneur :
 - Contribuer financièrement
-- Parler des pasteurs en bien
+- Parler des [[Pasteur|pasteurs]] en bien
 ### Engagements vis à vis de l'église
 `Luc 16:10`
 Fidélité dans :

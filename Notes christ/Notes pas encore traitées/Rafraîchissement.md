@@ -12,7 +12,7 @@ Il y a des choses qui gêne notre vision, comme un parrebrise qui doit être net
 `Psaumes 19:7`
 `Lamentations 3:21-23`
 
-3 points données par le pasteur :
+3 points donnés :
 - Rafraîchie ce que Dieu dit a propos de toi `Genese 12:1-4` Dieu parle à [[Abraham]], et malgré l'âge et le temps qu'à pris ce miracle a venir, il suis ses paroles. Autre exemple de Jérémy et sa jeunesse
 - Rafraîchir ce que l'on regarde. Exemple du pigeon distrayant les JO au tir a l'arc -> `Hebreux 12:2`
 - rafraîchie ta déclaration. Ce que [[Dieu]] veux faire de notre vie. Il a changé les prénoms de certains personnages de la [[Bible]] parce que (?). `Hebreux 4:14`

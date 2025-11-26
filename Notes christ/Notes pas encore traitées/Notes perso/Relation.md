@@ -19,7 +19,8 @@ Le passage précédent est comparable à [[7&8 - Corinthiens#Versets 12 à 20|1 
 ### [[Service|Servir]] dans un couple
 Détaillé dans cette note : [[Seigneur et non seulement sauveur#Seigneurie dans le couple|Seigneurerie dans le couple]]
 
-Ici le pasteur José qui a apporté cette prêche parlait de la relation entre l'[[Eglise]] et [[Jésus]]. Mais je pense que ce principe de [[Service]] s'applique pas exclusivement à cette relation mentionnée, mais aussi dans le mariage en général.
+Dans cette note, José (qui a apporté cette prêche) parlait de la relation entre l'[[Eglise]] et [[Jésus]].
+Mais je (donc c'est que mon avis) pense que ce principe de [[Service]] s'applique pas exclusivement à cette relation mentionnée, mais aussi dans le mariage en général.
 ## Fraternelles
 ### Fraternelles avec l'[[Eglise]]
 La communion fraternelle : [[11 - Philippiens#Versets 1 à 11|Philippiens 2:1-5]] explique comment est ce que l'on doit agir auprès de nos frères et sœurs à l'[[Eglise]]

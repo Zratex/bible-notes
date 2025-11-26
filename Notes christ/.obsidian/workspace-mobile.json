@@ -158,6 +158,34 @@
             }
           },
           {
+            "id": "e2b057d6ae73375e",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Ce qu'est un pasteur.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "Ce qu'est un pasteur"
+            }
+          },
+          {
+            "id": "76ce15d863c94fc8",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Fil à plomb de Dieu.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "Fil à plomb de Dieu"
+            }
+          },
+          {
             "id": "2396c82b93bbd57c",
             "type": "leaf",
             "state": {
@@ -186,7 +214,7 @@
             }
           }
         ],
-        "currentTab": 10
+        "currentTab": 12
       }
     ],
     "direction": "vertical"
@@ -263,7 +291,7 @@
         "state": {
           "type": "backlink",
           "state": {
-            "file": "Bénédictions et malédictions.md",
+            "file": "Fil à plomb de Dieu.md",
             "collapseAll": false,
             "extraContext": false,
             "sortOrder": "alphabetical",
@@ -317,14 +345,16 @@
       "bases:Create new base": false
     }
   },
-  "active": "cc9b07ef967b441d",
+  "active": "76ce15d863c94fc8",
   "lastOpenFiles": [
+    "Ce qu'est un pasteur.md",
+    "Fil à plomb de Dieu.md",
+    "À la croisé des chemins.md",
     "L'affaire.md",
     "Référence Biblique/Nouveau testament/2 - Actes des apôtres/Actes.md",
     "Combat spirituel.md",
     "Lieux historiques/Régions géographiques/Bithynie.md",
     "Personnages/Saint-Esprit.md",
-    "À la croisé des chemins.md",
     "Bénédictions et malédictions.md",
     "Vivre à contre courant.md",
     "Sommes nous des propulseurs.md",
@@ -345,8 +375,6 @@
     "Servir dans l'église locale.md",
     "Les pierres.md",
     "Marcher dans le royaume de Dieu.md",
-    "De l'espoir.md",
-    "A quiconque désire suivre Jésus.md",
     "Référence Biblique/Nouveau testament/5 - La fin",
     "Référence Biblique/Nouveau testament/4 - Lettres générales",
     "Référence Biblique/Nouveau testament/3 - Lettres de Paul",

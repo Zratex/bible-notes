@@ -99,6 +99,30 @@ Intitulé **Les vrais fils d'[[Abraham]]**
 51) **Non, [[Jésus|je]] ne recherche pas la gloire pour moi-même : c’est un autre qui s’en préoccupe et il me rendra justice.**
 52) **Vraiment, [[Jésus|je]] vous l’assure : celui qui observe [[Jésus|mon]] enseignement ne verra jamais la mort.**
 ## Chapitre 10
+### Versets 1 à 21
+Intitulé **Le vrai guide** par [[Bible#^358f23|BDS]]
+
+1) **Vraiment, [[Jésus|je]] vous l’assure : si quelqu’un n’entre pas par la porte dans l’enclos où l’on parque les brebis, mais qu’il escalade le mur à un autre endroit, c’est un voleur et un brigand.**
+2) **Celui qui entre par la porte est, lui, le berger des brebis.**
+3) **Le gardien de l’enclos lui ouvre, les brebis écoutent sa voix. Il appelle par leur nom celles qui lui appartiennent, et il les fait sortir de l’enclos.**
+4) **Quand il a conduit au dehors toutes celles qui sont à lui, il marche à leur tête et les brebis le suivent, parce que sa voix leur est familière.**
+5) **Jamais, elles ne suivront un étranger ; au contraire, elles fuiront loin de lui, car elles ne connaissent pas la voix des étrangers.**
+6) [[Jésus|Jésus]] leur raconta cette parabole, mais ils ne comprirent pas ce qu’[[Jésus|il]] voulait leur dire.
+7) Alors [[Jésus|il]] reprit : **Vraiment, [[Jésus|je]] vous l’assure : [[Jésus|Moi, je]] suis la porte par où passent les brebis.**
+8) **Tous ceux qui sont venus avant [[Jésus|moi]] étaient des voleurs et des brigands. Mais les brebis ne les ont pas écoutés.**
+9) **C’est [[Jésus|moi]] qui suis la porte. Celui qui entre par [[Jésus|moi]] sera sauvé  : il pourra aller et venir librement, il trouvera de quoi se nourrir.**
+10) **Le voleur vient seulement pour voler, pour tuer et pour détruire. [[Jésus|Moi, je]] suis venu afin que les hommes aient la vie, une vie abondante.**
+11) **[[Jésus|Moi, je]] suis le bon berger. Le bon berger donne sa vie pour ses brebis.**
+12) **Celui qui n’est pas le berger, qui n’est pas le propriétaire des brebis, mais que l’on paye pour les garder, se sauve, lui, dès qu’il voit venir le loup, et il abandonne les brebis ; alors le loup se précipite sur elles, il s’empare de quelques-unes et disperse le troupeau.**
+13) **Cet homme agit ainsi parce qu’il est payé pour faire ce travail et qu’il n’a aucun souci des brebis.**
+14) **[[Jésus|Moi, je]] suis le bon berger ; [[Jésus|je]] connais [[Jésus|mes]] brebis et [[Jésus|mes]] brebis [[Jésus|me]] connaissent,**
+15) **tout comme le [[Dieu|Père]] [[Jésus|me]] connaît et que [[Jésus|je]] connais le [[Dieu|Père]]. [[Jésus|Je]] donne [[Jésus|ma]] vie pour mes brebis.**
+16) **[[Jésus|J]]’ai encore d’autres brebis qui ne sont pas de cet enclos. Celles-là aussi, il faut que [[Jésus|je]] les amène ; elles écouteront [[Jésus|ma]] voix, ainsi il n’y aura plus qu’un seul troupeau avec un seul berger.**
+17) **Si le [[Dieu|Père]] [[Jésus|m]]’aime, c’est parce que [[Jésus|je]] donne ma vie ; mais ensuite, [[Jésus|je]] la reprendrai.**
+18) **En effet, personne ne peut [[Jésus|m]]’ôter la vie : [[Jésus|je]] la donne de [[Jésus|mon]] propre gré. [[Jésus|J]]’ai le pouvoir de la donner et de la reprendre. Tel est l’ordre que [[Jésus|j]]’ai reçu de [[Jésus|mon]] [[Dieu|Père]].**
+19) Il y eut à nouveau division parmi le peuple à cause de [[Jésus|ses]] paroles.
+20) Beaucoup disaient : [[Jésus|Il]] a un démon en [[Jésus|lui]], c’est un fou. Pourquoi [[Jésus|l]]’écoutez-vous ?
+21) D’autres répliquaient : Un démoniaque ne parlerait pas ainsi. Et puis : est-ce qu’un démon peut rendre la vue à des aveugles ?
 ### Versets 22 à 42
 Intitulé **Fils de [[Dieu]] ou blasphémateur ?** par [[Bible#^358f23|BDS]]
 #### Versets 27 et 28

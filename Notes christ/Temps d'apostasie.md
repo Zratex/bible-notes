@@ -42,5 +42,5 @@ Alors qu'ils ont vu sa lumière et sa grandeur, ils ont quand même pas accepté
 
 > [[Dieu]] nous élève quand il le faut, dans ce cas il faut regarder à [[Dieu]] et non aux personnes qui ont été placées par lui
 
--> témoignage de José sur le moment où il a voulu devenir pasteur
+-> témoignage de José sur le moment où il a voulu devenir [[Pasteur]]
 

@@ -66,7 +66,7 @@ Une fois l'église de [[Rome]] fondée, l'empereur [[Romains|romain]] Néron pre
 - 193-211 (règne de l'empereur [[Romains|romain]] `Sévère`) : peine de mort jusqu'à la fin du règne de cet empereur
 - 250-251 : persécution impériale où les chrétiens doivent être sacrifiés aux dieux [[Romains|romains]]
 
-Valeriants : vise les évêques (bergers/pasteurs) et les prêtres (les serviteurs de l'église). Dépouillement
+Valeriants : vise les [[Pasteur|évêques]] et les [[Prêtre|prêtres]]. Dépouillement
 
 Galère : 303-311 destruction complète de tous ce qui touche de prêt ou de loin aux chrétiens
 ### 1.4 Réactions
