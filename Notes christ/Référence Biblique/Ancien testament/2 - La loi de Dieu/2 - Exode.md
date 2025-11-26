@@ -23,6 +23,13 @@ Intitulé **L'oppression des [[Israël|Israélites]] en [[Egypte]]**
 20) [[Dieu|Dieu]] fit du bien aux sages-femmes, et le peuple continua de se multiplier et devint extrêmement puissant.
 21) Comme les sages-femmes avaient agi par crainte de [[Dieu|Dieu]], [[Dieu|Dieu]] fit prospérer leurs familles.
 22) Alors le [[Pharaon|pharaon]] ordonna à tous ses sujets : Jetez dans le fleuve tous les garçons nouveau-nés des [[Israël|Hébreux]], mais laissez vivre toutes les filles !
+## Chapitre 2
+### Versets 23 à 25
+Intitulé **[[Moïse|Moïse]] envoyé par [[Dieu|Dieu]] - [[Dieu|Dieu]] intervient selon [[Dieu|son]] alliance** par [[Bible#^358f23|BDS]]
+
+23) Beaucoup de temps passa. Le [[Pharaon|pharaon]] d’[[Egypte|Egypte]] mourut et les [[Israël|Israélites]] gémissaient et criaient encore sous le poids de l’esclavage, et leur appel parvint jusqu’à [[Dieu|Dieu]].
+24) [[Dieu|Dieu]] entendit leur plainte et tint compte de [[Dieu|son]] alliance avec [[Abraham|Abraham]], avec [[Isaac|Isaac]] et avec [[Jacob|Jacob]].
+25) [[Dieu|Il]] vit les [[Israël|Israélites]] et prit [[Israël|leur]] situation en considération.
 ## Chapitre 3
 Intitulé **L'appel et l'envoi de [[Moïse]]** par [[Bible#^358f23|BDS]]
 
@@ -52,6 +59,31 @@ Intitulé **L'appel et l'envoi de [[Moïse]]** par [[Bible#^358f23|BDS]]
 20) C’est pourquoi [[Dieu|j]]’interviendrai et [[Dieu|je]] frapperai l’[[Egypte|Egypte]] de toutes sortes de prodiges que [[Dieu|j]]’accomplirai au milieu d’elle. Après cela, [[Pharaon|il]] [[Israël|vous]] renverra.
 21) [[Dieu|Je]] ferai gagner à ce peuple la faveur des [[Egypte|Egyptiens]], de sorte qu’à [[Israël|votre]] départ, vous ne vous en irez pas les mains vides.
 22) Chaque femme demandera à sa voisine et à celle qui habite chez elle des ustensiles d’argent et d’or ainsi que des vêtements. Vous les donnerez à porter à vos fils et vos filles. Ainsi [[Israël|vous]] dépouillerez les [[Egypte|Egyptiens]].
+## Chapitre 4
+### Versets 1 à 17
+1) [[Moïse|Moïse]] objecta :
+   Et s’[[Israël|ils]] ne [[Moïse|me]] croient pas et ne [[Moïse|m]]’écoutent pas, s’[[Israël|ils]] [[Moïse|me]] disent : « L’[[Dieu|Eternel]] ne [[Moïse|t]]’est pas apparu » ?
+2) – Qu’as-[[Moïse|tu]] dans la main ? lui demanda l’[[Dieu|Eternel]].
+   – Un bâton.
+3) – Jette-le par terre.
+   [[Moïse|Moïse]] jeta le bâton par terre et celui-ci se transforma en serpent. [[Moïse|Moïse]] s’enfuit devant lui,
+4) mais l’[[Dieu|Eternel]] [[Moïse|lui]] dit : Tends la main et attrape-le par la queue !
+   [[Moïse|Moïse]] avança la main et saisit le serpent, qui redevint un bâton dans [[Moïse|sa]] main.
+5) – C’est pour qu’ils croient que l’[[Dieu|Eternel]], le [[Dieu|Dieu]] de [[Israël|leurs]] [[Patriarche|ancêtres]], le [[Dieu|Dieu]] d’[[Abraham|Abraham]], d’[[Isaac|Isaac]] et de [[Jacob|Jacob]] [[Moïse|t]]’est réellement apparu.
+6) Puis l’[[Dieu|Eternel]] continua : Mets [[Moïse|ta]] main sur [[Moïse|ta]] poitrine.
+   [[Moïse|Moïse]] mit [[Moïse|sa]] main sur [[Moïse|sa]] poitrine puis la ressortit : elle était couverte d’une lèpre blanche comme la neige.
+7) – Remets [[Moïse|ta]] main sur [[Moïse|ta]] poitrine, [[Moïse|lui]] dit [[Dieu|Dieu]].
+   [[Moïse|Il]] la remit. Quand [[Moïse|il]] la ressortit, elle était redevenue saine.
+8) – Si donc [[Israël|ils]] ne [[Moïse|te]] croient pas, [[Moïse|lui]] dit l’[[Dieu|Eternel]], et s’[[Israël|ils]] ne sont pas convaincus par le premier signe miraculeux, [[Israël|ils]] croiront après le deuxième.
+9) Si, toutefois, [[Israël|ils]] n’ont pas confiance, même après avoir vu ces deux signes et s’[[Israël|ils]] ne [[Moïse|t]]’écoutent pas, alors [[Moïse|tu]] puiseras de l’eau dans le [[Nil|Nil]], [[Moïse|tu]] la répandras par terre, et, dès qu’elle touchera le sol, elle se transformera en sang.
+10) – De grâce, [[Dieu|Seigneur]], dit [[Moïse|Moïse, je]] n’ai pas la parole facile. Cela ne date ni d’hier, ni d’avant-hier, ni du moment où [[Dieu|tu]] as commencé à parler à [[Dieu|ton]] [[Moïse|serviteur]] : [[Moïse|j]]’ai la bouche et la langue embarrassées.
+11) L’[[Dieu|Eternel]] [[Moïse|lui]] répondit : Qui a doté l’homme d’une bouche ? Qui le rend muet ou sourd, voyant ou aveugle ? N’est-ce pas [[Dieu|moi, l’Eternel]] ?
+12) Maintenant donc, vas-y ; [[Dieu|je]] serai [[Dieu|moi-même]] avec [[Moïse|ta]] bouche et [[Dieu|je]] [[Moïse|t]]’indiquerai ce que [[Moïse|tu]] devras dire.
+13) Mais [[Moïse|Moïse]] rétorqua : De grâce, [[Dieu|Seigneur]] ! [[Moïse|Je]] [[Dieu|t]]’en prie ! Envoie qui [[Dieu|tu]] voudras !
+14) Alors l’[[Dieu|Eternel]] se mit en colère contre [[Moïse|Moïse]] et [[Moïse|lui]] dit : Eh bien ! il y a [[Moïse|ton]] frère [[Aaron|Aaron]], le [[Lévi|lévite]]. [[Dieu|Je]] sais qu’[[Aaron|il]] parlera facilement. D’ailleurs, [[Aaron|il]] est déjà en chemin pour venir [[Moïse|te]] trouver ; [[Aaron|il]] sera tout heureux de [[Moïse|te]] voir.
+15) [[Moïse|Tu]] [[Aaron|lui]] parleras, [[Moïse|tu]] [[Aaron|lui]] mettras des paroles dans la bouche, et [[Dieu|moi, je]] vous assisterai tous deux dans ce que vous direz et [[Dieu|je]] vous indiquerai ce que vous aurez à faire.
+16) [[Aaron|Il]] sera [[Moïse|ton]] porte-parole devant [[Israël|le peuple]], [[Aaron|il]] [[Moïse|te]] servira de bouche, et [[Moïse|tu]] seras pour [[Aaron|lui]] comme le dieu qui parle à son prophète.
+17) [[Moïse|Tu]] prendras ce bâton en main, et c’est avec cela que [[Moïse|tu]] accompliras les signes miraculeux.
 ## Chapitre 6
 ### Versets 1 à 13
 Intitulé **[[Dieu]] annonce son intervention** par [[Bible#^358f23|BDS]]

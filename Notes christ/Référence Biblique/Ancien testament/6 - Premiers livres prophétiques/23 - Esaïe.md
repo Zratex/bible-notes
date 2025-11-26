@@ -387,6 +387,119 @@ Intitulé **L'[[Dieu|Eternel]] délivre [[Israël]]** par [[Bible#^358f23|BDS]]
     et qu’ils observent, qu’ils comprennent,
     que c’est la main de l’[[Dieu|Eternel]] ╵qui a fait tout cela,
     que le Saint d’Israël ╵en est le créateur.
+## Chapitre 45
+Intitulé **Le [[Jésus|Libérateur]] viendra** par [[Bible#^358f23|BDS]]
+### Versets 1 à 8
+Intitulé **L’[[Dieu|Eternel]] domine sur toutes choses** par [[Bible#^358f23|BDS]]
+
+1) Ainsi dit l’[[Dieu|Eternel]] ╵à [[Dieu|son]] oint, à [[Cyrus|Cyrus]],
+   qu’[[Dieu|il]] a pris par la main
+   pour abaisser ╵les nations devant [[Cyrus|lui]]
+   et désarmer les rois,
+   pour ouvrir devant [[Cyrus|lui]] les deux battants
+   afin qu’aucune porte ╵ne [[Cyrus|lui]] reste fermée.
+2) [[Dieu|Moi, j]]’irai devant [[Cyrus|toi]],
+   nivelant les montagnes,
+   fracassant les battants de bronze
+   et brisant les verrous de fer.
+3) Et [[Dieu|je]] [[Cyrus|te]] donnerai ╵les richesses cachées
+   et les trésors ╵déposés dans des lieux secrets,
+   pour que [[Cyrus|tu]] saches
+   que c’est [[Dieu|moi, l’Eternel, ╵moi]] qui [[Cyrus|t]]’appelle par [[Cyrus|ton]] nom,
+   [[Dieu|moi le Dieu]] d’[[Israël|Israël]].
+4) A cause de [[Dieu|mon]] serviteur, [[Jacob|Jacob]],
+   et d’[[Israël|Israël]] que [[Dieu|j]]’ai choisi,
+   [[Dieu|je]] [[Cyrus|t]]’ai appelé par [[Cyrus|ton]] nom,
+   [[Dieu|je]] [[Cyrus|t]]’ai donné un rang d’honneur
+   sans que [[Cyrus|tu]] [[Dieu|me]] connaisses.
+5) [[Dieu|Moi, je suis l’Eternel]],
+   il n’y en a pas d’autre,
+   non, en dehors de [[Dieu|moi]], ╵il n’y a pas de [[Dieu|Dieu]].
+   [[Dieu|Je]] [[Cyrus|t]]’ai doté de force
+   sans que [[Dieu|tu]] [[Cyrus|me]] connaisses,
+6) afin que du soleil levant ╵jusqu’au soleil couchant, ╵tout homme sache
+   qu’en dehors de [[Dieu|moi]], ╵il n’y a que néant,
+   que [[Dieu|je suis l’Eternel]]
+   et qu’il n’y en a aucun autre.
+7) [[Dieu|J]]’ai formé la lumière
+   et créé les ténèbres,
+   [[Dieu|je]] donne le bonheur
+   et [[Dieu|je]] crée le malheur.
+   Oui, c’est [[Dieu|moi, l’Eternel]], ╵qui fais toutes ces choses.
+8) O ciel, répands d’en haut ╵la justice comme une ondée,
+   comme une pluie versée par les nuages.
+   Que la terre s’entr’ouvre,
+   que le salut bourgeonne
+   et, dans le même temps, ╵que la justice germe !
+   [[Dieu|Moi, l’Eternel, ╵moi, j]]’ai créé ces choses.
+### Versets 14 à 25
+Intitulé **Des peuples non [[Israël|israélites]] se rallient à l’[[Dieu|Eternel]]** par [[Bible#^358f23|BDS]]
+
+14) Ainsi dit l’[[Dieu|Eternel]] :
+    Les profits de l’[[Egypte|Egypte]], ╵les gains de l’[[Ethiopie|Ethiopie]]
+    et des gens de [[Saba|Seba]], ╵si hauts de taille,
+    tout cela passera chez [[Cyrus|toi]], ╵cela [[Cyrus|t]]’appartiendra.
+    Ces peuples viendront à [[Cyrus|ta]] suite
+    en marchant enchaînés
+    et ils se prosterneront devant [[Cyrus|toi]]
+    en [[Cyrus|te]] disant ╵sur un ton suppliant :
+    « C’est chez [[Cyrus|toi]] seulement ╵que l’on peut trouver [[Dieu|Dieu]],
+    et en dehors de [[Dieu|lui]], ╵il n’y en a pas d’autre,
+    car tous les autres dieux ╵ne sont que du néant. »
+15) En vérité, ô [[Dieu|Dieu]], ╵toi, [[Dieu|tu]] es un [[Dieu|Dieu]] qui [[Dieu|te]] caches,
+    [[Dieu|Dieu]] d’[[Israël|Israël]] et [[Israël|son]] [[Jésus|Sauveur]].
+16) Les fabricants d’idoles
+    sont honteux et confus,
+    ils s’en vont tous ensemble ╵couverts d’opprobre.
+17) [[Israël|Israël]], pour toujours, ╵sera sauvé par l’[[Dieu|Eternel]]
+    et vous ne serez plus jamais
+    ni honteux ni confus.
+18) Voici ce que déclare l’[[Dieu|Eternel]]
+    qui a créé le ciel, ╵[[Dieu|lui]] qui est [[Dieu|Dieu]],
+    et qui a fait la terre,
+    qui l’a formée et affermie,
+    [[Dieu|il]] ne l’a pas créée ╵à l’état chaotique,
+    mais [[Dieu|il]] l’a façonnée ╵pour que l’on y habite :
+    [[Dieu|Moi, je suis l’Eternel]] ;
+    il n’y en a pas d’autre.
+19) [[Dieu|Je]] n’ai pas parlé en secret
+    ni dans un coin ténébreux de la terre,
+    car aux descendants de [[Jacob|Jacob]], ╵[[Dieu|je]] n’ai pas dit :
+    « Recherchez-[[Dieu|moi]] dans le chaos. »
+    [[Dieu|Moi, je suis l’Eternel, ╵je]] dis ce qui est juste,
+    [[Dieu|je]] proclame ce qui est droit.
+20) Rassemblez-vous, venez,
+    approchez tous ensemble,
+    rescapés des nations !
+    Ils sont sans connaissance,
+    ceux qui portent bien haut ╵leurs idoles de bois
+    et invoquent un dieu
+    qui ne peut les sauver.
+21) Exposez votre cause, ╵avancez vos raisons,
+    délibérez ensemble.
+    Qui donc a fait savoir ces choses ╵dès le lointain passé,
+    et qui, depuis longtemps, ╵les avait annoncées ?
+    N’est-ce pas [[Dieu|moi, ╵moi, l’Eternel]] ?
+    Et en dehors de [[Dieu|moi]], ╵il n’y a pas de [[Dieu|Dieu]].
+    Oui, en dehors de [[Dieu|moi]]
+    il n’est pas de [[Dieu|Dieu]] juste, ╵de [[Dieu|Dieu]] qui sauve.
+22) Tournez-vous donc vers [[Dieu|moi]], ╵et vous serez sauvés,
+    vous tous qui habitez ╵les confins de la terre !
+    Car [[Dieu|moi]] seul [[Dieu|je suis Dieu]],
+    il n’y en a pas d’autre.
+23) [[Dieu|J]]’en ai fait le serment ╵en jurant par [[Dieu|moi-même]],
+    [[Dieu|ma]] bouche a prononcé ╵une parole juste
+    qui est irrévocable :
+    Devant [[Dieu|moi]] tout genou ploiera
+    et toute langue ╵prêtera serment par [[Dieu|mon]] nom,
+24) disant à [[Dieu|mon]] sujet :
+    « C’est en l’[[Dieu|Eternel]] seul
+    que résident pour moi ╵la justice et la force. »
+    A [[Dieu|lui]] viendront, honteux,
+    tous ceux qui, contre [[Dieu|lui]], ╵s’étaient mis en colère.
+25) C’est grâce à l’[[Dieu|Eternel]]
+    que tout le peuple d’[[Israël|Israël]] ╵sera justifié
+    et [[Israël|ils]] s’en féliciteront.
 ## Chapitre 52
 ### Versets 7 à 12
 Intitulé **[[Dieu]] délivre** par la version [[Bible#^358f23|BDS]]

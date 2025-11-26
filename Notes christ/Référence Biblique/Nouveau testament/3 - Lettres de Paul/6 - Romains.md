@@ -177,6 +177,26 @@ Intitulé **La vie d'un chrétien - S'offrir à [[Dieu]]** par [[Bible#^358f23|B
 1) [[Paul|Je]] vous recommande donc, frères et sœurs, à cause de cette immense bonté de [[Dieu|Dieu]], à lui offrir votre corps comme un sacrifice vivant, saint et qui plaise à [[Dieu|Dieu]]. Ce sera là de votre part un culte raisonnable.
 2) Ne prenez pas comme modèle le monde actuel, mais soyez transformés par le renouvellement de votre intelligence, pour pouvoir discerner la volonté de [[Dieu|Dieu]] : ce qui est bon, ce qui [[Dieu|lui]] plaît, ce qui est parfait.
 ## Chapitre 14
+### Versets 1 à 13 (partie 1)
+Intitulé **Le respect des frères et soeurs en la foi** par [[Bible#^358f23|BDS]]
+
+1) Accueillez celui qui est mal affermi dans la foi, sans contester sans cesse ses opinions.
+2) Ainsi la foi de l’un le conduit à manger de tout. L’autre, qui est mal affermi dans la foi, ne mange que des légumes.
+3) Que celui qui mange de tout ne méprise pas celui qui ne fait pas comme lui, et que celui qui ne mange pas de viande ne condamne pas celui qui en mange, car [[Dieu|Dieu]] lui a fait bon accueil.
+4) Qui es-tu, toi, pour juger le serviteur d’un autre ? Qu’il tienne bon ou qu’il tombe, c’est l’affaire de son maître. Mais il tiendra bon car le [[Dieu|Seigneur]], son [[Dieu|maître]], a le pouvoir de le faire tenir.
+5) Pour celui-ci, tel jour a plus d’importance qu’un autre ; pour celui-là, ils sont tous égaux : à chacun d’avoir une pleine conviction en lui-même.
+6) Celui qui fait une distinction entre les jours le fait pour [[Dieu|le Seigneur]]. Celui qui mange de tout le fait aussi pour [[Dieu|le Seigneur]], puisqu’il remercie [[Dieu|Dieu]] pour sa nourriture. Et celui qui s’abstient de certains aliments le fait encore pour [[Dieu|le Seigneur]], car lui aussi remercie [[Dieu|Dieu]].
+7) Aucun de nous ne vit pour lui-même et aucun ne meurt pour lui-même.
+8) Si nous vivons, nous vivons pour [[Dieu|le Seigneur]], et si nous mourons, nous mourons pour [[Dieu|le Seigneur]]. Ainsi, que nous vivions ou que nous mourions, nous appartenons au [[Dieu|Seigneur]].
+9) En effet, [[Jésus|Christ]] est mort et [[Jésus|il]] est revenu à la vie pour être le [[Seigneur|Seigneur]] des morts et des vivants.
+10) Et toi, pourquoi condamnes-tu ton frère ? Ou toi, pourquoi méprises-tu ton frère ? Ne devons-nous pas tous comparaître devant le tribunal de [[Dieu|Dieu]] ?
+11) Car il est écrit :
+    *[[23 - Esaïe#Versets 14 à 25|Aussi vrai que je vis, dit le Seigneur,]]*
+    *[[23 - Esaïe#Versets 14 à 25|tout genou ploiera devant moi]]*
+    *[[23 - Esaïe#Versets 14 à 25|et toute langue]]*
+    *[[23 - Esaïe#Versets 14 à 25|me reconnaîtra comme Dieu]]*.
+12) Ainsi chacun de nous rendra compte à [[Dieu|Dieu]] pour lui-même.
+13) Cessons donc de nous condamner les uns les autres.
 ### Versets 13 (partie 2) à 23
 Intitulé **Se soucier des frères et sœurs en la foi** par [[Bible#^358f23|BDS]]
 

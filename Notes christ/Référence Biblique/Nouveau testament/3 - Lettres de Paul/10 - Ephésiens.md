@@ -11,7 +11,7 @@ Intitulé **De la mort à la vie** par [[Bible#^358f23|BDS]]
 7) [[Dieu|Il]] l’a fait afin de démontrer pour tous les âges à venir, l’extraordinaire richesse de [[Dieu|sa]] grâce qu’[[Dieu|il]] a manifestée en [[Jésus|Jésus-Christ]] par sa bonté envers nous.
 8) Car c’est par grâce que vous êtes sauvés, par le moyen de la foi. Cela ne vient pas de vous, c’est un don de [[Dieu|Dieu]] ;
 9) ce n’est pas le fruit d’œuvres que vous auriez accomplies. Personne n’a donc de raison de se vanter.
-10) Ce que nous sommes, nous le devons à [[Dieu|Dieu]] ; car par notre union avec [[Jésus|Jésus-Christ]], [[Dieu|Dieu]] nous a créés pour une vie riche d’œuvres bonnes qu’il a préparées à l’avance afin que nous les accomplissions.
+10) Ce que nous sommes, nous le devons à [[Dieu|Dieu]] ; car par notre union avec [[Jésus|Jésus-Christ]], [[Dieu|Dieu]] nous a créés pour une vie riche d’œuvres bonnes qu’[[Dieu|il]] a préparées à l’avance afin que nous les accomplissions.
 ### Versets 11 à 22
 Intitulé **Juifs et non-Juifs réconciliés par [[Jésus|Jésus-Christ]]** par [[Bible#^358f23|BDS]]
 

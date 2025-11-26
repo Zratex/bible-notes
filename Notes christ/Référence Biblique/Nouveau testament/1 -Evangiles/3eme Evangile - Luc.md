@@ -98,12 +98,12 @@ Intitulé **Exorcisme et guérisons à [[Capharnaüm|Capernaüm]]** par [[Bible#
 >Ces 7 prochains versets font écho à [[2nd Evangile - Marc#Versets 21 à 45|Marc 1:21-28]] :
 
 31) [[Jésus|Il]] se rendit à [[Capharnaüm|Capernaüm]], une autre ville de la [[Galilée|Galilée]]. [[Jésus|Il]] y enseignait les jours de sabbat.
-32) Ses auditeurs étaient profondément impressionnés par [[Jésus|son]] enseignement, car [[Jésus|il]] parlait avec autorité.
+32) [[Jésus|Ses]] auditeurs étaient profondément impressionnés par [[Jésus|son]] enseignement, car [[Jésus|il]] parlait avec autorité.
 33) Dans la synagogue se trouvait un homme sous l’emprise d’un esprit démoniaque et impur. Il se mit à crier d’une voix puissante :
-34) Ah ! Que nous veux-tu, [[Jésus|Jésus]] de [[Nazareth|Nazareth]] ? Es-[[Jésus|tu]] venu pour nous détruire  ? Je sais qui [[Jésus|tu]] es ! [[Jésus|Tu]] es le [[Jésus|Saint]] envoyé par [[Dieu|Dieu]] !
+34) Ah ! Que nous veux-[[Jésus|tu]], [[Jésus|Jésus]] de [[Nazareth|Nazareth]] ? Es-[[Jésus|tu]] venu pour nous détruire  ? Je sais qui [[Jésus|tu]] es ! [[Jésus|Tu]] es le [[Jésus|Saint]] envoyé par [[Dieu|Dieu]] !
 35) Mais, d’un ton sévère, [[Jésus|Jésus]] lui ordonna : **Tais-toi, et sors de cet homme !**
     Le démon jeta l’homme par terre, au milieu des assistants, et sortit de lui, sans lui faire aucun mal.
-36) Tous furent saisis de stupeur ; ils se disaient tous, les uns aux autres : Quelle est cette parole ? Il donne des ordres aux esprits mauvais, avec autorité et puissance, et ils sortent !
+36) Tous furent saisis de stupeur ; ils se disaient tous, les uns aux autres : Quelle est cette parole ? [[Jésus|Il]] donne des ordres aux esprits mauvais, avec autorité et puissance, et ils sortent !
 37) Et la renommée de [[Jésus|Jésus]] se répandait dans toutes les localités environnantes.
 >Ces 4 prochains versets font écho à [[1er Evangile - Matthieu#Versets 14 à 17|Matthieu 8:14-17]] et [[3eme Evangile - Luc#Versets 31 à 44|Luc 4:38-41]] :
 38) En sortant de la synagogue, [[Jésus|il]] se rendit à la maison de [[Simon Pierre|Simon]]. Or, la belle-mère de [[Simon Pierre|Simon]] souffrait d’une forte fièvre, et l’on demanda à [[Jésus|Jésus]] de faire quelque chose pour elle.
