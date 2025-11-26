@@ -14,7 +14,7 @@ Il est nommé différemment au fur et à mesure de la [[Bible]] :
 - Fils de [[David|David]]
 - Le bon Berger (soit le vrai [[Pasteur]] de l'[[Eglise]])
 - Epoux de l'[[Eglise]]
-- **P**rêtre-sacrificateur (cf note sur [[Prêtre]])
+- **P**rêtre-sacrificateur ou Le Grand-Prêtre (cf note sur [[Prêtre]])
 - [[Yahweh]]
 ## Généalogie
 Une note est dédié à l'analyse de sa [[Généalogie#^d7dc7e|généalogie]]
