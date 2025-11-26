@@ -2,6 +2,7 @@ Il est Dieu tout puissant, créateur de toutes choses.
 Il a pour fils [[Jésus]], et a laissé son [[Saint-Esprit]], et sa parole est écrite au travers de la [[Bible]].
 ## Appellations
 Dieu a différentes noms au fur et à mesure de la [[Bible]]. Voici une liste d'une partie de ces noms :
+- Dieu
 - [[Yahweh]]
 - El (signifiant littéralement `dieu` en langue sémitique comme l'[[Israël|hébreu]] et l'[[Arabie|arabe]], mais ne désignant pas spécifiquement Dieu en fonction du contexte)
 	- El Shaddaï (signifiant `Dieu tout puissant`)

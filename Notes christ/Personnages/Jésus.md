@@ -4,14 +4,17 @@ Il représente la [[Immuabilité de la parole#Relation entre Jésus et la Bible 
 Il est notre [[Seigneur et non seulement sauveur]]
 ## Appellations
 Il est nommé différemment au fur et à mesure de la [[Bible]] :
-- Jésus de Nazareth
-- Jésus-Christ
-- Christ / Le Messie / Fils de [[Dieu]]
-	- A savoir que =="Christ" représente sa forme en tant que Messie== (l'élu dans l'[[Ancien Testament]], soit le Fils de [[Dieu]]), ==donc sa forme spirituel==
-	- Alors que =="Jésus" représente son corps physique== pendant qu'il était sur terre
-- Roi des juifs
+- Christ (A savoir que =="Christ" représente sa forme en tant que Messie== (l'élu dans l'[[Ancien Testament]], soit le Fils de [[Dieu]]), ==donc sa forme spirituel==. Alors que =="Jésus" représente son corps physique== pendant qu'il était sur terre)
+	- Fils de [[Dieu]]
+	- Le Messie
+	- Jésus-Christ
+- Jésus de [[Nazareth|Nazareth]]
+- Roi des [[Israël|Juifs]]
 - Fils de l'homme
 - Fils de [[David|David]]
+- Le bon Berger (soit le vrai [[Pasteur]] de l'[[Eglise]])
+- Epoux de l'[[Eglise]]
+- **P**rêtre-sacrificateur (cf note sur [[Prêtre]])
 - [[Yahweh]]
 ## Généalogie
 Une note est dédié à l'analyse de sa [[Généalogie#^d7dc7e|généalogie]]
