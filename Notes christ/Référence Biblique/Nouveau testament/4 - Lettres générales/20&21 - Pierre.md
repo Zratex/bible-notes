@@ -12,6 +12,16 @@ Intitulé **L'espérance du salut : Une espérance vivante** par [[Bible#^358f23
 8) [[Jésus]], vous ne l’avez pas vu, et pourtant vous l’aimez ; mais en plaçant votre confiance en lui sans le voir encore, vous êtes remplis d’une joie glorieuse et inexprimable,
 9) car vous obtenez en retour votre salut qui est le but de votre foi.
 ## Chapitre 5
+### Versets 1 à 6
+Intitulé **Recommandations aux responsables dans l’[[Eglise|Eglise]] et aux croyants** par [[Bible#^358f23|BDS]]
+
+1) C’est pour cela que [[Simon Pierre|j]]’adresse quelques recommandations à ceux parmi vous qui sont responsables de l’[[Eglise|Eglise]]. [[Simon Pierre|Je]] leur parle en tant que responsable comme eux et témoin des souffrances de [[Jésus|Christ]], [[Simon Pierre|moi]] qui ai aussi part à la gloire qui va être révélée.
+2) Prenez soin du troupeau de [[Dieu|Dieu]] qui vous a été confié. Faites-le, non comme si vous y étiez contraints, mais par dévouement, comme [[Dieu|Dieu]] le désire ; non pas pour de honteuses raisons financières, mais de plein gré ;
+3) et n’exercez pas un pouvoir autoritaire sur ceux qui ont été confiés à vos soins, mais soyez les modèles du troupeau.
+4) Alors, quand [[Jésus|le Berger en chef]] paraîtra, vous recevrez la couronne de gloire qui ne perdra jamais sa beauté.
+5) Vous de même, jeunes gens, soumettez-vous aux responsables de l’[[Eglise|Eglise]]. Et vous tous, dans vos relations mutuelles, revêtez-vous d’humilité, car l’[[Ancien Testament|Ecriture]] déclare : *[[20 - Proverbes#Versets 27 à 35|Dieu s’oppose aux orgueilleux, mais il accorde sa grâce aux humbles]]*.
+6) Tenez-vous donc humblement sous la main puissante de [[Dieu|Dieu]], pour qu’[[Dieu|il]] vous élève au moment fixé par [[Dieu|lui]]
+7) et déchargez-vous sur [[Dieu|lui]] de tous vos soucis, car [[Dieu|il]] prend soin de vous.
 ### Versets 8 à 11
 Intitulé **Encouragements** par [[Bible#^358f23|BDS]]
 

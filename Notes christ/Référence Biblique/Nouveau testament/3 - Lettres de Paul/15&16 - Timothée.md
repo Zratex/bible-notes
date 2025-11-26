@@ -1,6 +1,22 @@
 Lettres de [[Paul]] destinées à [[Timothée]]
 # 1 Timothée
 ## Chapitre 3
+### Versets 1 à 13
+Intitulé **Les dirigeants dans l’[[Eglise|Eglise]] et leurs assistants** par [[Bible#^358f23|BDS]]
+
+1) « Celui qui aspire à être un dirigeant dans l’[[Eglise|Eglise]] désire une belle tâche. » Cette parole est certaine.
+2) Il faut toutefois que le dirigeant soit un homme irréprochable : mari fidèle à sa femme, faisant preuve de modération, réfléchi et vivant de façon convenable. Qu’il soit hospitalier et capable d’enseigner.
+3) Il ne doit pas être buveur ni querelleur, mais au contraire aimable, pacifique et désintéressé.
+4) Qu’il dirige bien sa famille et maintienne ses enfants dans l’obéissance, en toute dignité.
+5) Car, comment un homme qui ne dirige pas bien sa famille, serait-il qualifié pour prendre soin de l’[[Eglise|Eglise]] de [[Dieu|Dieu]] ?
+6) Que ce ne soit pas un converti de fraîche date, de peur qu’il se laisse aveugler par l’orgueil et tombe sous la même condamnation que [[Satan|le diable]].
+7) Enfin, il doit aussi jouir d’une bonne réputation parmi ceux qui ne font pas partie de la famille de [[Dieu|Dieu]] afin de ne pas s’exposer au mépris public et de ne pas tomber dans les pièges du [[Satan|diable]].
+8) Il en va de même des [[Diacre|diacres]]. Ils doivent inspirer le respect : qu’ils soient des hommes de parole, sans penchant pour la boisson ni pour le gain malhonnête.
+9) Ils doivent garder avec une bonne conscience la vérité révélée de la foi.
+10) Il faut qu’eux aussi soient d’abord soumis à examen. Ensuite, si on n’a rien à leur reprocher, ils accompliront leur service.
+11) Il en va de même pour les [[Diacre|diaconesses]]  : elles doivent inspirer le respect : qu’elles ne soient pas médisantes ; qu’elles fassent preuve de modération et soient dignes de confiance dans tous les domaines.
+12) Que les [[Diacre|diacres]] soient des maris fidèles ; qu’ils assument bien leurs responsabilités à l’égard de leurs enfants et de leur famille.
+13) Car ceux qui remplissent bien leur [[Ministères|ministère]] acquièrent une situation respectée et une grande assurance dans la foi en [[Jésus|Jésus-Christ]].
 ### Versets 14 à 16
 Intitulé **Le secret révélé** par [[Bible#^358f23|BDS]]
 

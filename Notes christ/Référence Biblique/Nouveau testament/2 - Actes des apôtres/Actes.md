@@ -340,3 +340,35 @@ Intitulé **A Philippes** par [[Bible#^358f23|BDS]]
 38) Les huissiers rapportèrent ces paroles aux magistrats. Ceux-ci, en apprenant qu’ils avaient affaire à des citoyens [[Romains|romains]], furent pris de peur.
 39) Ils vinrent en personne leur présenter des excuses, leur rendirent la liberté et leur demandèrent de bien vouloir quitter la [[Philippes (ville)|ville]].
 40) A leur sortie de prison, [[Paul]] et [[Silas|Silas]] se rendirent chez [[Lydie]], où ils retrouvèrent tous les frères, ils les encouragèrent, puis ils reprirent la route.
+## Chapitre 20
+### Versets 13 à 38
+Intitulé **[[Paul|Paul]] fait ses adieux aux responsables de l’[[Eglise locale|Eglise]] d’[[Ephèse]]** par [[Bible#^358f23|BDS]]
+>Le passage en gras est une parole qu'a prononcé [[Jésus]] mais qui n'est listé dans aucun [[Évangile]]
+
+13) Pour nous, nous avons pris les devants, et nous nous sommes embarqués sur un bateau qui nous a amenés à [[Assos|Assos]], où nous devions prendre [[Paul|Paul]], conformément à ce qu’[[Paul|il]] avait décidé. Car [[Paul|il]] voulait faire la route à pied jusque-là.
+14) Quand [[Paul|il]] nous eut rejoints à [[Assos|Assos]], nous avons repris la mer ensemble. Après une escale à [[Mytilène|Mytilène]],
+15) nous avons passé le lendemain au large de [[Chio|Chio]]. Le jour suivant, nous jetions l’ancre à [[Samos|Samos]] et, un jour plus tard, nous abordions à [[Milet|Milet]].
+16) [[Paul|Paul]] avait, en effet, décidé de dépasser [[Ephèse|Ephèse]] sans s’y arrêter pour ne pas risquer de s’attarder dans la province d’[[Asie mineure|Asie]]. [[Paul|Il]] se hâtait pour être à [[Jérusalem|Jérusalem]], si possible, le jour de la [[Pentecôte|Pentecôte]].
+17) Pendant l’escale à [[Milet|Milet]], [[Paul|il]] envoya quelqu’un à [[Ephèse|Ephèse]] pour demander aux responsables de l’[[Ephèse|Eglise]] de venir [[Paul|le]] rejoindre.
+18) Quand ils furent arrivés auprès de [[Paul|lui, il]] leur dit :
+    Vous savez comment [[Paul|je me]] suis comporté pendant tout le temps que [[Paul|j]]’ai passé parmi vous, depuis le jour de mon arrivée dans la province d’[[Asie mineure|Asie]].
+19) [[Paul|J]]’ai servi le [[Dieu|Seigneur]] en toute humilité, avec des larmes, au milieu d’épreuves suscitées par les complots des [[Israël|Juifs]].
+20) Vous savez aussi que, sans rien vous cacher, [[Paul|je]] vous ai annoncé et enseigné tout ce qui pouvait vous être utile, soit publiquement, soit dans vos maisons.
+21) Sans cesse, [[Paul|j]]’ai appelé [[Israël|Juifs]] et [[Grecs|Grecs]] à se tourner vers [[Dieu|Dieu]] et à croire en [[Jésus|Jésus]], notre [[Seigneur et non seulement sauveur|Seigneur]].
+22) Et maintenant, [[Paul|me]] voici en route pour [[Jérusalem|Jérusalem]]. L’[[Saint-Esprit|Esprit]] [[Paul|m]]’y oblige, mais [[Paul|j]]’ignore ce qui [[Paul|m]]’y arrivera.
+23) Tout ce que [[Paul|je]] sais, c’est que le [[Saint-Esprit|Saint-Esprit]] [[Paul|m]]’avertit de ville en ville que [[Paul|je]] dois [[Paul|m]]’attendre à être emprisonné et à connaître bien des souffrances.
+24) [[Paul|Ma]] vie [[Paul|m]]’importe peu, [[Paul|je]] ne lui accorde aucun prix ; mon but c’est d’aller jusqu’au bout de [[Paul|ma]] course et d’accomplir pleinement le service que le [[Seigneur et non seulement sauveur|Seigneur]] [[Jésus|Jésus]] [[Paul|m]]’a confié c’est-à-dire de proclamer l’[[Évangile|Evangile]], ce message de la grâce de [[Dieu|Dieu]].
+25) Et maintenant, [[Paul|je]] le sais : vous tous, au milieu de qui [[Paul|j]]’ai passé en prêchant le [[Royaume de Dieu|royaume de Dieu]], vous ne [[Paul|me]] reverrez plus.
+26) C’est pourquoi [[Paul|je]] vous le déclare solennellement aujourd’hui : [[Paul|je]] suis dégagé de toute responsabilité à votre égard,
+27) car [[Paul|je]] vous ai annoncé tout le plan de [[Dieu|Dieu]], sans rien passer sous silence.
+28) Veillez donc sur vous-mêmes et sur tout le troupeau de l’[[Eglise|Eglise]] que le [[Saint-Esprit|Saint-Esprit]] a confié à votre garde. Comme le berger le fait de son troupeau, prenez soin de l’[[Eglise|Eglise]] de [[Dieu|Dieu]] qu’[[Dieu|il]] s’est acquise par [[Jésus|son]] sacrifice.
+29) [[Paul|Je]] le sais : quand [[Paul|je]] ne serai plus là, des loups féroces se glisseront parmi vous, et ils seront sans pitié pour le troupeau.
+30) De vos propres rangs surgiront des hommes qui emploieront un langage mensonger pour se faire des disciples.
+31) Soyez donc vigilants ! Rappelez-vous que, pendant trois années, la nuit comme le jour, [[Paul|je]] n’ai cessé de vous conseiller un à un, et parfois même avec larmes.
+32) Et maintenant il ne me reste plus qu’à vous confier à [[Dieu|Dieu]] et à sa [[Bible|Parole]] de grâce. [[Dieu|Il]] a le pouvoir de vous faire grandir dans la foi et de vous assurer l’héritage qu’[[Dieu|il]] vous réserve avec tous les membres de [[Dieu|son]] peuple saint.
+33) [[Paul|Je]] n’ai désiré ni l’argent, ni l’or, ni les vêtements de personne.
+34) Regardez [[Paul|mes]] mains : ce sont elles, vous le savez bien, qui ont pourvu à mes besoins et à ceux de mes compagnons.
+35) [[Paul|Je]] vous ai montré partout et toujours qu’il faut travailler ainsi pour aider les pauvres. Souvenons-nous de ce que le [[Seigneur et non seulement sauveur|Seigneur]] [[Jésus|Jésus lui-même]] a dit : **« Il y a plus de bonheur à donner qu’à recevoir. »**
+36) Après avoir ainsi parlé, [[Paul|Paul]] se mit à genoux et pria avec eux.
+37) Tous, alors, éclatèrent en sanglots et ils se jetaient au cou de [[Paul|Paul]] pour [[Paul|l]]’embrasser.
+38) Ce qui les affligeait surtout, c’était de l’avoir entendu dire qu’ils ne le reverraient plus. Puis ils [[Paul|l]]’accompagnèrent jusqu’au bateau.

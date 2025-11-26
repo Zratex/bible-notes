@@ -1,4 +1,4 @@
-==Pasteur :== comme un **berger** (même racine que "**évêque**" ou "**diacre**"), son rôle est de guider et veiller à ce que le troupeau contenant les brebis du [[Jésus|maître]] restent dans le [[Royaume de Dieu]].
+==Pasteur :== comme un **berger** (même racine que "**évêque**" ou parfois même "**[[Diacre]]**"), son rôle est de guider et veiller à ce que le troupeau contenant les brebis du [[Jésus|maître]] restent dans le [[Royaume de Dieu]].
 Un pasteur dans une église a son rôle, mais il est délégué de [[Jésus]] car **[[Jésus]] est le vrai pasteur de l'[[Eglise]]**.
 -> C'est l'un des 5 [[Ministères]], et il est obligatoire pour une [[Eglise locale]]
 >C'est à l'inverse des représentants catholiques qui, en particulier le [[Pape]] et [[Prêtre]], se présentent comme étant l'intermédiaire entre le peuple et [[Dieu]]

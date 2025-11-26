@@ -1,4 +1,4 @@
-Lettre de [[Paul]] envers l'[[Eglise]] d'[[Ephèse]].
+Lettre de [[Paul]] envers l'[[Eglise locale|église]] d'[[Ephèse]].
 ## Chapitre 2
 ### Versets 1 à 10
 Intitulé **De la mort à la vie** par [[Bible#^358f23|BDS]]

@@ -13,26 +13,31 @@ Les [[Pierres vivantes|pierres vivantes]] se fortifient entre elles.
 [[Dieu]] a délégué des [[Ministères|ministères]] pour qu'il y ait une autorité. Mais elle n'est pas là pour nous écraser mais nous affermir.
 [[Pasteur]]
 ## Rôle
-Prendre soin du troupeau qui a été délégué, donc veiller à ce qu'ils restent dans le [[Royaume de Dieu]] : `Actes 20:28`
+Prendre soin du troupeau qui a été délégué, donc veiller à ce qu'ils restent dans le [[Royaume de Dieu]] : [[Actes#Versets 13 à 38|Actes 20:28]]
 
-`1 Pierre 5:1-4` : le troupeau doit être nourrit par la [[Bible]], et ça se fait notamment par l'enseignement pour qu'à leur tour ils deviennent des disciples
-Un pasteur doit être exemplaire (comme [[Paul]] le recommande à [[Tite]] et [[Timothée]]) dans son témoignage et ça se fait notamment par prévenir les brebis quand elles font des choses qui ne sont pas inspirées du [[Saint-Esprit]]
-Et si le pasteur n'est pas exemplaire sur un instant T, il doit pouvoir demander pardon
-Et pour éviter ça, c'est qu'il doit se nourrir de la [[Bible]] pour éviter des dérives sectaires.
-`1 Timothée 3` et `Tite 1`
+[[20&21 - Pierre#Versets 1 à 6|1 Pierre 5:1-4]] : le troupeau doit être nourrit par la [[Bible]], et ça se fait notamment par l'enseignement pour qu'à leur tour ils deviennent des disciples.
+
+Un [[Pasteur]] doit être exemplaire dans son témoignage (comme [[Paul]] le recommande à [[Tite]] et [[Timothée]]) et ça se fait notamment par prévenir les brebis quand elles font des choses qui ne sont pas inspirées du [[Saint-Esprit]] et/ou selon son expérience.
+>Et si le [[Pasteur]] n'est pas exemplaire sur un instant T, il doit pouvoir demander pardon.
+
+Et pour éviter ce cas où [[Pasteur|il]] n'est pas exemplaire, il doit se nourrir de la [[Bible]] pour éviter des dérives sectaires.
 ### Priorités du pasteur 
 Au delà (voir au travers) de son rôle, la priorité d'un pasteur est surtout de :
 - prier
 - enseigner
 
-[[10 - Ephésiens#Versets 7 à 16|Ephesiens 4:11-12]] : Les 5 [[Ministères]] ne sont pas toujours présents dans une [[Eglise locale|église locale]], mais celui du ==[[Pasteur|pasteur]] est obligatoire==, autrement une [[Eglise locale|église]] sans [[Pasteur|pasteur]] se perds
-Les [[Ministères|ministères]] sont établies en direction de l'[[Eglise locale|église]]
-## Qualifié pour être pasteur
-`Tite 1:5-9` : 3  : positionnement devant [[Dieu]] dans la prière, suivi d'une conviction (à savoir que pour les pasteurs c'est une petite proportion de la nation)
-`1 Timothée 3:1-7` : tenir dans le sens maintenir en ordre et selon la parole de [[Dieu]], et doit aussi être un témoignage pour le monde
--> mais du coup un pasteur est forcément soumis à quelqu'un d'autre pour rester dans l'humilité, sinon celà peut mener à la dérive secteur 
-## Les mauvais pasteurs
-Il existe malheureusement des mauvais [[Pasteur|pasteurs]]. ça dépend beaucoup de la situation, mais voici quelques red flags évidents pour repérer rapidement un mauvais pasteur :
+[[10 - Ephésiens#Versets 7 à 16|Ephesiens 4:11-12]] : Les 5 [[Ministères]] ne sont pas toujours présents dans une [[Eglise locale|église locale]], mais ==le [[Ministères|ministère]] [[Pasteur|pasteur]] est obligatoirement présent==, autrement une [[Eglise locale|église]] sans [[Pasteur|pasteur]] se perds
+## Qualifications pour devenir pasteur
+Il faut (selon [[17 - Tite#Versets 5 à 9|Tite 1:5-9]] et [[15&16 - Timothée#Versets 1 à 13|Timothée 3:1-7]]) :
+- **Positionnement devant [[Dieu]] dans la prière**
+- **Une conviction** (à savoir que pour les [[Pasteur|pasteurs]] c'est une petite proportion de la nation)
+- Tenir dans le sens **maintenir en ordre et selon la [[Bible]]**
+- **être un témoignage pour le monde**
+
+-> mais du coup un [[Pasteur]] est forcément soumis à quelqu'un d'autre pour rester dans l'humilité, sinon cela peut mener à la dérive sectaire (exemple de mauvais [[Pasteur|pasteurs]] dans le point suivant)
+### Les mauvais pasteurs
+Il existe malheureusement des mauvais [[Pasteur|pasteurs]], et parfois ils peuvent mener à des dérives sectaires.
+ça dépend beaucoup de la situation, mais voici quelques red flags évidents pour repérer rapidement un mauvais pasteur :
 - **Immoralité sexuel**
-- La dîme vient du cœur, donc un pasteur ne doit pas se demander au point de **forcer pour de l'argent**
-- **Manipulation** en imposant des choses
+- La dîme vient du cœur, donc un [[Pasteur|pasteur]] ne doit pas se demander au point de **forcer pour de l'argent**
+- **Manipulation** en imposant des choses en particulier dans le [[Service|service]]

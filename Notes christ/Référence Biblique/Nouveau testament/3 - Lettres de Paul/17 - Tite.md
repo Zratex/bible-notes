@@ -7,7 +7,7 @@ Intitulé **L'établissement de responsables dans l'[[Eglise]]** par [[Bible#^35
 6) Chacun d’eux doit être un homme irréprochable et un mari fidèle à sa femme. Il faut que ses enfants soient dignes de confiance, c’est-à-dire qu’on ne puisse pas les accuser d’inconduite ou d’insoumission.
 7) En effet, il est nécessaire qu’un dirigeant d’[[Eglise|Eglise]] soit irréprochable, puisqu’il a la responsabilité de la famille de [[Dieu|Dieu]]. C’est pourquoi il ne doit être ni imbu de lui-même ni coléreux, ni buveur, ni querelleur, ni attiré par des gains malhonnêtes.
 8) Qu’il soit, au contraire, hospitalier, ami du bien, réfléchi, juste, saint et maître de lui-même ;
-9) qu’il soit fidèlement attaché à la parole certaine, qui est conforme à ce qui lui a été enseigné. Ainsi il sera en mesure d’encourager les autres selon l’enseignement sain et de réfuter les contradicteurs.
+9) qu’il soit fidèlement attaché à [[Bible|la parole certaine]], qui est conforme à ce qui lui a été enseigné. Ainsi il sera en mesure d’encourager les autres selon l’enseignement sain et de réfuter les contradicteurs.
 ## Chapitre 2
 ### Versets 11 à 15
 Intitulé **La grâce, source du salut** par [[Bible#^358f23|BDS]]
