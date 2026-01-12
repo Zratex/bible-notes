@@ -71,6 +71,64 @@ Intitulé **Les premiers Disciples** par [[Bible#^358f23|BDS]]
 49) – Maître, s’écria [[Nathanaël]], tu es le [[Jésus|Fils]] de [[Dieu]], tu es le Roi d’[[Israël]] !
 50) **– [[Nathanaël|Tu]] crois**, lui répondit [[Jésus]], **parce que je t’ai dit que je t’ai vu sous le figuier ? Tu verras de bien plus grandes choses encore.**
 51) Et [[Jésus|il]] ajouta : **Oui, je vous l’assure, vous verrez le ciel ouvert et les anges de [[Dieu]] monter et descendre entre ciel et terre par l’intermédiaire du [[Jésus|Fils]] de l’homme.**
+## Chapitre 2
+### Versets 1 à 12
+Intitulé **Le premier miracle** par [[Bible#^358f23|BDS]]
+
+1) Deux jours plus tard, on célébrait des noces à [[Cana|Cana]], en [[Galilée|Galilée]]. La [[Marie|mère]] de [[Jésus|Jésus]] y assistait.
+2) [[Jésus|Jésus]] avait aussi été invité au mariage avec [[Jésus|ses]] disciples.
+3) Or voilà que le vin se mit à manquer. La [[Marie|mère]] de [[Jésus|Jésus]] [[Jésus|lui]] fit remarquer : Ils n’ont plus de vin.
+4) **– Ecoute**, [[Marie|lui]] répondit [[Jésus|Jésus]], **est-ce [[Marie|toi]] ou [[Jésus|moi]] que cette affaire concerne ? Mon heure n’est pas encore venue.**
+5) [[Jésus|Sa]] [[Marie|mère]] dit aux serviteurs : Faites tout ce qu’[[Jésus|il]] vous dira.
+6) Il y avait là six jarres de pierre que les Juifs utilisaient pour leurs ablutions rituelles. Chacune d’elles pouvait contenir entre quatre-vingts et cent vingt litres.
+7) [[Jésus|Jésus]] dit aux serviteurs : **Remplissez d’eau ces jarres.**
+   Ils les remplirent jusqu’au bord.
+8) **– Maintenant**, leur dit-[[Jésus|il]], **prenez-en un peu et allez l’apporter à l’ordonnateur du repas.**
+   Ce qu’ils firent.
+9) L’ordonnateur du repas goûta l’eau qui avait été changée en vin. Il ne savait pas d’où venait ce vin, alors que les serviteurs le savaient, puisqu’ils avaient puisé l’eau. Aussitôt il fit appeler le marié
+10) et lui dit : En général, on sert d’abord le bon vin, et quand les gens sont ivres, on leur donne de l’ordinaire. Mais toi, tu as réservé le bon jusqu’à maintenant !
+11) C’est là le premier des signes miraculeux que fit [[Jésus|Jésus]]. Cela se passa à [[Cana|Cana]] en [[Galilée|Galilée]]. [[Jésus|Il]] révéla ainsi [[Jésus|sa]] gloire, et ses disciples crurent en [[Jésus|lui]].
+12) Après cela, [[Jésus|Jésus]] descendit à [[Capharnaüm|Capernaüm]] avec [[Jésus|sa]] [[Marie|mère]], [[Jésus|ses]] frères et [[Jésus|ses]] disciples ; mais ils n’y restèrent que quelques jours.
+## Chapitre 4
+### Versets 43 à 54
+Intitulé **Le deuxième miracle en [[Galilée|Galilée]]** par [[Bible#^358f23|BDS]]
+
+43) Après ces deux jours, [[Jésus|Jésus]] repartit de [[Samarie|là]] pour la [[Galilée|Galilée]],
+44) car il avait déclaré qu’un prophète ne reçoit pas dans son pays l’honneur qui lui est dû.
+45) Or, quand [[Jésus|il]] arriva en [[Galilée|Galilée]], les gens [[Jésus|lui]] firent assez bon accueil, car ils étaient, eux aussi, allés à [[Jérusalem|Jérusalem]] pendant la fête, et ils avaient vu tous les miracles qu’[[Jésus|il]] y avait faits.
+46) [[Jésus|Il]] repassa par [[Cana|Cana]] en [[Galilée|Galilée]], où [[Jésus|il]] avait changé l’eau en vin. Or, à [[Capharnaüm|Capernaüm]] vivait un haut fonctionnaire dont le fils était très malade.
+47) Quand il apprit que [[Jésus|Jésus]] était revenu de [[Judée|Judée]] en [[Galilée|Galilée]], il alla [[Jésus|le]] trouver et [[Jésus|le]] supplia de venir guérir son fils qui était sur le point de mourir.
+48) [[Jésus|Jésus]] lui dit : **A moins de voir des signes miraculeux et des choses extraordinaires, vous ne croirez donc pas ?**
+49) Mais le fonctionnaire insistait : [[Jésus|Seigneur]], viens vite avant que mon petit garçon meure.
+50) **– Va**, lui dit [[Jésus|Jésus]], **rentre chez toi, ton fils vit.**
+    Cet homme crut [[Jésus|Jésus]] sur parole et il repartit chez lui.
+51) Sur le chemin du retour, plusieurs de ses serviteurs vinrent à sa rencontre et lui annoncèrent : Ton fils vit !
+52) Il leur demanda à quelle heure son état s’était amélioré.
+    Ils lui répondirent : C’est hier, vers une heure de l’après-midi, que la fièvre l’a quitté.
+53) Le père constata que c’était l’heure même où [[Jésus|Jésus]] lui avait dit : **« Ton fils vit. »** Dès lors il crut, lui et toute sa maison.
+54) Tel est le deuxième signe miraculeux que [[Jésus|Jésus]] accomplit en [[Galilée|Galilée]], après [[Jésus|son]] retour de [[Judée|Judée]].
+## Chapitre 5
+Intitulé **Foi et incrédulité** par [[Bible#^358f23|BDS]]
+### Versets 1 à 15
+Intitulé **Foi et incrédulité - La guérison d’un paralysé à [[Jérusalem|Jérusalem]]** par [[Bible#^358f23|BDS]]
+
+1) Quelque temps plus tard, [[Jésus|Jésus]] remonta à [[Jérusalem|Jérusalem]] à l’occasion d’une fête juive.
+2) Or, dans [[Jérusalem|cette ville]], près de la porte des Brebis, se trouvait une [[Jérusalem#Piscine de Bethesda|piscine]] entourée de cinq galeries couvertes, appelée en hébreu [[Jérusalem#Piscine de Bethesda|Béthesda]].
+3) Ces galeries étaient remplies de malades qui y restaient couchés : des aveugles, des paralysés, des impotents.
+4) [Ils attendaient le bouillonnement de l'eau. Car un ange du [[Dieu|Seigneur]] descendait de temps en temps dans la [[Jérusalem#Piscine de Bethesda|piscine]] et agitait l'eau. Le premier qui y entrait après le bouillonnement de l'eau était guéri, quelle que soit sa maladie.]
+5) Il y avait là un homme malade depuis trente-huit ans.
+6) [[Jésus|Jésus]] le vit couché ; quand [[Jésus|il]] sut qu’il était là depuis si longtemps, [[Jésus|il]] lui demanda : **Veux-tu être guéri ?**
+7) – [[Jésus|Maître]], répondit le malade, je n’ai personne pour me plonger dans la piscine quand l’eau commence à bouillonner. Le temps que je me traîne là-bas, un autre y arrive avant moi.
+8) **– Eh bien,** lui dit [[Jésus|Jésus]], **lève-toi, prends ta natte et marche !**
+9) A l’instant même l’homme fut guéri. Il prit sa natte et se mit à marcher.
+   Mais cela se passait un jour de sabbat.
+10) Les Juifs interpellèrent donc l’homme qui venait d’être guéri : C’est le sabbat ! Tu n’as pas le droit de porter cette natte.
+11) – Mais, répliqua-t-il, [[Jésus|celui]] qui m’a guéri m’a dit : **« Prends ta natte et marche. »**
+12) – Et qui t’a dit cela ? lui demandèrent-ils.
+13) Mais l’homme qui avait été guéri ignorait qui c’était, car [[Jésus|Jésus]] avait disparu dans la foule qui se pressait en cet endroit.
+14) Peu de temps après, [[Jésus|Jésus]] le rencontra dans la cour du [[Jérusalem#Temple|Temple]].
+    **– Te voilà guéri**, lui dit-[[Jésus|il]]. **Mais veille à ne plus pécher, pour qu’il ne t’arrive rien de pire.**
+15) Et l’homme alla annoncer aux Juifs que c’était [[Jésus|Jésus]] qui l’avait guéri.
 ## Chapitre 8
 ### Versets 31 à 51
 Intitulé **Les vrais fils d'[[Abraham]]**
@@ -254,3 +312,16 @@ Intitulé **La mort de [[Jésus]]** par [[Bible#^358f23|BDS]]
 36) [[Jean|Celui]] qui rapporte ces faits, les a vus de ses propres yeux et son témoignage est vrai. [[Jean|Il]] sait parfaitement qu’il dit la vérité pour que, vous aussi, vous croyiez.
 37) En effet, tout cela est arrivé pour que se réalise cette parole de l’[[Ancien Testament|Ecriture]] : *Aucun de ses os ne sera brisé*.
 38) De plus, un autre [[Ancien Testament|texte]] déclare : *Ils tourneront leurs regards vers celui qu’ils ont transpercé.*
+## Chapitre 20
+### Versets 24 à 31
+Intitulé **[[Jésus|Jésus]] apparaît à [[Thomas|Thomas]]** par [[Bible#^358f23|BDS]]
+
+24) L’un des [[Apôtres|Douze]], [[Thomas|Thomas]], surnommé le Jumeau, n’était pas avec eux lors de la venue de [[Jésus|Jésus]].
+25) Les autres disciples lui dirent : Nous avons vu le [[Jésus|Seigneur]] !
+    Mais [[Thomas|il]] leur répondit : Si [[Thomas|je]] ne vois pas la marque des clous dans [[Jésus|ses]] mains, si [[Thomas|je]] ne mets pas [[Thomas|mon]] doigt à la place des clous, et si [[Thomas|je]] ne mets pas la main dans [[Jésus|son]] côté, [[Thomas|je]] ne croirai pas.
+26) Huit jours plus tard, les disciples étaient de nouveau réunis dans la maison. Cette fois-ci, [[Thomas|Thomas]] était avec eux. [[Jésus|Jésus]] vint, alors que les portes étaient verrouillées. [[Jésus|Il]] se tint au milieu d’eux et leur dit : **Que la paix soit avec vous !**
+27) Puis [[Jésus|il]] dit à [[Thomas|Thomas]] : **Place [[Thomas|ton]] doigt ici, vois [[Jésus|mes]] mains ; avance [[Thomas|ta]] main et mets-la dans [[Jésus|mon]] côté. Ne sois donc pas incrédule, mais crois.**
+28) [[Thomas|Thomas]] [[Jésus|lui]] répondit : [[Thomas|Mon]] [[Jésus|Seigneur]] et [[Thomas|mon]] [[Dieu|Dieu]] !
+29) **– Parce que [[Thomas|tu]] [[Jésus|m]]’as vu, [[Thomas|tu]] crois !** [[Thomas|lui]] dit [[Jésus|Jésus]]. **Heureux ceux qui croient sans avoir vu.**
+30) [[Jésus|Jésus]] a accompli, sous les yeux de [[Jésus|ses]] disciples, encore beaucoup d’autres signes miraculeux qui n’ont pas été rapportés dans [[4eme Evangile - Jean|ce livre]].
+31) Mais ce qui s’y trouve a été écrit pour que vous croyiez que [[Jésus|Jésus]] est [[Jésus|le Messie]], le Fils de [[Dieu|Dieu]], et qu’en croyant, vous possédiez la vie en [[Jésus|son]] nom.

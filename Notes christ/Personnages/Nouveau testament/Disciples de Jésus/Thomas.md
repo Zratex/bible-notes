@@ -1,1 +1,2 @@
-C'est un des [[Apôtres]]
+**Thomas**, surnommé le Jumeau ([[4eme Evangile - Jean#Versets 24 à 31|Jean 20:24]]) est un des [[Apôtres]]
+C'était celui qui ne croyait pas à la résurrection de [[Jésus]] sans l'avoir vu de ses propres yeux

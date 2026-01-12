@@ -11,10 +11,42 @@
             "id": "231fa77adb5da936",
             "type": "leaf",
             "state": {
-              "type": "graph",
-              "state": {},
-              "icon": "lucide-git-fork",
-              "title": "Graph view"
+              "type": "markdown",
+              "state": {
+                "file": "Miracles pour croire.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "Miracles pour croire"
+            }
+          },
+          {
+            "id": "5f3f0be415a509d6",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Référence Biblique/Nouveau testament/1 -Evangiles/4eme Evangile - Jean.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "4eme Evangile - Jean"
+            }
+          },
+          {
+            "id": "f01034ffb5390ea3",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Lieux historiques/Villes/Jérusalem.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "Jérusalem"
             }
           }
         ]
@@ -90,6 +122,7 @@
             "state": {
               "type": "backlink",
               "state": {
+                "file": "Miracles pour croire.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -99,7 +132,7 @@
                 "unlinkedCollapsed": true
               },
               "icon": "links-coming-in",
-              "title": "Backlinks"
+              "title": "Backlinks for Miracles pour croire"
             }
           },
           {
@@ -175,46 +208,46 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "412ad4b021e16018",
+  "active": "231fa77adb5da936",
   "lastOpenFiles": [
+    "Saint Esprit est une personne.md",
+    "Si tu crois.md",
+    "Formation disciples/Qui est Dieu.md",
+    "Reconnaissance.md",
+    "Baptisez les.md",
+    "Formation disciples/Identité/Notre origine et identité.md",
+    "Bénédictions et malédictions.md",
+    "Miracles pour croire.md",
+    "Référence Biblique/Nouveau testament/1 -Evangiles/4eme Evangile - Jean.md",
+    "Lieux historiques/Villes/Jérusalem.md",
+    "Lieux historiques/Villes/Guilgal (près de Béthel).md",
+    "Lieux historiques/Villes/Guilgal.md",
+    "Lieux historiques/Images/Mur des lamentations.PNG",
+    "Lieux historiques/Images/Mont des oliviers.PNG",
+    "Lieux historiques/Images/Gethsemane.PNG",
+    "Lieux historiques/Images/Piscine de Bethesda.PNG",
+    "Lieux historiques/Régions géographiques/Samarie.md",
+    "Lieux historiques/Villes/Guibéa.md",
+    "Référence Biblique/Ancien testament/3 - Premiers livres historiques/9&10 - Samuel.md",
+    "Lieux historiques/Villes/Cana.md",
+    "Lieux historiques/Villes/Tyr.md",
+    "Lieux historiques/Images/Tyr.PNG",
+    "Lieux historiques/Villes/Sidon.md",
+    "Lieux historiques/Royaumes/Phénécie.md",
+    "Lieux historiques/Images/Cana.PNG",
+    "Référence Biblique/Nouveau testament/2 - Actes des apôtres/Actes.md",
+    "Personnages/Nouveau testament/Disciples de Jésus/Thomas.md",
     "Personnages/Jésus.md",
     "Personnages/Dieu.md",
     "Définitions/Prêtre.md",
     "Définitions/Pasteur.md",
     "Définitions/Yahweh.md",
-    "Formation disciples/Ce qu'est un pasteur.md",
-    "Notes pas encore traitées/Untitled.md",
-    "Définitions/Untitled.md",
-    "Personnages/Ancien testament/Untitled.md",
-    "Définitions/Service.md",
-    "Définitions/Diacre.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/15&16 - Timothée.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/17 - Tite.md",
-    "Personnages/Nouveau testament/Tite.md",
-    "Lieux historiques/Régions géographiques/Crète.md",
-    "Référence Biblique/Nouveau testament/4 - Lettres générales/20&21 - Pierre.md",
-    "Référence Biblique/Ancien testament/5 - Livres poétiques/20 - Proverbes.md",
-    "Référence Biblique/Nouveau testament/2 - Actes des apôtres/Actes.md",
-    "Lieux historiques/Villes/Ephèse.md",
-    "Lieux historiques/Régions géographiques/Samos.md",
-    "Lieux historiques/Villes/Milet.md",
     "Lieux historiques/Images/Ephèse.PNG",
     "Lieux historiques/Images/Milet.PNG",
-    "Lieux historiques/Régions géographiques/Chio.md",
-    "Lieux historiques/Villes/Assos.md",
-    "Lieux historiques/Régions géographiques/Lesbos.md",
     "Lieux historiques/Images/Samos (île).PNG",
     "Lieux historiques/Images/Samos (ville).PNG",
-    "Référence Biblique/Nouveau testament/1 -Evangiles/1er Evangile - Matthieu.md",
-    "Lieux historiques/Villes/Mytilène.md",
-    "Lieux historiques/Images/Chios.PNG",
-    "Lieux historiques/Images/Lesvos.PNG",
-    "Lieux historiques/Images/Mytilène.PNG",
-    "Lieux historiques/Images/Assos.PNG",
     "~syncthing~Fil à plomb de Dieu.md.tmp",
     "~syncthing~Ce qu'est un pasteur.md.tmp",
-    "Lieux historiques/Images/Pannonia_SPQR.png",
-    "Lieux historiques/Images/Orontes_river.png",
     "Lieux historiques/Images/Non confirmé 801218.crdownload",
     "~syncthing~À la croisé des chemins.md.tmp",
     "Lieux historiques/Images/Bab al-Mandab.png.0.pdnSave",

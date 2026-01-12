@@ -1,3 +1,2 @@
-**Tyr** est une ville situé au sud de [[Sidon]]
-Plus d'infos sur sa localisation : [[Sidon#Localisation]]
-![[Sidon]]
+**Tyr** (ou **Tyre**) est une ville dans l'actuel [[Liban]], situé au sud de [[Sidon]] et à l'ouest de [[Cana]]
+![[Tyr.PNG]]

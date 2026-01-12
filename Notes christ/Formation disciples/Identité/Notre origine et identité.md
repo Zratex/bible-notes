@@ -1,4 +1,4 @@
-Apporté par Lucas à New Way le 03/05/2025
+Partagé par Lucas à New Way le 03/05/2025
 
 Nous avons besoin d'un repère, un cadre, pour s'identifier
 > Mais ça ne répond pas à cette question :
