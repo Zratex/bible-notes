@@ -172,7 +172,7 @@ Intitulé **La charte de l'alliance** par [[Bible#^358f23|BDS]]
 16) Tu ne porteras pas de faux témoignage contre ton prochain.
 17) Tu ne convoiteras pas la maison de ton prochain, tu ne convoiteras pas la femme de ton prochain, ni son serviteur, ni sa servante, ni son bœuf, ni son âne, ni rien qui appartienne à ton prochain.
 ## Chapitre 33
-## Versets 7 à 11
+### Versets 7 à 11
 Intitulé **La tente de la Rencontre** par [[Bible#^358f23|BDS]]
 
 7) [[Moïse|Moïse]] prit une tente et la dressa pour lui à l’extérieur du camp à une bonne distance. [[Moïse|Il]] l’appelait tente de la Rencontre. Celui qui voulait consulter l’[[Dieu|Eternel]] devait sortir du camp pour se rendre à la tente de la Rencontre.
