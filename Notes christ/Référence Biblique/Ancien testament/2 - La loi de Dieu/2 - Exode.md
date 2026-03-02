@@ -195,3 +195,37 @@ Intitulé **[[Moïse]] prie l'[[Dieu|Eternel]] d'accompagner son peuple** par [[
 21) L’[[Dieu|Eternel]] dit encore : Il y a ici un lieu près de moi ; tiens-[[Moïse|toi]] debout sur le rocher,
 22) et quand [[Dieu|ma]] gloire passera, je [[Moïse|te]] mettrai dans le creux du rocher et je te couvrirai de ma main, jusqu’à ce que j’aie passé.
 23) Puis [[Dieu|je]] retirerai [[Dieu|ma]] main et tu me verras de dos, mais ma face ne pourra pas être vue.
+## Chapitre 34
+### Versets 1 à 27
+Intitulé **Renouvellement de l'alliance** par [[Bible#^358f23|BDS]]
+
+1) L’[[Dieu|Eternel]] dit à [[Moïse|Moïse]] : Taille toi-même deux tablettes de pierre semblables aux premières et [[Dieu|j]]’y graverai les paroles qui se trouvaient sur celles que [[Moïse|tu]] as brisées.
+2) Sois prêt pour demain matin ; monte dès l’aube sur le [[Mont Sinaï|mont Sinaï]] et tiens-toi là pour [[Dieu|m]]’attendre, au sommet de [[Mont Sinaï|la montagne]].
+3) Personne ne montera avec [[Moïse|toi]], on ne verra aucune autre personne sur toute [[Mont Sinaï|la montagne]]. Que même ni petit ni gros bétail ne paisse aux abords de la montagne.
+4) [[Moïse|Moïse]] tailla deux tablettes de pierre semblables aux précédentes et le lendemain matin, de bonne heure, gravit le [[Mont Sinaï|mont Sinaï]], comme l’[[Dieu|Eternel]] le lui avait ordonné, tenant en main les deux tablettes de pierre.
+5) L’[[Dieu|Eternel]] descendit dans la nuée, [[Dieu|il]] se tint là près de [[Moïse|lui]] et proclama [[Dieu|son]] nom :
+6) [[Dieu|il]] passa devant [[Moïse|lui]] en proclamant : L’[[Dieu|Eternel]], l’[[Dieu|Eternel]], un [[Dieu|Dieu]] plein de compassion et de grâce, lent à se mettre en colère, et riche en amour et en fidélité  !
+7) [[Dieu|Il]] conserve son amour jusqu’à la millième génération : [[Dieu|il]] pardonne le crime, la faute et le péché, mais ne tient pas le coupable pour innocent, [[Dieu|il]] punit la faute des pères sur leurs descendants jusqu’à la troisième, voire même la quatrième génération.
+8) Aussitôt, [[Moïse|Moïse s']]inclina jusqu’à terre et [[Moïse|se]] prosterna.
+9) Puis [[Moïse|il]] dit : [[Dieu|Seigneur]], si [[Moïse|j]]’ai obtenu [[Dieu|ta]] faveur, [[Moïse|je]] [[Dieu|t]]’en prie, [[Dieu|Seigneur]], marche au milieu de [[Israël|nous]]. Oui, [[Israël|c]]’est un peuple rebelle, mais veuille pardonner [[Israël|nos]] fautes et [[Israël|nos]] péchés et conserver [[Israël|notre peuple]] comme [[Dieu|ta]] possession !
+10) [[Dieu|Dieu]] répondit : [[Dieu|Je]] vais conclure une alliance avec [[Israël|vous]]. En présence de tout [[Moïse|ton]] [[Israël|peuple]], [[Dieu|je]] ferai des prodiges tels qu’il ne s’en est jamais produit sur la terre entière chez aucun autre peuple, et tout [[Israël|le peuple]] qui t’entoure verra combien est impressionnante l’œuvre de l’[[Dieu|Eternel]] que [[Dieu|j]]’accomplis avec [[Moïse|toi]].
+11) Retenez bien ce que je vous commande aujourd’hui. [[Dieu|Je]] vais chasser devant vous les [[Amorrites|Amoréens]], les [[Canaan|Cananéens]], les [[Hittites|Hittites]], les [[Phéréziens|Phéréziens]], les [[Héviens|Héviens]] et les [[Jébusiens|Yebousiens]].
+12) Gardez-[[Israël|vous]] de conclure une alliance avec les habitants du pays dans lequel vous allez entrer, ils deviendraient un piège au milieu de [[Israël|vous]].
+13) Au contraire, [[Israël|vous]] renverserez leurs autels, [[Israël|vous]] briserez leurs stèles, et [[Israël|vous]] abattrez leurs pieux sacrés voués à la déesse [[Ashéra|Ashéra]].
+14) [[Israël|Vous]] ne [[Israël|vous]] prosternerez devant aucune autre divinité ; car [[Dieu|son]] nom à [[Dieu|lui]], c’est « l’[[Dieu|Eternel]] qui ne tolère aucun rival » et [[Dieu|il]] est effectivement un [[Dieu|Dieu]] qui ne tolère aucun rival.
+15) N’allez donc pas conclure une alliance avec les habitants du [[Canaan|pays]] ; car ces gens se prostituent à leurs dieux, ils leur offrent des sacrifices, et, à leur invitation, [[Israël|vous]] mangeriez de ce qu’ils leur ont offert.
+16) [[Israël|Vous]] prendriez parmi leurs filles des épouses pour [[Israël|vos]] fils, et leurs filles, qui se prostituent à leurs dieux, entraîneraient [[Israël|vos]] fils à faire de même.
+17) [[Israël|Vous]] ne vous ferez pas de dieu en métal fondu.
+18) [[Israël|Vous]] observerez la fête des Pains sans levain. Pendant les sept jours fixés du mois des épis, vous mangerez des pains sans levain, comme [[Dieu|je]] vous [[Israël|l]]’ai prescrit, car c’est au cours de ce mois que [[Israël|vous]] êtes sortis d’[[Egypte|Egypte]].
+19) Tout premier-né [[Dieu|m]]’appartient. Il en est ainsi de tout premier-né mâle de ton bétail, veau ou agneau.
+20) Quant au premier-né de l’âne, vous le rachèterez par un agneau ; si vous ne le rachetez pas, vous lui briserez la nuque. Vous rachèterez toujours tout premier-né de [[Israël|vos]] fils.
+    [[Israël|Vous]] ne viendrez pas vous présenter devant [[Dieu|moi]] les mains vides  !
+21) Vous travaillerez six jours, mais le septième jour, [[Israël|vous vous]] reposerez ; même au temps du labour et de la moisson, [[Israël|vous vous]] reposerez.
+22) Observe aussi la fête des [[Pâque|Semaines]] à l’occasion des premiers grains de blé moissonnés, ainsi que la fête de la récolte à la fin de l’année.
+23) Trois fois par an, tous les hommes du [[Israël|peuple]] viendront se présenter devant [[Dieu|moi, le Souverain, l’Eternel, le Dieu]] d’[[Israël|Israël]].
+24) Car [[Dieu|je]] déposséderai d’autres peuples devant [[Israël|vous]], [[Dieu|j]]’agrandirai [[Israël|votre]] territoire, et personne ne cherchera à conquérir [[Israël|votre]] pays pendant que [[Israël|vous]] monterez pour [[Israël|vous]] présenter devant l’[[Dieu|Eternel]] [[Israël|votre]] [[Dieu|Dieu]] trois fois par an.
+25) [[Israël|Vous]] ne ferez pas couler le sang de [[Dieu|mon]] sacrifice sur du pain levé, et [[Israël|vous]] ne garderez pas jusqu’au lendemain matin la viande du sacrifice de la fête de [[Pâque|Pâque]].
+26) Vous apporterez le meilleur des premiers produits de votre terre au sanctuaire de l’[[Dieu|Eternel]] [[Israël|votre]] [[Dieu|Dieu]].
+    [[Israël|Vous]] ne ferez pas cuire un chevreau dans le lait de sa mère.
+27) L’[[Dieu|Eternel]] dit à [[Moïse|Moïse]] : Inscris-toi ces paroles-là ; car c’est dans ces termes que [[Dieu|je]] conclus alliance avec [[Moïse|toi]] et avec le peuple d’[[Israël|Israël]].
+28) [[Moïse|Moïse]] demeura [[Mont Sinaï|là]] avec l’[[Dieu|Eternel]] quarante jours et quarante nuits, sans rien manger ni boire, et l’[[Dieu|Eternel]] écrivit sur les tablettes les paroles de l’alliance, les dix commandements.

@@ -1,4 +1,4 @@
-Autre version canonique du point de vue des **orthodoxes** de l'[[Ancien Testament]] écrit en [[Grecs|grecque]].
+Autre version canonique du point de vue des [[Catholicisme|catholiques]] plutôt **[[Catholicisme#Catholicisme Orthodoxe|orthodoxes]]** de l'[[Ancien Testament]] écrit en [[Grecs|grecque]].
 >Depuis le canon défini après la révolte lancée par les [[Zélotes]] qui a donné naissance à la structure actuelle du [[Tanakh]], il est **peu utilisé par les juifs**, car non considéré comme canon puisse que **ces textes sont [[Grecs|grecques]] et non hébreux**
 ## Composition de la Septante
 La Septante contient les livres **Deutérocanonique**, soit des livres ou ajouts de livres considérés [[Apocryphes|apocryphes]] chez les juifs et protestants, car non présents dans le [[Tanakh]]. Cela inclus :

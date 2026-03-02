@@ -466,6 +466,49 @@ Intitulé **Je soupire après ton temple** par [[Bible#^358f23|BDS]]
     à ceux qui cheminent dans l’intégrité.
 13) [[Dieu|Eternel]], Seigneur des armées célestes,
     bienheureux est l’homme ╵qui met sa confiance en toi.
+## Chapitre 86
+Intitulé **Viens me sauver** par [[Bible#^358f23|BDS]]
+
+1) *Prière de [[David|David]].*
+   Tends vers [[David|moi]] [[Dieu|ton]] oreille, ╵[[Dieu|Eternel]], réponds-[[David|moi]],
+   car [[David|je]] suis pauvre et affligé.
+2) Viens protéger [[David|ma]] vie, ╵car [[David|je]] [[Dieu|te]] suis attaché.
+   [[Dieu|Toi]] [[David|mon]] [[Dieu|Dieu]], sauve-[[David|moi]] : ╵[[David|je]] suis [[Dieu|ton]] serviteur, ╵[[David|je me]] confie en [[Dieu|toi]].
+3) O [[Dieu|Seigneur]], fais-[[David|moi]] grâce !
+   [[David|Je]] crie vers [[Dieu|toi]] sans cesse.
+4) Réjouis [[Dieu|ton]] [[David|serviteur]],
+   car c’est vers [[Dieu|toi, Seigneur]], ╵que [[David|je me]] porte.
+5) Car [[David|tu]] es bon, [[Dieu|Seigneur]], ╵et prompt à pardonner,
+   riche en amour ╵pour tous ceux qui t’invoquent.
+6) Ecoute [[David|ma]] prière, ╵ô [[Dieu|Eternel]] !
+   Sois attentif ╵à [[David|mes]] supplications !
+7) Au jour de [[David|ma]] détresse, ╵c’est vers [[Dieu|toi]] que [[David|je]] crie,
+   car [[Dieu|tu]] [[David|me]] répondras.
+8) Parmi les dieux, [[Dieu|Seigneur]], ╵nul n’est semblable à [[Dieu|toi]] !
+   Aucun ne pourrait accomplir ╵des œuvres semblables aux tiennes.
+9) Tous les peuples que [[Dieu|tu]] as faits
+   viendront se prosterner ╵devant [[Dieu|toi]], ô [[Dieu|Seigneur]],
+   et ils [[Dieu|te]] rendront gloire.
+10) Car [[Dieu|tu]] es grand, ╵et [[Dieu|tu]] accomplis des prodiges !
+    C’est [[Dieu|toi]] seul qui es [[Dieu|Dieu]].
+11) Enseigne-[[Dieu|moi]], ô [[Dieu|Eternel]], ╵la voie que [[Dieu|tu]] veux que [[David|je]] suive,
+    et [[David|je me]] conduirai ╵selon [[Dieu|ta]] vérité.
+    Accorde-[[David|moi]] un cœur ╵tel qu’il [[Dieu|te]] craigne sans partage.
+12) De tout [[David|mon]] cœur, ╵[[David|je]] [[Dieu|te]] louerai,
+    [[Dieu|Seigneur]] [[David|mon]] [[Dieu|Dieu]], ╵[[David|je]] [[Dieu|te]] rendrai ╵gloire à toujours.
+13) Car [[Dieu|ton]] amour ╵pour [[David|moi]] est grand,
+    et [[Dieu|toi, tu]] [[David|me]] délivres ╵du gouffre du séjour des morts.
+14) O [[Dieu|Dieu]], des hommes arrogants ╵se dressent contre [[David|moi]],
+    une bande de violents ╵en veulent à [[David|ma]] vie.
+    Il n’y a pas de place ╵pour [[Dieu|toi]] dans leurs pensées.
+15) Mais [[Dieu|toi, Seigneur, ╵tu]] es un [[Dieu|Dieu]] compatissant ╵et disposé à faire grâce ;
+    [[Dieu|toi, tu]] es lent à la colère, ╵riche en amour fidèle.
+16) Tourne-[[Dieu|toi]] donc vers [[David|moi]] ╵et fais-[[David|moi]] grâce !
+    Accorde-[[David|moi]] [[Dieu|ta]] force, ╵à moi qui suis [[Dieu|ton]] [[David|serviteur]].
+    Oui, viens sauver ╵le fils de [[Dieu|ta]] servante.
+17) Accorde-[[David|moi]] un signe ╵de [[Dieu|ta]] bonté.
+    Que ceux qui [[David|me]] haïssent ╵le voient et soient couverts de honte !
+    Car c’est [[Dieu|toi, Eternel]], ╵qui es [[David|mon]] aide ╵et [[David|mon]] consolateur.
 ## Chapitre 98
 Intitulé **[[Dieu]] vient juger le monde** de [[Bible#^358f23|BDS]]
 

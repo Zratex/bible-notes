@@ -1,0 +1,1 @@
+==Musulman (ou Muslim) :== Pratiquant de l'[[Islam]], peu importe son courant, car en [[Arabie|arabe]] littéraire, ça signifie "celui qui se soumet à [[Allah]]"

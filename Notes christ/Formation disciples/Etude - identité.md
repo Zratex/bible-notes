@@ -1,4 +1,4 @@
-Plusieurs prêches ou études sont liées à l'[[Identité en Christ]], et sont stockés dans un dossier précis.
+Plusieurs prêches ou études sont liées à l'[[Chrétien - Identité en Christ|identité en Christ]], et sont stockés dans un dossier précis.
 Cela est réalisé en parallèle à la [[Formation disciples POC Reims]]
 
 Cette étude est découpée en plusieurs segments, définissant notre identité au travers de :

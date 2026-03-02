@@ -1,0 +1,1 @@
+Le **Coran** (ou "al-Quran", signifiant en [[Arabie|arabe]] littéraire "la récitation") est le texte sacré des [[Musulman|musulmans]] et donc de la religion de l'[[Islam]]

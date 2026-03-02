@@ -40,7 +40,7 @@ Par exemple, la [[Bible]] est une histoire d'amour entre [[Eglise]] et [[Jésus]
 [[Paul]] parle dans tous les épitres que **[[Jésus]] est seigneur**.
 [[6 - Romains#Versets 1 à 13|Romains 10:9-13]] et [[6 - Romains#Versets 14 à 21|Romains 10:14-15]] l'importance du seigneur plutôt que sauveur est tout simplement écrit dans ces passages de la [[Bible]]
 ## L'identité
-Un serviteur est censé écrire dans une lettre "(nom), serviteur de [[Jésus|Christ]], ..." car le reconnaître en tant que seigneur **est** une [[Identité en Christ|identité]].
+Un serviteur est censé écrire dans une lettre "(nom), serviteur de [[Jésus|Christ]], ..." car le reconnaître en tant que seigneur **est** une [[Chrétien - Identité en Christ|identité]].
 
 [[7&8 - Corinthiens#Versets 12 à 20|1 Corinthiens 6:19-20]] et  [[7&8 - Corinthiens#Chapitre 3|1 Corinthiens 3:23]] confirment encore une fois que c'est écrit dans la [[Bible]] que l'on doit être soumis à [[Jésus|Christ]]
 

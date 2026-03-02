@@ -1,0 +1,2 @@
+==Pâque (ou "fête des Semaines"):== fête religieuse **juive** introduite par [[Dieu]] dans [[2 - Exode]] où [[Israël]] devait fêter et commémorer leur sortie d'[[Egypte]], où l'agneau pascal est sacrifié.
+>A ne pas confondre avec [[Pâques]]

@@ -1,7 +1,6 @@
 `Matthieu 5:1-2` [[Dieu]] attend de nous qu'on vienne à lui comme un enfant envers ses parents. [[Jésus]] explique comment vivre notre vie de discipline dans [[1er Evangile - Matthieu|Matthieu chapitres 5 à 7]]
-### [[Identité en Christ|Identité]]
-`Matthieu 5:13-16` c'est notre [[Identité en Christ|identité]] : nous sommes la lumière de ce monde. La question est qu'est ce que l'on fait de ce sel.
-
+### Identité
+`Matthieu 5:13-16` : c'est notre [[Chrétien - Identité en Christ|identité]] : nous sommes la lumière de ce monde. La question est qu'est ce que l'on fait de ce sel.
 ## L'utilisation pratique du sel
 - Fondre la neige
 - Création de verre
@@ -10,7 +9,7 @@
 - conserver
 - et bien plus encore...
 
-Salaire <- Salarium<- Romains étaient payés par du sel
+Salaire <- Salarium<- [[Romains]] étaient payés par du sel car ressource très précieuse à l'époque
 
 Il ne faut pas arrêter de saler : un jour [[Dieu]] agira : [[Jésus|Christ]] préserve avec ce sel.
 `2 Roi 5:1-3` malgré le fait qu'elle ait été captivé, elle partagea la lumière.

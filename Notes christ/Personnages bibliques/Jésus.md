@@ -7,10 +7,10 @@ Il est nommé différemment au fur et à mesure de la [[Bible]] :
 - Jésus
 	- Prénom signifiant "L'[[Dieu|Eternel]] sauve" ou "L'[[Dieu|Eternel]] délivre"
 	- C'est la dénomination qu'on utilise le plus communément dans notre culture. Et je précise notre culture, car en fonction des cultures ([[Israël|hébraïque]] ou [[Espagne#L'espagnol (langue)|espagnoles]]) ça peut être un nom commun, et de ce fait il y a d'autres appellations. La plus correcte serait donc plutôt "Jésus-Christ" pour être sur qu'on ne parle pas de quelqu'un d'autre
-- Christ (A savoir que =="Christ" représente sa forme en tant que Messie== (l'élu dans l'[[Ancien Testament]], soit le Fils de [[Dieu]]), ==donc sa forme spirituel==. Alors que =="Jésus" représente son corps physique== pendant qu'il était sur terre)
+- Christ (A savoir que =="Christ" représente sa forme en tant que [[Messie]]== (l'élu dans l'[[Ancien Testament]], soit le Fils de [[Dieu]]), ==donc sa forme spirituel==. Alors que =="Jésus" représente son corps physique== pendant qu'il était sur terre)
 	- Fils de [[Dieu]]
-	- Le Messie
-	- Jésus-Christ
+	- Le [[Messie]]
+	- **Jésus-Christ**
 	- [[Seigneur et non seulement sauveur|Seigneur]] et Sauveur
 	- **P**rêtre-sacrificateur ou Le Grand-Prêtre (cf note sur [[Prêtre]])
 	- [[Yahweh]]
