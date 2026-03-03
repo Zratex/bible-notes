@@ -1,0 +1,3 @@
+En résumé, les juifs messianiques sont des ==[[Juif|juifs]] qui croient que [[Jésus]] est le [[Messie]]==.
+En théorie, ils devraient plutôt donc être [[Chrétien - Identité en Christ|chrétiens]], mais ils gardent leurs traditions [[Juif|juives]], en plus de n'avoir probablement pas tout le [[Nouveau testament]] dans leurs textes.
+Donc ils se retrouvent dans un entre 2 particulier qui fait qu'ils ont une dénomination à part.

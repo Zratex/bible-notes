@@ -8,7 +8,7 @@
         "type": "tabs",
         "children": [
           {
-            "id": "231fa77adb5da936",
+            "id": "62f95b03a724d931",
             "type": "leaf",
             "state": {
               "type": "markdown",
@@ -20,23 +20,8 @@
               "icon": "lucide-file",
               "title": "Dieu"
             }
-          },
-          {
-            "id": "343e67eca242da39",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Formation disciples/3 grandes religions.md",
-                "mode": "source",
-                "source": false
-              },
-              "icon": "lucide-file",
-              "title": "3 grandes religions"
-            }
           }
-        ],
-        "currentTab": 1
+        ]
       }
     ],
     "direction": "vertical"
@@ -109,7 +94,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Formation disciples/3 grandes religions.md",
+                "file": "Personnages bibliques/Dieu.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -119,7 +104,7 @@
                 "unlinkedCollapsed": true
               },
               "icon": "links-coming-in",
-              "title": "Rétrolien pour 3 grandes religions"
+              "title": "Rétrolien pour Dieu"
             }
           },
           {
@@ -194,34 +179,34 @@
       "bases:Créer une nouvelle base": false
     }
   },
-  "active": "343e67eca242da39",
+  "active": "412ad4b021e16018",
   "lastOpenFiles": [
-    "Définitions/Divinités étrangères/Allah.md",
-    "Formation disciples/3 grandes religions.md",
-    "Formation disciples/Formation disciples POC Reims.md",
-    "Formation disciples/Etude - identité.md",
-    "Définitions/Pâque.md",
-    "Référence Biblique/Ancien testament/2 - La loi de Dieu/2 - Exode.md",
-    "Définitions/Pâques.md",
-    "Personnages bibliques/Dieu.md",
     "Définitions/Religions/Islam.md",
-    "Référence Biblique/Bible.md",
-    "Définitions/Courants de pensée/Monothéisme.md",
-    "Personnages bibliques/Jésus.md",
-    "Définitions/Messie.md",
-    "Définitions/Religions/Christianisme/Catholicisme.md",
-    "Définitions/Religions/Textes religieux/Vulgate.md",
-    "Définitions/Religions/Textes religieux/Septante.md",
-    "Définitions/Apocryphes.md",
-    "Définitions/Musulman.md",
-    "Définitions/Divinités étrangères/Baal.md",
-    "Référence Biblique/Ancien testament/3 - Premiers livres historiques/11&12 - Rois.md",
+    "Formation disciples/3 grandes religions.md",
     "Définitions/Religions/Textes religieux/Coran.md",
-    "Définitions/Religions/Textes religieux/Tanakh.md",
-    "Définitions/Religions/Christianisme/Luthéranisme.md",
+    "Définitions/Religions/Christianisme/Catholicisme.md",
+    "Définitions/Religions/Judaïsme.md",
+    "Lieux historiques/Villes/La Mecque.md",
+    "Définitions/Musulman.md",
+    "Définitions/Pape.md",
+    "Lieux historiques/Villes/Médine.md",
     "Personnages non-bibliques/Mohammed.md",
-    "Définitions/Chrétien - Identité en Christ.md",
-    "Notes pas encore traitées/La lumière.md",
+    "Définitions/Al-Aqsa.md",
+    "Personnages bibliques/Dieu.md",
+    "Définitions/Transsubstantiation.md",
+    "Lieux historiques/Royaumes/Grecs.md",
+    "Personnages bibliques/Nouveau testament/Marie.md",
+    "Personnages bibliques/Jésus.md",
+    "Définitions/Yahweh.md",
+    "Définitions/Religions/Juifs Messianiques.md",
+    "Référence Biblique/Ancien testament/1 - Le commencement/Genèse.md",
+    "Définitions/Messie.md",
+    "Lieux historiques/Royaumes/Royaume de Judée.md",
+    "Définitions/Juif.md",
+    "Définitions/Israélite.md",
+    "Définitions/Israélien.md",
+    "Définitions/Hébreu.md",
+    "Définitions/Religion.md",
     "Définitions/Religions/Islam",
     "Définitions/Religions/Textes religieux",
     "Personnages non-bibliques",

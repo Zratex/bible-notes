@@ -1,0 +1,2 @@
+**Médine** (ou "Al-Madinah", anciennement "Yathrib") est une ville dans l'ouest de l'[[Arabie]] à un peu plus de 350km au nord de [[La Mecque]].
+C'est une ville sainte de l'[[Islam]] car contenant la mosquée "Al-Nabawi" (aussi appelé "la mosquée de [[Mohammed]]".

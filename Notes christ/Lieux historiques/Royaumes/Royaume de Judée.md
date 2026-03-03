@@ -6,4 +6,5 @@ Le royaume de [[Judée]] est l'un des deux royaumes qui ont suivi le schisme vé
 - Le royaume de **Judée**, qui suivait plutôt [[David]] et [[Salomon]]
 	- Capitale : [[Jérusalem]]
 
+>**L'origine du nom** "judée" vient du fait que [[David]] était de la tribu de [[Juda]]
 ![[Royaumes alentours de Judée.png]]

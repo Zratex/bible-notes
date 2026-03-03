@@ -20,27 +20,21 @@ Intitulé **La [[Tentation|tentation]] et les mauvais désirs** par [[Bible#^358
 16) Ne vous laissez donc pas égarer sur ce point, mes chers frères et sœurs :
 17) tout cadeau de valeur, tout don parfait, nous vient d’en haut, du [[Dieu|Père]] des lumières et en qui il n’y a ni changement, ni ombre due à des variations.
 18) Par un acte de sa libre volonté, [[Dieu|il]] nous a engendrés par la parole de vérité pour que nous soyons comme les premiers fruits de sa nouvelle création.
-19) Vous savez tout cela, mes chers frères et sœurs.
+19) Vous savez tout cela, mes chers frères et sœurs. [...]
 
-La suite du verset 19 se retrouve dans la partie suivante : [[19 - Jacques#Versets 20 à 27]]
+>La suite du verset 19 se retrouve dans la partie suivante : [[19 - Jacques#Versets 20 à 27]]
 ### Versets 20 à 27
 Intitulé **La parole et l'obéissance** par [[Bible#^358f23|BDS]]
-19) (...) Mais que chacun de vous soit toujours prêt à écouter, qu’il ne se hâte pas de parler, ni de se mettre en colère.
+>Le début du verset 19 se retrouve dans la partie précédente : [[19 - Jacques#Versets 12 à 19]]
 
-#### Versets 20 à 22
-Etudié dans [[Nos Forteresses#- Raisonnements|Raisonnements (nos forteresses)]] :
 
+19) [...] Mais que chacun de vous soit toujours prêt à écouter, qu’il ne se hâte pas de parler, ni de se mettre en colère.
 20) Car ce n’est pas par la colère qu’un homme accomplit ce qui est juste aux yeux de [[Dieu]].
 21) Débarrassez-vous donc de tout ce qui souille et de tout ce qui reste en vous de méchanceté, pour recevoir, avec humilité, la Parole qui a été plantée dans votre cœur, car elle a le pouvoir de vous sauver.
 22) Seulement, ne vous contentez pas de l’écouter, traduisez-la en actes, sans quoi vous vous tromperiez vous-mêmes.
-#### Versets 23 à 25
-Aussi étudié dans [[Nos Forteresses#- Raisonnements|Raisonnements (nos forteresses)]] :
-
 23) En effet, si quelqu’un se contente d’écouter la Parole sans y conformer ses actes, il ressemble à un homme qui, en s’observant dans un miroir, découvre son vrai visage :
 24) après s’être ainsi observé, il s’en va et oublie ce qu’il est.
 25) Voici, au contraire, un homme qui scrute la loi parfaite qui donne la liberté : il lui demeure fidèlement attaché et, au lieu de l’oublier après l’avoir entendue, il y conforme ses actes ; cet homme sera heureux dans tout ce qu’il fait.
-
-#### Versets 26 et 27
 26) Mais si quelqu’un croit être religieux, alors qu’il ne sait pas tenir sa langue en bride, il s’illusionne lui-même : sa religion ne vaut rien.
 27) La religion authentique et pure aux yeux de [[Dieu]], [[Dieu|le Père]], consiste à aider les orphelins et les veuves dans leurs détresses et à ne pas se laisser corrompre par ce monde.
 ## Chapitre 3

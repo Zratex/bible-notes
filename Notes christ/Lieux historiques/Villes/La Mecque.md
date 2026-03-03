@@ -1,0 +1,2 @@
+**La Mecque** (ou "La Mekke" ou "Mecca") est une ville dans une vallée de l'ouest de l'[[Arabie]] à plus de 350km de [[Médine]].
+C'est la **ville sainte la plus importante de l'[[Islam]]**, car contenant la mosquée "Al-Haram".

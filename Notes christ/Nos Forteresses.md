@@ -4,8 +4,8 @@ Notes commencées par un message par Ulrick intitulé "Je renverse mes forteress
 ## - Raisonnements
 <u>Raisonnement :</u> Comparable aux hôtels.
 
-[[19 - Jacques#Versets 20 à 22|Jacques 1:20-22]] : quand on met pas la parole en pratique (cf parabole du semeur), on se met à **résonner.**
-[[19 - Jacques#Versets 23 à 25|Jacques 1:23-25]] : la parole à la même fonction que le miroir mais au niveau spirituel: il reflète ce qu'il y a de mal sur nous tout en rester silencieuse et on essaie de régler cela.
+[[19 - Jacques#Versets 20 à 27|Jacques 1:20-22]] : quand on met pas la parole en pratique (cf parabole du semeur), on se met à **résonner.**
+[[19 - Jacques#Versets 20 à 27|Jacques 1:23-25]] : la parole à la même fonction que le miroir mais au niveau spirituel: il reflète ce qu'il y a de mal sur nous tout en rester silencieuse et on essaie de régler cela.
 
 -> Malheureusement nous obéissons pas ce qu'il nous dit contrairement au physique. ^e9e1bd
 > Les raisonnements sont une forteresse qui nous empêche de bien connaître Dieu

@@ -1,0 +1,2 @@
+**Al-Aqsa** est la grande mosquée dorée qui est aujourd'hui construite à l'emplacement de l'ancien grand Temple de [[Jérusalem]].
+Cette mosquée fait que [[Jérusalem]] est une des 3 villes saintes de l'[[Islam]]
