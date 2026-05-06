@@ -335,6 +335,28 @@ Intitulé **[[Dieu|Ton]] amour vaut mieux que la vie** par [[Bible#^358f23|BDS]]
 12) Mais le roi trouvera en [[Dieu|Dieu]] ╵la source de sa joie.
     Ceux qui, dans leurs serments, ╵prennent [[Dieu|Dieu]] à témoin ╵s’en féliciteront,
     tandis que les menteurs ╵auront la bouche close.
+
+## Chapitre 67
+Intitulé **Que tous les peuples louent [[Dieu|Dieu]] !** par [[Bible#^358f23|BDS]]
+
+1) *Au chef de chœur : psaume à chanter avec accompagnement d’instruments à cordes. Cantique.*
+2) Que [[Dieu|Dieu]] nous fasse grâce ! ╵Qu’[[Dieu|il]] nous bénisse !
+   Qu’[[Dieu|il]] nous regarde ╵avec bonté,
+   *Pause*
+3) afin que sur la terre ╵on reconnaisse ╵comment [[Dieu|tu]] interviens,
+   et que chez tous les peuples ╵on voie comment [[Dieu|tu]] sauves !
+4) Que les peuples te louent, ╵ô [[Dieu|Dieu]],
+   que tous les peuples ╵[[Dieu|t]]’adressent leurs louanges !
+5) Que les nations jubilent ╵et qu’elles crient de joie,
+   car [[Dieu|tu]] gouvernes ╵les peuples selon la droiture
+   et [[Dieu|tu]] conduis ╵les nations de la terre.
+   *Pause*
+6) Que les peuples [[Dieu|te]] louent, ╵ô [[Dieu|Dieu]],
+   que tous les peuples ╵[[Dieu|t]]’adressent leurs louanges !
+7) La terre a produit ses récoltes,
+   [[Dieu|Dieu]], notre [[Dieu|Dieu]], nous a bénis.
+8) Oui, que [[Dieu|Dieu]] nous bénisse
+   et qu’on [[Dieu|le]] craigne ╵jusqu’aux confins du monde !
 ## Chapitre 68
 Intitulé **Le triomphe du [[Dieu]] victorieux** par [[Bible#^358f23|BDS]]
 
@@ -606,6 +628,32 @@ Intitulé **Le Roi-Prêtre** par [[Bible#^358f23|BDS]]
    il écrase des chefs ╵de par la terre entière.
 7) En chemin, le roi s’abreuve au torrent,
    puis relève la tête.
+## Chapitre 112
+Intitulé **Le bonheur des fidèles** par [[Bible#^358f23|BDS]]
+
+1) Louez l’[[Dieu|Eternel]] !
+   Heureux est l’homme qui craint l’[[Dieu|Eternel]]
+   et trouve un grand plaisir ╵à [[Dieu|ses]] commandements !
+2) Sa [[Prospérité|postérité]] sera forte ╵dans le pays
+   et la génération du juste ╵sera bénie.
+3) Abondance et richesse ╵règnent dans sa maison,
+   et sa conduite juste ╵sera pour toujours prise en compte.
+4) Une lumière luit ╵dans les ténèbres, ╵pour les gens droits,
+   ceux qui font grâce, ╵qui sont compatissants et justes.
+5) Il est bon qu’un homme ait de l’empathie ╵et qu’il prête à autrui,
+   et qu’avec équité, ╵il gère ses affaires ;
+6) ainsi ne trébuchera-t-il jamais,
+   et l’on se souviendra ╵du juste pour toujours.
+7) Il ne craint pas ╵de mauvaises nouvelles,
+   il a le cœur tranquille, ╵confiant en l’[[Dieu|Eternel]].
+8) Plein d’assurance, ╵il est sans crainte,
+   dans l’attente de voir ╵le sort réservé à ses ennemis.
+9) Il donne aux pauvres ╵avec largesse,
+   et sa conduite juste ╵sera pour toujours prise en compte.
+   Il peut garder la tête haute ╵et il est honoré.
+10) Le méchant le constate ╵et s’en irrite,
+    grince des dents ╵et se démoralise.
+    Le désir des méchants ╵n’aboutira à rien.
 ## Chapitre 118
 Intitulé **[[Dieu|Son]] amour est éternel** par [[Bible#^358f23|BDS]]
 

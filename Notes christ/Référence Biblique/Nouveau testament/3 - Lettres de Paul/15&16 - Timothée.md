@@ -50,7 +50,12 @@ Etudié dans le [[Positionnement du cœur]]
 #### Versets 9 et 10
 9) Ceux qui veulent à tout prix s’enrichir s’exposent eux-mêmes à la tentation et tombent dans le piège de nombreux désirs insensés et pernicieux qui précipitent les hommes dans la ruine et la perdition.
 10) Car « l’[[Positionnement du cœur|amour]] de l’argent est racine de toutes sortes de maux  ». Pour s’y être abandonnés, certains se sont égarés très loin de la foi, et se sont infligé beaucoup de tourments.
+### Versets 17 à 19
+Intitulé **Aux riches** par [[Bible#^358f23|BDS]]
 
+17) Recommande à ceux qui possèdent des richesses en ce monde de se garder de toute arrogance et de ne pas fonder leur espoir sur la richesse, car elle est instable. Qu’ils placent leur espérance en [[Dieu|Dieu]], qui nous dispense généreusement toutes [[Dieu|ses]] richesses pour que nous en jouissions.
+18) Recommande-leur de faire le bien, d’être riches en œuvres bonnes, d’être généreux et de partager avec les autres.
+19) Ils s’assureront ainsi pour l’avenir un beau capital placé en lieu sûr afin d’obtenir la vraie vie.
 # 2 Timothée
 ## Chapitre 2
 ### Versets 1 à 7

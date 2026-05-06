@@ -37,5 +37,6 @@ Dès qu'ils sont arrivés, tout est offert : c'est la même chose auprès de l'h
 Dans cet état d'esprit, on ne se retrouve pas dans la barque des eaux sans poissons
 
 `Proverbes 11:25` : un cœur ouvert aux bénédictions et à les partager à l'entourage, fait que [[Dieu]] nous apporte plus de ses bénédictions
-`Luc 6:38` : l'objectif n'est pas la prospérité, mais d'être clairement dans l'œuvre de [[Dieu]] (donc dans son [[Royaume de Dieu]])
+`Luc 6:38` : l'objectif n'est pas la [[Théologie de la prospérité|prospérité]], mais d'être clairement dans l'œuvre de [[Dieu]] (donc dans son [[Royaume de Dieu]])
+-> c'est réellement ça la [[Prospérité]] (plus développé dans la note [[Miracles dans les finances]])
 

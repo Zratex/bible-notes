@@ -173,6 +173,22 @@ Verset 17 fait référence à [[23 - Esaïe#Versets 7 à 12|Esaïe 52:11]]
 
 18) *Je serai pour vous un Père, et vous serez pour moi des fils et des filles,*
     *dit le [[Dieu|Seigneur]], le [[Dieu|Tout-Puissant]]*
+## Chapitre 9
+### Versets 6 à 15
+Intitulé **Les fruits de la générosité** par [[Bible#^358f23|BDS]]
+
+6) Rappelez-vous : Semence parcimonieuse, maigre récolte. Semence généreuse, moisson abondante.
+7) Que chacun donne ce qu’il aura décidé en son cœur, sans regret ni contrainte, car [[Dieu|Dieu]] aime celui qui donne avec joie.
+8) [[Dieu|Il]] a aussi le pouvoir de vous combler de toutes sortes de bienfaits : ainsi vous aurez, en tout temps et en toutes choses, tout ce dont vous avez besoin, et il vous en restera encore du superflu pour toutes sortes d’œuvres bonnes,
+9) ainsi qu’il est écrit :
+   *[[19 - Psaumes#Chapitre 112|Il donne aux pauvres ╵avec largesse,]]*
+   *[[19 - Psaumes#Chapitre 112|et sa conduite juste ╵sera pour toujours prise en compte]]*.
+10) Celui qui *[[23 - Esaïe#Chapitre 55|fournit la semence au semeur et lui donne le pain dont il se nourrit]]* vous donnera aussi, avec largesse, toute la semence nécessaire et fera croître les fruits de votre générosité.
+11) Ainsi vous deviendrez riches de tous les biens et vous pourrez donner largement, ce qui suscitera, chez ceux auxquels nous distribuerons vos dons, de nombreuses prières de reconnaissance envers [[Dieu|Dieu]].
+12) En effet, le service de cette collecte a pour objet non seulement de pourvoir aux besoins de ceux qui font partie du peuple saint, mais encore de faire abonder des prières de reconnaissance envers [[Dieu|Dieu]].
+13) Par ce service, vous allez démontrer la réalité de votre engagement. Aussi ces membres du peuple saint loueront-ils [[Dieu|Dieu]] pour l’obéissance par laquelle s’exprime votre foi en l’[[Évangile|Evangile]] de [[Jésus|Christ]]. Ils le loueront aussi pour la largesse avec laquelle vous partagez vos biens avec eux et avec tous.
+14) Ils prieront pour vous, traduisant ainsi l’affection qu’ils vous portent, à cause de la grâce surabondante que [[Dieu|Dieu]] vous a accordée.
+15) Béni soit [[Dieu|Dieu]] pour son don incomparable !
 ## Chapitre 10
 Intitulé **Paul défend son apostolat | L'autorité de l'apôtre** par [[Bible#^358f23|BDS]]
 

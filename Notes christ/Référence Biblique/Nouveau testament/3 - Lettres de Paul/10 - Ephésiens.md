@@ -1,4 +1,84 @@
 Lettre de [[Paul]] envers l'[[Eglise locale|église]] d'[[Ephèse]].
+## Chapitre 1
+### Versets 3 à 14
+Intitulé **Le salut en [[Jésus|Christ]] - La grâce de [[Dieu|Dieu]] en [[Jésus|Christ]]** par [[Bible#^358f23|BDS]]
+
+3) Béni soit [[Dieu|Dieu]],
+   le [[Dieu|Père]] de notre [[Jésus|Seigneur]]
+   [[Jésus|Jésus-Christ]],
+   car [[Dieu|Dieu]] nous a comblés
+   de toute bénédiction de l’[[Saint-Esprit|Esprit]]
+   dans le monde céleste
+   en raison de notre union avec [[Jésus|Christ]].
+4) En [[Dieu|lui]],
+   bien avant de poser
+   les fondations du monde,
+   [[Dieu|il]] nous avait choisis
+   pour que nous soyons saints
+   et sans reproche devant [[Dieu|lui]].
+   Puisqu’[[Dieu|il]] nous a aimés,
+5) [[Dieu|il]] nous a destinés d’avance
+   à être [[Dieu|ses]] enfants
+   qu’[[Dieu|il]] voulait adopter
+   par [[Jésus|Jésus-Christ]].
+   Voilà ce que, dans [[Dieu|sa]] bonté,
+   [[Dieu|il]] a voulu pour nous
+6) afin que nous célébrions
+   la gloire de [[Dieu|sa]] grâce
+   qu’[[Dieu|il]] nous a accordée
+   en son [[Jésus|Fils]] bien-aimé.
+7) En [[Jésus|Christ]],
+   parce qu’[[Jésus|il]] s’est offert en sacrifice,
+   nous avons obtenu la délivrance,
+   le pardon de nos fautes.
+   [[Dieu|Dieu]] a ainsi manifesté [[Dieu|sa]] grâce
+   dans toute [[Dieu|sa]] richesse,
+8) et [[Dieu|il]] l’a répandue sur nous
+   avec surabondance,
+   en nous donnant pleine sagesse
+   et pleine intelligence,
+9) nous ayant fait connaître
+   le secret de [[Dieu|son]] plan.
+   Ce plan, [[Dieu|il]] l’a fixé d’avance,
+   dans [[Dieu|sa]] bonté,
+   en [[Jésus|Christ]],
+10) pour conduire les temps
+    vers l’accomplissement.
+    Selon ce plan,
+    tout ce qui est au ciel
+    et tout ce qui est sur la terre
+    doit être harmonieusement réuni
+    en [[Jésus|Christ]].
+11) Et c’est aussi en [[Jésus|Christ]]
+    qu’[[Dieu|il]] nous a accordé
+    notre part d’héritage
+    conformément à ce qu’avait fixé
+    celui qui met en œuvre toutes choses,
+    selon l’intention qui inspire
+    sa décision.
+    Ainsi, nous avons été destinés d’avance
+12) à célébrer [[Dieu|sa]] gloire
+    nous qui, les tout premiers,
+    avons placé notre espérance
+    dans le [[Jésus|Messie]].
+13) Et en [[Jésus|Christ]], vous aussi,
+    vous avez entendu
+    le message de vérité,
+    cet [[Évangile|Evangile]]
+    qui vous apportait le salut ;
+    oui, c’est aussi en [[Jésus|Christ]]
+    que vous qui avez cru,
+    vous avez obtenu de [[Dieu|Dieu]]
+    l’[[Saint-Esprit|Esprit Saint]] qu’[[Dieu|il]] avait promis
+    et par lequel
+    [[Dieu|il]] vous a marqués de [[Dieu|son]] sceau
+    en signe que vous [[Dieu|lui]] appartenez.
+14) Cet [[Saint-Esprit|Esprit]] constitue
+    l’acompte de notre héritage
+    en attendant la délivrance
+    du peuple que [[Dieu|Dieu]] s’est acquis.
+    Ainsi tout aboutit
+    à célébrer [[Dieu|sa]] gloire.
 ## Chapitre 2
 ### Versets 1 à 10
 Intitulé **De la mort à la vie** par [[Bible#^358f23|BDS]]

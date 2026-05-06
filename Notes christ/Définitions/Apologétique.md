@@ -1,1 +1,0 @@
-==Apologétique :== *Partie de la théologie ayant pour objet d'établir, par des arguments historiques et rationnels, le fait de la révélation chrétienne*. - Dictionnaire Robert

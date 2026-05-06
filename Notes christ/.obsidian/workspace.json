@@ -13,26 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Temps d'apostasie.md",
+                "file": "Miracles dans les finances.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Temps d'apostasie"
-            }
-          },
-          {
-            "id": "89d5a711c5ebf631",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Si tu crois.md",
-                "mode": "source",
-                "source": false
-              },
-              "icon": "lucide-file",
-              "title": "Si tu crois"
+              "title": "Miracles dans les finances"
             }
           }
         ]
@@ -108,7 +94,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Temps d'apostasie.md",
+                "file": "Miracles dans les finances.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -118,7 +104,7 @@
                 "unlinkedCollapsed": true
               },
               "icon": "links-coming-in",
-              "title": "Rétrolien pour Temps d'apostasie"
+              "title": "Rétrolien pour Miracles dans les finances"
             }
           },
           {
@@ -193,13 +179,27 @@
       "bases:Créer une nouvelle base": false
     }
   },
-  "active": "62f95b03a724d931",
+  "active": "412ad4b021e16018",
   "lastOpenFiles": [
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/15&16 - Timothée.md",
+    "Miracles dans les finances.md",
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/10 - Ephésiens.md",
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/7&8 - Corinthiens.md",
+    "Définitions/Évangile.md",
+    "Référence Biblique/Ancien testament/5 - Livres poétiques/19 - Psaumes.md",
+    "Référence Biblique/Nouveau testament/1 -Evangiles/4eme Evangile - Jean.md",
+    "Définitions/Sorcellerie.md",
+    "Référence Biblique/Ancien testament/6 - Premiers livres prophétiques/23 - Esaïe.md",
+    "Définitions/Prospérité.md",
+    "Définitions/Théologie/Apologétique.md",
+    "Définitions/Théologie/Théologie de la prospérité.md",
+    "Notes pas encore traitées/Jésus sur mon rivage.md",
+    "Définitions/Théologie",
+    "Temps d'apostasie.md",
     "Si tu crois.md",
     "Si tu crois.sync-conflict-20260506-095613-KC7JAFE.md",
     "Sommes nous des propulseurs.sync-conflict-20260506-095629-KC7JAFE.md",
     "Temps d'apostasie.sync-conflict-20260506-095632-KC7JAFE.md",
-    "Temps d'apostasie.md",
     "Formation disciples/Comportement et éthiques.sync-conflict-20260506-095631-KC7JAFE.md",
     "Formation disciples/Comportement et éthiques.md",
     "Formation disciples/Comment lire la Bible.sync-conflict-20260506-095613-4D4KN2W.md",
@@ -208,19 +208,6 @@
     "Formation disciples/Ce qu'est un pasteur.sync-conflict-20260506-095618-KC7JAFE.md",
     "Formation disciples/3 grandes religions.md",
     "Formation disciples/3 grandes religions.sync-conflict-20260506-095630-KC7JAFE.md",
-    "Personnages bibliques/Dieu.md",
-    "Définitions/Religions/Islam.md",
-    "Définitions/Religions/Textes religieux/Coran.md",
-    "Définitions/Religions/Christianisme/Catholicisme.md",
-    "Définitions/Religions/Judaïsme.md",
-    "Lieux historiques/Villes/La Mecque.md",
-    "Définitions/Musulman.md",
-    "Définitions/Pape.md",
-    "Lieux historiques/Villes/Médine.md",
-    "Personnages non-bibliques/Mohammed.md",
-    "Définitions/Al-Aqsa.md",
-    "Définitions/Transsubstantiation.md",
-    "Lieux historiques/Royaumes/Grecs.md",
     "Définitions/Religions/Islam",
     "Définitions/Religions/Textes religieux",
     "Personnages non-bibliques",
@@ -239,7 +226,6 @@
     "Lieux historiques/Images/Samos (île).PNG",
     "Lieux historiques/Images/Samos (ville).PNG",
     "~syncthing~Fil à plomb de Dieu.md.tmp",
-    "~syncthing~Ce qu'est un pasteur.md.tmp",
-    "Lieux historiques/Images/Non confirmé 801218.crdownload"
+    "~syncthing~Ce qu'est un pasteur.md.tmp"
   ]
 }
