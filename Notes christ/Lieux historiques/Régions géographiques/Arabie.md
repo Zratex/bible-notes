@@ -1,4 +1,4 @@
-La **péninsule arabique** est une sous-région du continent Asiatique, dont son nom vient des peuples sémitiques arabes.
+La **péninsule arabique** (ou l'**Arabie**) est une sous-région du continent Asiatique, dont son nom vient des peuples sémitiques arabes.
 Plusieurs royaumes arabes ont dominés cette région, donc le terme "arabes" les englobe. Et de ce fait, on limite culturellement l'Arabie par [[Israël]]/[[Palestine]] et ses voisins tel que l'[[Egypte]] et le [[Liban]], bien qu'[[Israël]] et ses voisins ont une forte influence arabe.
 
 Cette péninsule est entourée de :
