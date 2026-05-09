@@ -5,12 +5,12 @@ Intitulé **[[La nuée]] : signe de la présence de [[Dieu]]** par [[Bible#^358f
 
 15) Le jour où l’on érigea le tabernacle, qui sert de tente aux tablettes de l’acte de l’alliance, [[La nuée|la nuée]] le couvrit ; le soir, cette nuée au-dessus du tabernacle devint comme du feu et resta là jusqu’au matin.
 16) Il en fut continuellement ainsi : le jour, [[La nuée|la nuée]] couvrait le tabernacle, et pendant la nuit, elle avait l’apparence d’un feu.
-17) Chaque fois que [[La nuée|la nuée]] s’élevait au-dessus de la tente, les Israélites levaient le camp ; et là où elle s’arrêtait, ils dressaient leurs campements.
-18) Ainsi, c’est au signal de l’[[Dieu|Eternel]] que les Israélites levaient le camp et à son signal qu’ils le réinstallaient. Aussi longtemps que [[La nuée|la nuée]] restait sur le tabernacle, ils ne bougeaient pas de l’endroit.
+17) Chaque fois que [[La nuée|la nuée]] s’élevait au-dessus de la tente, les [[Israélite|Israélites]] levaient le camp ; et là où elle s’arrêtait, ils dressaient leurs campements.
+18) Ainsi, c’est au signal de l’[[Dieu|Eternel]] que les [[Israélite|Israélites]] levaient le camp et à son signal qu’ils le réinstallaient. Aussi longtemps que [[La nuée|la nuée]] restait sur le tabernacle, ils ne bougeaient pas de l’endroit.
 19) Même si elle s’attardait longtemps sur le tabernacle, ils observaient fidèlement les indications de l’[[Dieu|Eternel]] et ne partaient pas.
 20) Parfois [[La nuée|la nuée]] ne s’arrêtait que quelques jours sur le tabernacle ; c’était toujours au signal de l’[[Dieu|Eternel]] qu’ils dressaient le camp, et qu’ils le levaient.
 21) Il arrivait même qu’[[La nuée|elle]] ne s’arrête que durant une nuit : lorsqu’elle s’élevait le matin, ils levaient le camp ; ou bien elle s’élevait après un jour et une nuit, aussitôt ils partaient.
-22) Qu’[[La nuée|elle]] demeure deux jours ou un mois ou plus longtemps encore sur le tabernacle, les Israélites restaient campés sans partir ; ils levaient seulement le camp lorsqu’elle s’élevait.
+22) Qu’[[La nuée|elle]] demeure deux jours ou un mois ou plus longtemps encore sur le tabernacle, les [[Israélite|Israélites]] restaient campés sans partir ; ils levaient seulement le camp lorsqu’elle s’élevait.
 23) C’est sur l’ordre de l’[[Dieu|Eternel]] qu’ils dressaient le camp et le levaient. Ainsi ils observaient ce que l’[[Dieu|Eternel]] indiquait, conformément aux instructions qu’il leur avait données par l’intermédiaire de [[Moïse]].
 ## Chapitre 16
 Intitulé **Les nouvelles révoltes** par [[Bible#^358f23|BDS]]
@@ -18,7 +18,7 @@ Intitulé **Les nouvelles révoltes** par [[Bible#^358f23|BDS]]
 Intitulé **La révolte de [[Qoré]]** par [[Bible#^358f23|BDS]]
 
 1) [[Qoré|Qoré]], un [[Lévi|lévite]], fils de Yitsehar, de la famille des Qehatites, conspira avec trois [[Ruben|Rubénites]] : [[Datan]], [[Abiram|Abiram]], fils d’[[Eliab (pallouite)|Eliab]], et On, fils de Péleth.
-2) Ils se soulevèrent contre [[Moïse|Moïse]] avec deux cent cinquante autres [[Israël|Israélites]], des chefs de la communauté, des membres du conseil, des hommes considérés.
+2) Ils se soulevèrent contre [[Moïse|Moïse]] avec deux cent cinquante autres [[Israélite|Israélites]], des chefs de la communauté, des membres du conseil, des hommes considérés.
 3) Ils s’attroupèrent autour de [[Moïse|Moïse]] et d’[[Aaron|Aaron]] et leur lancèrent : C’en est assez ! C’est la communauté tout entière qui est sainte et l’[[Dieu|Eternel]] est au milieu de nous tous. De quel droit vous mettez-vous au-dessus de la communauté de l’[[Dieu|Eternel]] ?
 4) En entendant ces reproches, [[Moïse|Moïse]] se jeta face contre terre.
 5) Puis [[Moïse|il]] s’adressa à [[Qoré|Qoré]] et à toute sa troupe en disant : Demain matin, l’[[Dieu|Eternel]] fera connaître celui qui lui appartient et qui est saint et peut venir en sa présence : il fera approcher de lui celui qu’il choisira.
@@ -36,7 +36,7 @@ Intitulé **La révolte de [[Qoré]]** par [[Bible#^358f23|BDS]]
 ### Versets 4 à 9
 Intitulé **Le Serpent de Bronze** par [[Bible#^358f23|BDS]]
 
-4) Les Israélites quittèrent la [[Montagne de Hor]] par la route de la mer des Roseaux pour contourner le pays d’[[Edom]]. En cours de route, le peuple se découragea.
+4) Les [[Israélite|Israélites]] quittèrent la [[Montagne de Hor]] par la route de la mer des Roseaux pour contourner le pays d’[[Edom]]. En cours de route, le peuple se découragea.
 5) Ils se mirent à parler contre [[Dieu]] et contre [[Moïse]] en disant : Pourquoi nous avez-vous fait sortir d’[[Egypte]] pour nous faire mourir dans le désert ? Car il n’y a ni pain ni eau, et nous sommes dégoûtés de cette nourriture de misère  !
 6) Alors l’[[Dieu|Eternel]] envoya contre le peuple des serpents venimeux qui les mordirent, et il mourut beaucoup de gens d’[[Israël]].
 7) Le peuple vint trouver [[Moïse]] en disant : Nous avons péché lorsque nous avons parlé contre l’[[Dieu|Eternel]] et contre toi. Maintenant, veuille implorer l’[[Dieu|Eternel]] pour qu’il nous débarrasse de ces serpents !
@@ -83,7 +83,7 @@ Intitulé **[[Balaam]] bénit [[Israël]] une deuxième fois** par [[Bible#^358f
 ## Chapitre 30
 Intitulé **La loi sur les vœux** par [[Bible#^358f23|BDS]]
 
-1) [[Moïse|Moïse]] communiqua aux [[Israël|Israélites]] tout ce que l’[[Dieu|Eternel]] lui avait ordonné.
+1) [[Moïse|Moïse]] communiqua aux [[Israélite|Israélites]] tout ce que l’[[Dieu|Eternel]] lui avait ordonné.
 2) [[Moïse|Il]] parla aux chefs des tribus d’[[Israël|Israël]] en disant : Voici ce que l’[[Dieu|Eternel]] a ordonné :
 3) Si un homme fait un vœu à l’[[Dieu|Eternel]], ou s’il prend certains engagements par serment, il ne violera pas sa parole ; il agira conformément à ce qu’il a dit.
 4) Si une jeune fille fait un vœu à l’[[Dieu|Eternel]] en prenant un certain engagement pendant qu’elle habite encore chez son père,

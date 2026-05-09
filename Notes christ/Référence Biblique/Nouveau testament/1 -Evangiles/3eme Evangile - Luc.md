@@ -23,7 +23,7 @@ Principalement étudié dans la [[Note sur la prière]]
 13) Mais [[Ange Gabriel|l’ange]] lui dit : N’aie pas peur, [[Zacharie]], car [[Dieu]] a entendu ta prière : ta femme [[Elisabeth]] te donnera un fils. Tu l’appelleras [[Jean Baptiste|Jean]].
 14) [[Jean Baptiste|Il]] sera pour [[Zacharie|toi]] le sujet d’une très grande joie, et beaucoup de gens se réjouiront de sa naissance.
 15) [[Jean Baptiste|Il]] sera grand aux yeux du [[Dieu|Seigneur]]. [[Jean Baptiste|Il]] ne boira ni vin, ni boisson alcoolisée. [[Jean Baptiste|Il]] sera rempli de l’[[Saint-Esprit|Esprit Saint]] dès le sein maternel.
-16) [[Jean Baptiste|Il]] ramènera beaucoup d’[[Israël|Israélites]] au [[Dieu|Seigneur]], leur [[Dieu]].
+16) [[Jean Baptiste|Il]] ramènera beaucoup d’[[Israélite|Israélites]] au [[Dieu|Seigneur]], leur [[Dieu]].
 17) [[Jean Baptiste|Il]] accomplira sa mission sous le regard de [[Dieu]], avec l’Esprit et la puissance qui résidaient en [[Elie]], [[39 - Malachie#Versets 13 à 24|pour réconcilier les pères avec leurs enfants]], pour amener ceux qui sont désobéissants à penser comme des hommes justes et former ainsi un peuple prêt pour le [[Dieu|Seigneur]].
 18) [[Zacharie]] demanda à l’ange : A quoi le reconnaîtrai-[[Zacharie|je]] ? Car [[Zacharie|je]] suis moi-même déjà vieux et [[Elisabeth|ma femme]] est très âgée.
 19) L’ange lui répondit : Je suis [[Ange Gabriel|Gabriel]]. Je me tiens devant [[Dieu]], qui m’a envoyé pour te parler et t’annoncer cette nouvelle.

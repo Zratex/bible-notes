@@ -84,12 +84,12 @@ Intitulé **[[Goliath]] défie l'armée d'[[Israël]]** par [[Bible#^358f23|BDS]
 
 1) Les [[Philistins]] mobilisèrent leurs troupes pour une expédition guerrière, ils se rassemblèrent à [[Soko-Azéqa-Ephès-Dammim|Soko]] en [[Judée|Juda]] et dressèrent leur camp entre [[Soko-Azéqa-Ephès-Dammim|Soko]] et [[Soko-Azéqa-Ephès-Dammim|Azéqa]], à [[Soko-Azéqa-Ephès-Dammim|Ephès-Dammim]].
 2) [[Saül]], de son côté, rassembla les hommes d’[[Israël]] et ils campèrent dans la vallée du Chêne. C’est là qu’ils prirent position en ordre de bataille face aux [[Philistins]].
-3) [[Philistins|Ceux-ci]] occupaient un versant de la montagne, et les [[Israël|Israélites]] le versant de montagne qui lui faisait face ; la vallée séparait les deux armées.
+3) [[Philistins|Ceux-ci]] occupaient un versant de la montagne, et les [[Israélite|Israélites]] le versant de montagne qui lui faisait face ; la vallée séparait les deux armées.
 4) Alors un champion sortit du camp des [[Philistins]] et s’avança vers [[Israël]]. C’était un géant mesurant près de trois mètres, nommé [[Goliath]], originaire de [[Gath]].
 5) [[Goliath|Il]] était revêtu d’un casque de bronze et d’une cuirasse à écailles en bronze pesant une soixantaine de kilos.
 6) [[Goliath|Ses]] jambes étaient protégées par des plaques de bronze et il portait en bandoulière sur ses épaules un javelot de bronze.
 7) Le bois de [[Goliath|sa]] lance avait la grosseur d’un cylindre de métier à tisser, le fer de lance à lui seul pesait près de sept kilos. [[Goliath|Il]] était précédé d’un homme qui portait son bouclier.
-8) [[Goliath|Il]] se campa face aux troupes [[Israël|israélites]], et leur cria : Pourquoi vous êtes-vous rangés en ordre de combat ? Moi, je suis le [[Philistins|Philistin]], et vous, les esclaves de [[Saül]]. Choisissez parmi vous un homme, et qu’il m’affronte en combat singulier !
+8) [[Goliath|Il]] se campa face aux troupes [[Israélite|israélites]], et leur cria : Pourquoi vous êtes-vous rangés en ordre de combat ? Moi, je suis le [[Philistins|Philistin]], et vous, les esclaves de [[Saül]]. Choisissez parmi vous un homme, et qu’il m’affronte en combat singulier !
 9) S’il peut [[Goliath|me]] battre et qu’il me tue, alors nous vous serons assujettis. Mais si c’est moi le vainqueur et si je le tue, c’est vous qui nous serez assujettis et vous serez nos esclaves.
 10) Puis [[Goliath|il]] ajouta : Je lance aujourd’hui ce défi à l’armée d’[[Israël]]. Envoyez-moi un homme et nous nous affronterons en combat singulier.
 11) Quand [[Saül]] et toute son armée entendirent ces paroles du [[Philistins|Philistin]], ils furent démoralisés et une grande peur s’empara d’eux.
@@ -105,7 +105,7 @@ Intitulé **[[David]] se rend au campement de l'armée [[Israël|israélite]]** 
 18) Emporte aussi ces dix fromages, tu les donneras au chef de leur « millier ». [[David|Tu]] verras si tes frères se portent bien et tu [[Isaï|me]] rapporteras de leur part un gage.
 19) [[David|Tu]] les trouveras avec [[Saül]] et toute l’armée d’Israël dans la vallée du Chêne, face aux [[Philistins]].
 20) Le lendemain de bon matin, [[David]] confia ses moutons à quelqu’un pour les garder, il prit ses provisions et partit comme [[Isaï]] le lui avait ordonné. Quand il arriva au campement, l’armée était en train de prendre position pour la bataille en lançant le cri de guerre.
-21) [[Israël|Israélites]] et [[Philistins]] se rangèrent en ordre de bataille face à face.
+21) [[Israélite|Israélites]] et [[Philistins]] se rangèrent en ordre de bataille face à face.
 22) [[David]] déposa son chargement et le confia au gardien des bagages, puis il courut au front. Aussitôt arrivé, il vint demander de leurs nouvelles à ses frères.
 23) Pendant qu’il parlait avec eux, [[Goliath]], le champion des [[Philistins]], originaire de [[Gath]], sortit de leurs rangs et lança son défi habituel. [[David]] l’entendit.
 24) A la vue de [[Goliath|cet homme]], tous les soldats d’[[Israël]] s’enfuirent terrorisés.
@@ -147,7 +147,7 @@ Intitulé **La victoire de [[David]] sur [[Goliath]]** par [[Bible#^358f23|BDS]]
 51) Alors [[David|il]] se précipita sur son adversaire, saisit l’épée de celui-ci, la tira de son fourreau, acheva l’[[Goliath|homme]] ; puis il lui trancha la tête.
     Quand les [[Philistins]] virent que [[Goliath|leur héros]] était mort, ils prirent la fuite.
 52) Les soldats d’[[Israël]] et de [[Judée|Juda]] s’élancèrent en poussant des cris de guerre et poursuivirent les [[Philistins]] jusqu’aux [[Gath|abords de la vallée]] et jusqu’aux portes d’[[Eqrôn]]. Les cadavres des ennemis jonchèrent la route de [[Shaaraïm]] jusqu’à [[Gath]] et [[Eqrôn]].
-53) Au retour de cette poursuite acharnée, les [[Israël|Israélites]] pillèrent le camp des [[Philistins]].
+53) Au retour de cette poursuite acharnée, les [[Israélite|Israélites]] pillèrent le camp des [[Philistins]].
 54) [[David]] prit la tête [[Goliath|du Philistin]] et la fit porter à [[Jérusalem]]. Il déposa ses armes dans sa propre tente.
 55) Lorsque [[Saül]] avait vu [[David]] s’avancer à la rencontre [[Goliath|du Philistin]], il avait demandé à son général [[Abner]] : De qui ce [[David|jeune homme]] est-il fils, [[Abner]] ?
     [[Abner]] répondit : Aussi vrai que [[Saül|tu]] es vivant, ô Roi, je n’en sais rien.

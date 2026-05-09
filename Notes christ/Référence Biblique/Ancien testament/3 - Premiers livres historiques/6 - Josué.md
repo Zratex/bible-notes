@@ -4,7 +4,7 @@ Intitulé **La conquête du pays de [[Canaan]]** par [[Bible#^358f23|BDS]]
 Intitulé **[[Josué]], successeur de [[Moïse]]** par [[Bible#^358f23|BDS]]
 
 1) Après la mort de [[Moïse]], serviteur de l’[[Dieu|Eternel]], l’[[Dieu|Eternel]] dit à [[Josué|Josué]], fils de [[Noun]], l’assistant de [[Moïse]] :
-2) [[Dieu|Mon]] serviteur [[Moïse|Moïse]] est mort. Maintenant donc, dispose-[[Josué|toi]] à traverser le [[Jourdain|Jourdain]] avec tout [[Israël|ce peuple]], pour entrer dans le pays que [[Dieu|je]] donne aux [[Dieu|Israélites]].
+2) [[Dieu|Mon]] serviteur [[Moïse|Moïse]] est mort. Maintenant donc, dispose-[[Josué|toi]] à traverser le [[Jourdain|Jourdain]] avec tout [[Israël|ce peuple]], pour entrer dans le pays que [[Dieu|je]] donne aux [[Israélite|Israélites]].
 3) Comme [[Dieu|je]] l’ai promis à [[Moïse|Moïse]], [[Dieu|je]] vous donne tout endroit où vous poserez vos pieds.
 4) Votre territoire s’étendra du désert jusqu’aux [[Montagnes du Liban|montagnes du Liban]] et du grand fleuve, l’[[Tigre & Euphrate|Euphrate]], à travers tout le pays des Hittites jusqu’à la mer [[Méditerranée|Méditerranée]], à l’ouest.
 5) Tant que [[Josué|tu]] vivras, personne ne pourra [[Josué|te]] résister, car [[Dieu|je]] serai avec [[Josué|toi]] comme [[Dieu|j]]’ai été avec [[Moïse|Moïse]], [[Dieu|je]] ne [[Josué|te]] délaisserai pas et [[Dieu|je]] ne [[Josué|t]]’abandonnerai pas.

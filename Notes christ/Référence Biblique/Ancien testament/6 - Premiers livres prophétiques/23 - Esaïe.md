@@ -433,7 +433,7 @@ Intitulé **L’[[Dieu|Eternel]] domine sur toutes choses** par [[Bible#^358f23|
    et, dans le même temps, ╵que la justice germe !
    [[Dieu|Moi, l’Eternel, ╵moi, j]]’ai créé ces choses.
 ### Versets 14 à 25
-Intitulé **Des peuples non [[Israël|israélites]] se rallient à l’[[Dieu|Eternel]]** par [[Bible#^358f23|BDS]]
+Intitulé **Des peuples non [[Israélite|israélites]] se rallient à l’[[Dieu|Eternel]]** par [[Bible#^358f23|BDS]]
 
 14) Ainsi dit l’[[Dieu|Eternel]] :
     Les profits de l’[[Egypte|Egypte]], ╵les gains de l’[[Ethiopie|Ethiopie]]
@@ -884,7 +884,7 @@ Intitulé **Tous les peuples honoreront l’[[Dieu|Eternel]]** par [[Bible#^358f
 
 18) Voici, [[Dieu|je]] vais venir rassembler tous les peuples et des gens de toutes langues. Ils viendront et verront [[Dieu|ma]] gloire.
 19) [[Dieu|Je]] placerai un signe au milieu d’eux et [[Dieu|j]]’enverrai certains de leurs rescapés vers d’autres peuples, à [[Tarsis|Tarsis]], [[Poul|Poul]] et [[Loud|Loud]], dont les gens bandent l’arc, à [[Toubal (peuple)|Toubal]], à [[Grecs|Yavân]] ; vers les îles et les régions côtières qui sont au loin, qui n’ont pas encore entendu parler de [[Dieu|moi]] et n’ont pas vu [[Dieu|ma]] gloire. Ils feront connaître [[Dieu|ma]] gloire à ces peuples.
-20) Et ils ramèneront, de chez tous les peuples, tous ceux qui sont vos frères sur des chevaux, des chars ou des chariots couverts, sur le dos des mulets ou sur des dromadaires jusqu’à [[Jérusalem|Jérusalem]], à ma montagne sainte, comme une offrande à l’[[Dieu|Eternel]] : ce sera une offrande, dit l’[[Dieu|Eternel]], semblable à celles qu’apportent les [[Israël|Israélites]], dans des récipients purifiés, au temple de l’[[Dieu|Eternel]].
+20) Et ils ramèneront, de chez tous les peuples, tous ceux qui sont vos frères sur des chevaux, des chars ou des chariots couverts, sur le dos des mulets ou sur des dromadaires jusqu’à [[Jérusalem|Jérusalem]], à ma montagne sainte, comme une offrande à l’[[Dieu|Eternel]] : ce sera une offrande, dit l’[[Dieu|Eternel]], semblable à celles qu’apportent les [[Israélite|Israélites]], dans des récipients purifiés, au temple de l’[[Dieu|Eternel]].
 21) Et même, parmi eux, [[Dieu|j]]’en prendrai certains pour être des prêtres ou des [[Lévi|lévites]], dit l’[[Dieu|Eternel]].
 22) Comme le nouveau ciel et la nouvelle terre que [[Dieu|je]] vais faire subsisteront par-devant [[Dieu|moi]], l’[[Dieu|Eternel]] le déclare, ainsi subsisteront votre postérité et votre nom.
 23) Il adviendra alors que, régulièrement, à chaque nouvelle lune et à chaque sabbat, tous les humains viendront se prosterner devant [[Dieu|moi]], déclare l’[[Dieu|Eternel]].

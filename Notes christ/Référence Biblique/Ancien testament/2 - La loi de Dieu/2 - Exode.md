@@ -1,5 +1,5 @@
 ## Chapitre 1
-Intitulé **L'oppression des [[Israël|Israélites]] en [[Egypte]]**
+Intitulé **L'oppression des [[Israélite|Israélites]] en [[Egypte]]**
 
 1) Voici la liste des fils d’[[Israël|Israël]] qui ont accompagné [[Jacob|Jacob]] en [[Egypte|Egypte]], chacun avec sa famille :
 2) [[Ruben|Ruben]], [[Siméon|Siméon]], [[Lévi|Lévi]] et [[Juda|Juda]] ;
@@ -7,11 +7,11 @@ Intitulé **L'oppression des [[Israël|Israélites]] en [[Egypte]]**
 4) [[Dan|Dan]] et [[Nephthali|Nephtali]], [[Gad|Gad]] et [[Aser|Aser]].
 5) Les descendants de [[Jacob]] étaient au nombre de soixante-dix en tout, [[Joseph|Joseph]] étant déjà en [[Egypte|Egypte]] à ce moment-là.
 6) [[Joseph|Joseph]] mourut, ainsi que tous ses frères et toute leur génération.
-7) Les [[Israël|Israélites]] furent féconds, proliférèrent, se multiplièrent et devinrent de plus en plus puissants, si bien que le pays en fut rempli.
+7) Les [[Israélite|Israélites]] furent féconds, proliférèrent, se multiplièrent et devinrent de plus en plus puissants, si bien que le pays en fut rempli.
 8) Un nouveau roi vint au pouvoir en [[Egypte|Egypte]] ; il ne connaissait pas [[Joseph|Joseph]].
-9) Il dit à ses sujets : Voyez, le peuple des [[Israël|Israélites]] est plus nombreux et plus puissant que nous.
+9) Il dit à ses sujets : Voyez, le peuple des [[Israélite|Israélites]] est plus nombreux et plus puissant que nous.
 10) Il est temps d’aviser à son sujet, pour qu’il cesse de se multiplier. Sinon, en cas de guerre, il risque de se ranger aux côtés de nos ennemis et de combattre contre nous pour quitter ensuite le pays.
-11) Alors on imposa aux [[Israël|Israélites]] des chefs de corvée pour les accabler par des travaux forcés. C’est ainsi qu’ils durent bâtir pour le pharaon les villes de [[Pitom|Pitom]] et de [[Ramsès (ville)|Ramsès]] pour servir de centres d’approvisionnement.
+11) Alors on imposa aux [[Israélite|Israélites]] des chefs de corvée pour les accabler par des travaux forcés. C’est ainsi qu’ils durent bâtir pour le pharaon les villes de [[Pitom|Pitom]] et de [[Ramsès (ville)|Ramsès]] pour servir de centres d’approvisionnement.
 12) Mais plus on [[Israël|les]] opprimait, plus ils devenaient nombreux et plus ils se répandaient, au point que les [[Egypte|Egyptiens]] les prirent en aversion.
 13) Alors ceux-ci les réduisirent à un dur esclavage
 14) et leur rendirent la vie amère par de rudes corvées : fabrication de mortier, confection de briques, travaux en tous genres dans les champs, bref, toutes les tâches auxquelles on les asservit avec cruauté.
@@ -27,9 +27,9 @@ Intitulé **L'oppression des [[Israël|Israélites]] en [[Egypte]]**
 ### Versets 23 à 25
 Intitulé **[[Moïse|Moïse]] envoyé par [[Dieu|Dieu]] - [[Dieu|Dieu]] intervient selon [[Dieu|son]] alliance** par [[Bible#^358f23|BDS]]
 
-23) Beaucoup de temps passa. Le [[Pharaon|pharaon]] d’[[Egypte|Egypte]] mourut et les [[Israël|Israélites]] gémissaient et criaient encore sous le poids de l’esclavage, et leur appel parvint jusqu’à [[Dieu|Dieu]].
+23) Beaucoup de temps passa. Le [[Pharaon|pharaon]] d’[[Egypte|Egypte]] mourut et les [[Israélite|Israélites]] gémissaient et criaient encore sous le poids de l’esclavage, et leur appel parvint jusqu’à [[Dieu|Dieu]].
 24) [[Dieu|Dieu]] entendit leur plainte et tint compte de [[Dieu|son]] alliance avec [[Abraham|Abraham]], avec [[Isaac|Isaac]] et avec [[Jacob|Jacob]].
-25) [[Dieu|Il]] vit les [[Israël|Israélites]] et prit [[Israël|leur]] situation en considération.
+25) [[Dieu|Il]] vit les [[Israélite|Israélites]] et prit [[Israël|leur]] situation en considération.
 ## Chapitre 3
 Intitulé **L'appel et l'envoi de [[Moïse]]** par [[Bible#^358f23|BDS]]
 
@@ -44,13 +44,13 @@ Intitulé **L'appel et l'envoi de [[Moïse]]** par [[Bible#^358f23|BDS]]
    Alors [[Moïse|Moïse]] se couvrit le visage car il craignait de regarder [[Dieu|Dieu]].
 7) L’[[Dieu|Eternel]] reprit : [[Dieu|J]]’ai vu la détresse de [[Israël|mon peuple]] en [[Egypte|Egypte]] et [[Dieu|j]]’ai entendu les cris que lui font pousser ses oppresseurs. Oui, [[Dieu|je]] sais ce qu’il souffre.
 8) C’est pourquoi je suis descendu pour le délivrer des [[Egypte|Egyptiens]], pour le faire sortir d’[[Egypte|Egypte]] et le conduire vers un bon et vaste pays, un pays ruisselant de lait et de miel ; celui qu’habitent les [[Canaan|Cananéens]], les [[Hittites|Hittites]], les [[Amorrites|Amoréens]], les [[Phéréziens|Phéréziens]], les [[Héviens|Héviens]] et les [[Jébusiens|Yebousiens]].
-9) A présent, les cris des [[Israël|Israélites]] sont parvenus jusqu’à [[Dieu|moi]] et [[Dieu|j]]’ai vu à quel point les [[Egypte|Egyptiens]] [[Israël|les]] oppriment.
-10) Va donc maintenant : [[Dieu|je]] [[Moïse|t]]’envoie vers le [[Pharaon|pharaon]], pour que tu fasses sortir d’[[Egypte|Egypte]] les [[Israël|Israélites]], mon peuple.
+9) A présent, les cris des [[Israélite|Israélites]] sont parvenus jusqu’à [[Dieu|moi]] et [[Dieu|j]]’ai vu à quel point les [[Egypte|Egyptiens]] [[Israël|les]] oppriment.
+10) Va donc maintenant : [[Dieu|je]] [[Moïse|t]]’envoie vers le [[Pharaon|pharaon]], pour que tu fasses sortir d’[[Egypte|Egypte]] les [[Israélite|Israélites]], mon peuple.
 11) [[Moïse|Moïse]] dit à [[Dieu|Dieu]] :
-    Qui suis-[[Moïse|je, moi]], pour aller trouver le [[Pharaon|pharaon]] et pour faire sortir les [[Israël|Israélites]] d’[[Egypte|Egypte]] ?
+    Qui suis-[[Moïse|je, moi]], pour aller trouver le [[Pharaon|pharaon]] et pour faire sortir les [[Israélite|Israélites]] d’[[Egypte|Egypte]] ?
 12) – Sache que [[Dieu|je]] serai avec [[Moïse|toi]], lui répondit [[Dieu|Dieu]]. Et voici le signe auquel on reconnaîtra que c’est [[Dieu|moi]] qui [[Moïse|t]]’ai envoyé : quand [[Moïse|tu]] auras fait sortir le peuple hors d’[[Egypte|Egypte]], vous [[Dieu|m]]’adorerez sur [[Mont Sinaï|cette montagne-ci]].
-13) [[Moïse|Moïse]] reprit : [[Moïse|J]]’irai donc trouver les [[Israël|Israélites]] et [[Moïse|je]] leur dirai : « Le [[Dieu|Dieu]] de [[Israël|vos]] ancêtres m’a envoyé vers vous. » Mais s’ils [[Moïse|me]] demandent : « Quel est [[Dieu|son]] nom ? » que leur répondrai-[[Moïse|je]] ?
-14) Alors [[Dieu|Dieu]] dit à [[Moïse|Moïse]] : [[Yahweh|Je suis celui qui est]]. Puis [[Dieu|il]] ajouta : Voici ce que [[Moïse|tu]] diras aux [[Israël|Israélites]] : [[Yahweh|Je suis]] [[Moïse|m]]’a envoyé vers [[Israël|vous]].
+13) [[Moïse|Moïse]] reprit : [[Moïse|J]]’irai donc trouver les [[Israélite|Israélites]] et [[Moïse|je]] leur dirai : « Le [[Dieu|Dieu]] de [[Israël|vos]] ancêtres m’a envoyé vers vous. » Mais s’ils [[Moïse|me]] demandent : « Quel est [[Dieu|son]] nom ? » que leur répondrai-[[Moïse|je]] ?
+14) Alors [[Dieu|Dieu]] dit à [[Moïse|Moïse]] : [[Yahweh|Je suis celui qui est]]. Puis [[Dieu|il]] ajouta : Voici ce que [[Moïse|tu]] diras aux [[Israélite|Israélites]] : [[Yahweh|Je suis]] [[Moïse|m]]’a envoyé vers [[Israël|vous]].
 15) Puis [[Moïse|tu]] [[Israël|leur]] diras : « L’[[Dieu|Eternel, le Dieu]] de [[Israël|vos]] ancêtres, le [[Dieu|Dieu]] d’[[Abraham|Abraham]], d’[[Isaac|Isaac]] et de [[Jacob|Jacob]] [[Moïse|m]]’a envoyé vers [[Israël|vous]]. C’est là [[Dieu|mon]] nom pour l’éternité, c’est sous ce nom que l’on se souviendra de [[Dieu|moi]] pour tous les temps.
 16) Va donc, réunis les responsables d’[[Israël|Israël]] et dis-leur : L’[[Dieu|Eternel, le Dieu]] de [[Israël|vos]] ancêtres, le [[Dieu|Dieu]] d’[[Abraham|Abraham]], d’[[Isaac|Isaac]] et de [[Jacob|Jacob]] [[Moïse|m]]’est apparu et [[Moïse|m]]’a dit : [[Dieu|J]]’ai résolu d’intervenir en [[Israël|votre]] faveur au regard du traitement qu’on vous inflige en [[Egypte|Egypte]].
 17) Aussi ai-[[Dieu|je]] décidé de [[Israël|vous]] faire sortir d’[[Egypte|Egypte]], où [[Israël|vous]] êtes en proie à l’oppression, pour [[Israël|vous]] conduire dans le pays des [[Canaan|Cananéens]], des [[Hittites|Hittites]], des [[Amorrites|Amoréens]], des [[Phéréziens|Phéréziens]], des [[Héviens|Héviens]] et des [[Jébusiens|Yebousiens]], dans un pays ruisselant de lait et de miel. »
@@ -92,14 +92,14 @@ Intitulé **[[Dieu]] annonce son intervention** par [[Bible#^358f23|BDS]]
 2) Puis [[Dieu|Dieu]] ajouta : Je suis l’[[Dieu|Eternel]].
 3) [[Dieu|Je]] me suis révélé à [[Abraham|Abraham]], à [[Isaac|Isaac]] et à [[Jacob|Jacob]] comme le [[Dieu|Dieu tout-puissant]], mais [[Dieu|je]] n’ai pas été connu par eux sous mon nom : l’[[Dieu|Eternel]].
 4) [[Dieu|Je]] me suis engagé par mon alliance avec eux à leur donner le pays de [[Canaan|Canaan]], ce pays où ils étaient étrangers et où ils ont mené une vie errante.
-5) De plus, [[Dieu|j]]’ai entendu les gémissements des [[Israël|Israélites]] réduits à l’esclavage par les [[Egypte|Egyptiens]], et [[Dieu|je]] me suis souvenu de mon alliance.
+5) De plus, [[Dieu|j]]’ai entendu les gémissements des [[Israélite|Israélites]] réduits à l’esclavage par les [[Egypte|Egyptiens]], et [[Dieu|je]] me suis souvenu de mon alliance.
 6) C’est pourquoi dis-leur de ma part : « [[Dieu|Je]] suis l’[[Dieu|Eternel]] ! [[Dieu|Je]] vous soustrairai aux corvées auxquelles les [[Egypte|Egyptiens]] vous soumettent : [[Dieu|je]] vous libérerai de l’esclavage qu’[[Egypte|ils]] vous imposent, et [[Dieu|je]] vous délivrerai par la force de mon bras et en exerçant de terribles jugements.
 7) [[Dieu|Je]] vous prendrai pour mon peuple, et [[Dieu|je]] serai votre [[Dieu|Dieu]]. Ainsi vous saurez que [[Dieu|je]] suis l’[[Dieu|Eternel]] votre [[Dieu|Dieu]] qui vous affranchis des corvées que les [[Egypte|Egyptiens]] vous imposent.
 8) Puis [[Dieu|je]] vous ferai entrer dans [[Canaan|le pays]] que [[Dieu|j]]’ai juré de donner à [[Abraham|Abraham]], à [[Isaac|Isaac]] et à [[Jacob|Jacob]] ; [[Dieu|je]] vous [[Canaan|le]] donnerai pour qu’il vous appartienne, [[Dieu|moi]], l’[[Dieu|Eternel]]. »
 9) [[Moïse|Moïse]] répéta ces paroles aux [[Israël|Israélites]], mais [[Israël|ils]] ne [[Moïse|l]]’écoutèrent pas parce qu’[[Israël|ils]] étaient démoralisés, à cause de leur dur esclavage.
 10) L’[[Dieu|Eternel]] parla à [[Moïse|Moïse]] et lui dit :
 11) Va demander au [[Pharaon|pharaon]], roi d’[[Egypte|Egypte]], de laisser partir les [[Israël|Israélites]] de son pays.
-12) Mais [[Moïse|Moïse]] [[Dieu|lui]] répondit : Même les [[Israël|Israélites]] ne [[Moïse|m]]’ont pas écouté. Comment le [[Pharaon|pharaon]] [[Moïse|m]]’écouterait-il, [[Moïse|moi]] qui n’ai pas la parole facile ?
+12) Mais [[Moïse|Moïse]] [[Dieu|lui]] répondit : Même les [[Israélite|Israélites]] ne [[Moïse|m]]’ont pas écouté. Comment le [[Pharaon|pharaon]] [[Moïse|m]]’écouterait-il, [[Moïse|moi]] qui n’ai pas la parole facile ?
 13) L’[[Dieu|Eternel]] parla à [[Moïse|Moïse]] et à [[Aaron|Aaron]] et leur ordonna d’aller trouver les [[Israël|Israélites]] et le [[Pharaon|pharaon]], roi d’[[Egypte|Egypte]], pour faire sortir les [[Israël|Israélites]] d’[[Egypte|Egypte]].
 ## Chapitre 9
 ### Versets 13 à 35
@@ -118,7 +118,7 @@ Intitulé **Septième fléau : la grêle** par [[Bible#^358f23|BDS]]
 23) [[Moïse]] leva son bâton vers le ciel et l’[[Dieu|Eternel]] déchaîna le tonnerre et la grêle, et la foudre s’abattit sur la terre. L’[[Dieu|Eternel]] fit tomber la grêle sur l’[[Egypte]].
 24) Des éclairs jaillissaient au milieu de la grêle et la grêle était si violente qu’il n’y en avait jamais eu de semblable dans toute l’[[Egypte]] depuis que la nation existe.
 25) Dans l’ensemble du pays, la grêle frappa tout ce qui se trouvait aux champs, hommes ou bêtes. Elle hacha toute la végétation et brisa tous les arbres.
-26) Seule la région de Goshen où habitaient les [[Israël|Israélites]] fut épargnée.
+26) Seule la région de Goshen où habitaient les [[Israélite|Israélites]] fut épargnée.
 27) Alors le [[Pharaon|pharaon]] fit convoquer [[Moïse]] et [[Aaron]] et leur dit : Cette fois-ci, je reconnais que j’ai péché. C’est l’[[Dieu|Eternel]] qui est juste, moi et mon peuple nous sommes coupables !
 28) Priez l’[[Dieu|Eternel]] de faire cesser le tonnerre et la grêle, et [[Pharaon|je]] vous laisserai partir, on ne vous retiendra pas davantage.
 29) [[Moïse]] dit : En quittant la ville, je lèverai les mains vers l’[[Dieu|Eternel]] pour prier. Le tonnerre cessera et la grêle s’arrêtera, afin que [[Pharaon|tu]] saches que la terre appartient à l’[[Dieu|Eternel]].
@@ -127,7 +127,7 @@ Intitulé **Septième fléau : la grêle** par [[Bible#^358f23|BDS]]
 32) mais le blé et l’épeautre qui étaient plus tardifs n’avaient pas souffert.
 33) [[Moïse]] sortit de chez le [[Pharaon|pharaon]]. En quittant la ville, [[Moïse|il]] leva les mains vers l’[[Dieu|Eternel]] pour prier ; le tonnerre et la grêle cessèrent et la pluie arrêta de tomber.
 34) Quand le [[Pharaon|pharaon]] vit que la pluie, la grêle et le tonnerre avaient cessé, il persista dans son péché et s’entêta. Ses hauts fonctionnaires firent de même.
-35) [[Pharaon|Il]] s’obstina et ne laissa pas partir les [[Israël|Israélites]], comme l’[[Dieu|Eternel]] l’avait annoncé par l’intermédiaire de [[Moïse]].
+35) [[Pharaon|Il]] s’obstina et ne laissa pas partir les [[Israélite|Israélites]], comme l’[[Dieu|Eternel]] l’avait annoncé par l’intermédiaire de [[Moïse]].
 ## Chapitre 13
 ### Versets 17 à 22
 Intitulé **Les conditions du départ** par [[Bible#^358f23|BDS]]

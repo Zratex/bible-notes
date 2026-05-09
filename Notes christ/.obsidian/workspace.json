@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Formation disciples/Dons de l'Esprit.md",
+                "file": "Définitions/Religions/Judaïsme.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Dons de l'Esprit"
+              "title": "Judaïsme"
             }
           }
         ]
@@ -94,7 +94,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Formation disciples/Dons de l'Esprit.md",
+                "file": "Définitions/Religions/Judaïsme.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -104,7 +104,7 @@
                 "unlinkedCollapsed": true
               },
               "icon": "links-coming-in",
-              "title": "Rétrolien pour Dons de l'Esprit"
+              "title": "Rétrolien pour Judaïsme"
             }
           },
           {
@@ -179,8 +179,23 @@
       "bases:Créer une nouvelle base": false
     }
   },
-  "active": "62f95b03a724d931",
+  "active": "412ad4b021e16018",
   "lastOpenFiles": [
+    "Définitions/Hébreu.md",
+    "Référence Biblique/Nouveau testament/5 - La fin/Apocalypse.md",
+    "Référence Biblique/Nouveau testament/2 - Actes des apôtres/Actes.md",
+    "Référence Biblique/Ancien testament/6 - Premiers livres prophétiques/27 - Daniel.md",
+    "Référence Biblique/Ancien testament/6 - Premiers livres prophétiques/23 - Esaïe.md",
+    "Référence Biblique/Nouveau testament/4 - Lettres générales/18 - Hébreux.md",
+    "Référence Biblique/Ancien testament/3 - Premiers livres historiques/11&12 - Rois.md",
+    "Référence Biblique/Ancien testament/3 - Premiers livres historiques/9&10 - Samuel.md",
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/6 - Romains.md",
+    "Référence Biblique/Ancien testament/3 - Premiers livres historiques/6 - Josué.md",
+    "Référence Biblique/Ancien testament/2 - La loi de Dieu/4 - Nombres.md",
+    "Référence Biblique/Nouveau testament/1 -Evangiles/3eme Evangile - Luc.md",
+    "Référence Biblique/Ancien testament/2 - La loi de Dieu/3 - Lévitique.md",
+    "Référence Biblique/Ancien testament/2 - La loi de Dieu/2 - Exode.md",
+    "Formation disciples/Dons de l'Esprit.md",
     "Formation disciples/Notes Dons de l'Esprit/Dons de révélation.md",
     "Formation disciples/Écriture.md",
     "Écriture.sync-conflict-20260509-090855-4D4KN2W.md",
@@ -192,14 +207,6 @@
     "Référence Biblique/Nouveau testament/2 - Actes des apôtres/Actes.sync-conflict-20260509-090855-4D4KN2W.md",
     "Définitions/Parole de Dieu (Actes).sync-conflict-20260509-090854-4D4KN2W.md",
     "Personnages bibliques/Nouveau testament/Marie de Magdala.sync-conflict-20260509-090855-4D4KN2W.md",
-    "Lieux historiques/Régions géographiques/Arabie.sync-conflict-20260509-090855-4D4KN2W.md",
-    "Ma foi face à l'adversité.sync-conflict-20260509-090854-4D4KN2W.md",
-    "Définitions/Théologie/Théologie de la prospérité.sync-conflict-20260509-090854-4D4KN2W.md",
-    "Définitions/Sorcellerie.sync-conflict-20260509-090854-4D4KN2W.md",
-    "Sobre et modéré.sync-conflict-20260509-090855-4D4KN2W.md",
-    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/10 - Ephésiens.sync-conflict-20260509-090855-4D4KN2W.md",
-    "Dons de l'esprit.sync-conflict-20260509-090855-4D4KN2W.md",
-    "Définitions/Prospérité.sync-conflict-20260509-090854-4D4KN2W.md",
     "Référence Biblique/Nouveau testament/3 - Lettres de Paul/~syncthing~7&8 - Corinthiens.sync-conflict-20260509-090855-4D4KN2W.md.tmp",
     "Définitions/~syncthing~Sorcellerie.sync-conflict-20260509-090854-4D4KN2W.md.tmp",
     "Lieux historiques/Régions géographiques/~syncthing~Arabie.sync-conflict-20260509-090855-4D4KN2W.md.tmp",
@@ -210,13 +217,6 @@
     "~syncthing~Sobre et modéré.sync-conflict-20260509-090855-4D4KN2W.md.tmp",
     "~syncthing~Écriture.sync-conflict-20260509-090855-4D4KN2W.md.tmp",
     "Définitions/Théologie/~syncthing~Théologie de la prospérité.sync-conflict-20260509-090854-4D4KN2W.md.tmp",
-    "Lieux historiques/Régions géographiques/Lesbos.sync-conflict-20260509-090900-KC7JAFE.md",
-    "Notes pas encore traitées/Les promesses.sync-conflict-20260509-090900-KC7JAFE.md",
-    "Lieux historiques/Régions géographiques/Barada (Amana).sync-conflict-20260509-090900-KC7JAFE.md",
-    "Lieux historiques/Royaumes/Toubal (peuple).sync-conflict-20260509-090900-KC7JAFE.md",
-    "Lieux historiques/Régions géographiques/Mer Noire.sync-conflict-20260509-090859-KC7JAFE.md",
-    "Lieux historiques/Royaumes/Saba.sync-conflict-20260509-090859-KC7JAFE.md",
-    "Notes pas encore traitées/Faire de la place.sync-conflict-20260509-090859-KC7JAFE.md",
     "Lieux historiques/Images/Mur des lamentations.PNG",
     "Lieux historiques/Images/Mont des oliviers.PNG",
     "Lieux historiques/Images/Gethsemane.PNG",

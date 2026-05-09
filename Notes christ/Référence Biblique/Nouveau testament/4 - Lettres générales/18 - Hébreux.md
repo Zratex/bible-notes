@@ -118,10 +118,10 @@ Intitulé **Foi et endurance - la foi des témoins de l'ancienne alliance** par 
 25) Il a choisi de prendre part aux souffrances du peuple de [[Dieu|Dieu]] plutôt que de jouir – momentanément – d’une vie dans le péché.
 26) Car, estimait-il, subir l’humiliation que [[Jésus|Christ]] devait connaître constituait une richesse bien supérieure aux trésors de l’[[Egypte|Egypte]] : il avait, en effet, les yeux fixés sur la récompense à venir.
 27) Par la foi, [[Moïse|il]] a quitté l’[[Egypte|Egypte]] sans craindre la fureur du [[Pharaon|roi]] et il est resté ferme, en homme qui voit le [[Dieu|Dieu]] invisible.
-28) Par la foi, [[Moïse|il]] a célébré la Pâque et a fait répandre du sang sur les linteaux des portes pour que l’ange exterminateur ne touche pas les fils aînés des [[Israël|Israélites]].
-29) Par la foi, les [[Israël|Israélites]] ont traversé la [[Mer Rouge|mer Rouge]] comme une terre sèche ; alors que les [[Egypte|Egyptiens]], qui ont essayé d’en faire autant, ont été engloutis.
+28) Par la foi, [[Moïse|il]] a célébré la Pâque et a fait répandre du sang sur les linteaux des portes pour que l’ange exterminateur ne touche pas les fils aînés des [[Israélite|Israélites]].
+29) Par la foi, les [[Israélite|Israélites]] ont traversé la [[Mer Rouge|mer Rouge]] comme une terre sèche ; alors que les [[Egypte|Egyptiens]], qui ont essayé d’en faire autant, ont été engloutis.
 30) Par la foi, les murailles de [[Jéricho|Jéricho]] se sont écroulées quand le peuple en eut fait le tour pendant sept jours.
-31) Par la foi, [[Rahab|Rahab]] la prostituée n’est pas morte avec ceux qui étaient désobéissants envers [[Dieu|Dieu]], parce qu’[[Rahab|elle]] avait accueilli avec bienveillance les [[Israël|Israélites]] envoyés en éclaireurs.
+31) Par la foi, [[Rahab|Rahab]] la prostituée n’est pas morte avec ceux qui étaient désobéissants envers [[Dieu|Dieu]], parce qu’[[Rahab|elle]] avait accueilli avec bienveillance les [[Israélite|Israélites]] envoyés en éclaireurs.
 32) Que dirai-je encore ? Le temps me manquerait pour parler en détail de [[Gédéon]], de [[Baraq|Baraq]], de [[Samson|Samson]], de [[Jephté|Jephté]], de [[David|David]], de [[Samuel|Samuel]] et des prophètes.
 33) Grâce à la foi, ils ont remporté la victoire sur des royaumes, exercé la justice, obtenu la réalisation de promesses, fermé la gueule des lions.
 34) Ils ont éteint des feux violents, ont échappé au tranchant de l’épée. Ils ont été remplis de force alors qu’ils étaient faibles. Ils se sont montrés vaillants dans les batailles, ils ont mis en fuite des armées ennemies ;
@@ -162,14 +162,14 @@ Intitulé **Recommandations diverses - Vivre une vie sainte** par [[Bible#^358f2
 ### Versets 18 à 29
 Intitulé **Recommandations diverses - Le royaume inébranlable** par [[Bible#^358f23|BDS]]
 
-18) Car vous ne vous êtes pas approchés, comme les [[Israël|Israélites]] au désert, d’une réalité que l’on pourrait toucher : un feu ardent, l’obscurité, des ténèbres et un ouragan.
+18) Car vous ne vous êtes pas approchés, comme les [[Israélite|Israélites]] au désert, d’une réalité que l’on pourrait toucher : un feu ardent, l’obscurité, des ténèbres et un ouragan.
 19) Vous n’avez pas entendu de sonneries de trompettes, ni l’éclat d’une voix telle que ceux qui l’ont entendue ont demandé qu’elle ne s’adresse plus à eux.
 20) En effet, ils ne pouvaient supporter l’ordre qui leur avait été donné : *[[2 - Exode#Versets 10 à 15|Quiconque touchera la montagne – même si c’est un animal – sera tué à coups de pierres.]]*
 21) Le spectacle était si terrifiant que [[Moïse]] s’est écrié : *[[5 - Deutéronome#Versets 7 à 21|Je suis épouvanté]]* et tout tremblant.
 22) Non, vous, au contraire, vous vous êtes approchés de la [[Sion|montagne de Sion]], de la cité du [[Dieu]] vivant, de la Jérusalem céleste et de milliers d’anges en fête.
 23) Vous vous êtes approchés de l’assemblée des premiers-nés de [[Dieu]] dont les noms sont inscrits dans les cieux. Vous vous êtes approchés de [[Dieu]], le [[Dieu|Juge]] de tous les hommes, et des esprits des justes qui sont parvenus à la perfection.
 24) Vous vous êtes approchés de [[Jésus]], le médiateur d’une alliance nouvelle, et de son sang répandu qui parle mieux encore que celui d’[[Abel]].
-25) Prenez donc garde : ne refusez pas d’écouter celui qui vous parle. Les [[Israël|Israélites]] qui ont refusé d’écouter celui qui les avertissait sur la terre, n’ont pas échappé au châtiment. A combien plus forte raison en sera-t-il de même pour nous, si nous nous détournons de celui qui nous parle du haut des cieux.
+25) Prenez donc garde : ne refusez pas d’écouter celui qui vous parle. Les [[Israélite|Israélites]] qui ont refusé d’écouter celui qui les avertissait sur la terre, n’ont pas échappé au châtiment. A combien plus forte raison en sera-t-il de même pour nous, si nous nous détournons de celui qui nous parle du haut des cieux.
 26) Celui dont la voix a fait alors trembler la terre fait maintenant cette promesse : *[[37 - Aggée#Versets 1 à 9|Une fois encore j’ébranlerai, non seulement la terre, mais aussi le ciel.]]*
 27) Ces mots : *une fois encore* signifient que tout ce qui peut être *ébranlé*, c’est-à-dire ce qui appartient à l’ordre ancien de la création, disparaîtra, pour que subsistent seules les réalités inébranlables.
 28) Le royaume que nous recevons est inébranlable : soyons donc reconnaissants et servons [[Dieu]] d’une manière qui lui soit agréable, avec crainte et profond respect,

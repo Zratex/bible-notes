@@ -44,28 +44,28 @@ Intitulé **[[Simon Pierre|Pierre]] témoin de [[Jésus|Jésus-Christ]]** par [[
 	[[29 - Joël#Chapitre 3|avant la venue du jour du Seigneur,]]
 	[[29 - Joël#Chapitre 3|ce jour grand et glorieux.]]
 21) [[29 - Joël#Chapitre 3|Alors seront sauvés ╵tous ceux qui invoqueront le Seigneur.]]
-22) Ecoutez bien, [[Israël|Israélites]], ce que [[Simon Pierre|j]]’ai à vous dire. Vous le savez tous : [[Jésus]] de [[Nazareth]] – cet homme dont [[Dieu]] vous a montré qu’[[Dieu|il]] [[Jésus|l]]’approuvait en accomplissant, par son moyen, au milieu de vous des miracles, des signes et des actes extraordinaires –
-23) a été livré entre vos mains conformément à la décision que [[Dieu]] avait prise et au projet qu’[[Dieu|il]] avait établi d’avance. Et vous, vous [[Jésus|l]]’avez tué en le faisant crucifier par des hommes qui ne connaissent pas [[Dieu]].
-24) Mais [[Dieu]] a brisé les liens de la mort : [[Dieu|il]] [[Jésus|l]]’a ressuscité, car il était impossible que la mort [[Jésus|le]] retienne captif.
-25) En effet, [[David]] dit de lui :
+19) Ecoutez bien, [[Israélite|Israélites]], ce que [[Simon Pierre|j]]’ai à vous dire. Vous le savez tous : [[Jésus]] de [[Nazareth]] – cet homme dont [[Dieu]] vous a montré qu’[[Dieu|il]] [[Jésus|l]]’approuvait en accomplissant, par son moyen, au milieu de vous des miracles, des signes et des actes extraordinaires –
+20) a été livré entre vos mains conformément à la décision que [[Dieu]] avait prise et au projet qu’[[Dieu|il]] avait établi d’avance. Et vous, vous [[Jésus|l]]’avez tué en le faisant crucifier par des hommes qui ne connaissent pas [[Dieu]].
+21) Mais [[Dieu]] a brisé les liens de la mort : [[Dieu|il]] [[Jésus|l]]’a ressuscité, car il était impossible que la mort [[Jésus|le]] retienne captif.
+22) En effet, [[David]] dit de lui :
     [[19 - Psaumes#Chapitre 16|Je garde constamment ╵les yeux fixés sur le Seigneur,]]
     [[19 - Psaumes#Chapitre 16|car il est à ma droite, ╵pour que je ne vacille pas.]]
 26) [[19 - Psaumes#Chapitre 16|Voilà pourquoi mon cœur ╵est dans la joie ╵et mes paroles ╵débordent d’allégresse.]]
 	[[19 - Psaumes|Même mon corps reposera ╵dans l’espérance ;]]
-27) [[19 - Psaumes|tu ne m’abandonneras pas ╵dans le séjour des morts,]]
+23) [[19 - Psaumes|tu ne m’abandonneras pas ╵dans le séjour des morts,]]
 	[[19 - Psaumes#Chapitre 16|tu ne laisseras pas ╵un homme qui t’est dévoué ╵se décomposer dans la tombe.]]
 28) [[19 - Psaumes#Chapitre 16|Car tu m’as fait connaître ╵le chemin de la vie,]]
 	[[19 - Psaumes#Chapitre 16|et tu me combleras ╵de joie en ta présence.]]
-29) [[Simon Pierre|Mes]] frères, permettez-moi de vous parler franchement : le patriarche [[David]] est bel et bien mort et enterré. Son [[Sion|tombeau]] existe encore près d’ici aujourd’hui.
-30) Mais [[David|il]] était prophète et il savait que [[Dieu]] lui avait promis, sous la foi du serment, de faire asseoir sur son trône un de [[David]] descendants.
-31) Ainsi [[David|il]] a entrevu par avance la résurrection du [[Jésus|Messie]], et c’est d’elle qu’[[David|il]] parle en disant que [[Dieu]] ne l’abandonnera pas dans le séjour des morts et qu’[[Dieu|il]] ne laissera pas [[David|son]] corps se décomposer.
-32) [[Dieu]] a ressuscité ce [[Jésus]] dont [[Simon Pierre|je]] parle : nous en sommes tous témoins.
-33) Ensuite, [[Jésus|il]] a été élevé pour siéger à la droite de [[Dieu]]. Et maintenant, comme [[Dieu]] l’a promis, il a reçu du [[Dieu|Père]] l’[[Saint-Esprit|Esprit Saint]] et il l’a répandu sur nous. C’est là ce que vous voyez et entendez.
-34) En effet, [[David]], lui, n’est pas monté au ciel, mais il a dit :
+24) [[Simon Pierre|Mes]] frères, permettez-moi de vous parler franchement : le patriarche [[David]] est bel et bien mort et enterré. Son [[Sion|tombeau]] existe encore près d’ici aujourd’hui.
+25) Mais [[David|il]] était prophète et il savait que [[Dieu]] lui avait promis, sous la foi du serment, de faire asseoir sur son trône un de [[David]] descendants.
+26) Ainsi [[David|il]] a entrevu par avance la résurrection du [[Jésus|Messie]], et c’est d’elle qu’[[David|il]] parle en disant que [[Dieu]] ne l’abandonnera pas dans le séjour des morts et qu’[[Dieu|il]] ne laissera pas [[David|son]] corps se décomposer.
+27) [[Dieu]] a ressuscité ce [[Jésus]] dont [[Simon Pierre|je]] parle : nous en sommes tous témoins.
+28) Ensuite, [[Jésus|il]] a été élevé pour siéger à la droite de [[Dieu]]. Et maintenant, comme [[Dieu]] l’a promis, il a reçu du [[Dieu|Père]] l’[[Saint-Esprit|Esprit Saint]] et il l’a répandu sur nous. C’est là ce que vous voyez et entendez.
+29) En effet, [[David]], lui, n’est pas monté au ciel, mais il a dit :
     [[19 - Psaumes#Chapitre 110|Le Seigneur a dit à mon Seigneur :]]
     [[19 - Psaumes#Chapitre 110|Viens siéger à ma droite]] 
 35) [[19 - Psaumes#Chapitre 110|jusqu’à ce que j’aie mis ╵tes ennemis ╵à terre sous tes pieds.]]
-36) Voici donc ce que tout le peuple d’[[Israël]] doit savoir avec une entière certitude : [[Dieu]] a fait Seigneur et Messie ce [[Jésus]] que vous avez crucifié.
+30) Voici donc ce que tout le peuple d’[[Israël]] doit savoir avec une entière certitude : [[Dieu]] a fait Seigneur et Messie ce [[Jésus]] que vous avez crucifié.
 ### Versets 37 à 47
 Intitulé **Les premiers croyants** par [[Bible#^358f23|BDS]]
 
@@ -102,7 +102,7 @@ Intitulé **La guérison d'un paralysé** par [[Bible#^358f23|BDS]]
 Intitulé **[[Simon Pierre|Pierre]] explique le miracle** par [[Bible#^358f23|BDS]]
 
 12) Quand [[Simon Pierre|Pierre]] vit cela, il s’adressa à la foule :
-    Hommes [[Israël|israélites]], qu’avez-vous à vous étonner ainsi de ce qui vient de se passer ? Pourquoi nous fixez-vous avec tant d’insistance comme si c’était nous qui, par notre propre pouvoir ou notre piété, avions fait marcher cet homme ?
+    Hommes [[Israélite|israélites]], qu’avez-vous à vous étonner ainsi de ce qui vient de se passer ? Pourquoi nous fixez-vous avec tant d’insistance comme si c’était nous qui, par notre propre pouvoir ou notre piété, avions fait marcher cet homme ?
 13) Non, c’est le [[Dieu]] d’[[Abraham]], d’[[Isaac]] et de [[Jacob]], le [[Dieu]] de nos ancêtres, qui vient ici de manifester la gloire de son serviteur [[Jésus]] – ce [[Jésus]] que vous avez livré à [[Pilate]] et renié devant lui alors qu’il était décidé de le remettre en liberté.
 14) Oui, vous avez renié celui qui est saint et juste. A sa place, vous avez demandé comme faveur la libération d’un meurtrier.
 15) Ainsi vous avez fait mourir l’auteur de la vie. Mais [[Dieu]] l’a ressuscité : nous en sommes témoins.
@@ -191,7 +191,7 @@ Intitulé **La prédication de [[Paul]] dans la synagogue d'[[Antioche de Pisidi
 14) Quant à eux, ils quittèrent [[Pergé|Pergé]] et continuèrent leur route jusqu’à [[Antioche de Pisidie|Antioche]] en [[Pisidie|Pisidie]]. Là, ils se rendirent à la synagogue le jour du sabbat et s’assirent.
 15) Après qu’on eut fait la lecture dans la [[La Loi de Dieu|Loi]] et les prophètes, les chefs de la synagogue leur firent dire : Frères, si vous avez quelques mots à adresser à la communauté, vous avez la parole.
 16) Alors [[Paul|Paul]] se leva ; d’un geste de la main il demanda le silence et dit :
-    [[Israël|Israélites]] et vous tous qui craignez [[Dieu]], écoutez-moi !
+    [[Israélite|Israélites]] et vous tous qui craignez [[Dieu]], écoutez-moi !
 17) Le [[Dieu]] de notre peuple d’[[Israël]] a choisi nos ancêtres. Il a fait grandir le peuple pendant son séjour en [[Egypte]]. Ensuite, en déployant sa puissance, [[Dieu|il]] [[Israël|l]]’en a fait sortir.
 18) Pendant quarante ans environ, [[Dieu|il]] [[Israël|l]]’a supporté dans le désert.
 19) Après avoir détruit sept peuplades dans le pays de [[Canaan|Canaan]], [[Dieu|il]] a donné leur territoire à son peuple.
@@ -201,7 +201,7 @@ Intitulé **La prédication de [[Paul]] dans la synagogue d'[[Antioche de Pisidi
 22) Mais [[Dieu]] l’a rejeté et leur a choisi pour roi [[David]]. C’est à lui qu’il a rendu ce témoignage :
     *En [[David]], fils d’[[Isaï|Isaï]], j’ai trouvé un homme qui correspond à mes désirs*, il accomplira toute ma volonté.
 23) Or, voici que [[Dieu]] vient d’accorder à [[Israël|Israël]] un [[Jésus|Sauveur]] parmi les descendants de [[David]], comme il l’avait promis, et ce [[Seigneur et non seulement sauveur|Sauveur]], c’est [[Jésus]].
-24) Avant sa venue, [[Jean Baptiste|Jean]] avait appelé tous les [[Israël|Israélites]] à se faire baptiser en signe d’un profond changement.
+24) Avant sa venue, [[Jean Baptiste|Jean]] avait appelé tous les [[Israélite|Israélites]] à se faire baptiser en signe d’un profond changement.
 25) Arrivé au terme de sa vie, [[Jean Baptiste|Jean]] disait encore : « Qui pensez-vous que je suis ? Je ne suis pas celui que vous attendiez ! Non ! [[Jésus|il]] vient après moi, et je ne mérite pas de dénouer ses sandales. »
 26) Mes frères, vous qui êtes les descendants d’[[Abraham|Abraham]] et vous qui craignez [[Dieu]] et qui êtes présents parmi nous, c’est à nous que [[Dieu]] a envoyé cette [[Jésus|Parole]] de salut.
 27) En effet, les habitants de [[Jérusalem|Jérusalem]] et leurs chefs n’ont compris ni qui était [[Jésus|Jésus]], ni les paroles des prophètes qui sont lues chaque jour de sabbat. Et voici qu’en condamnant [[Jésus|Jésus]], ils ont accompli ces prophéties.
