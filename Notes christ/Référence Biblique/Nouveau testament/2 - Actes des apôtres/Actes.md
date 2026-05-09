@@ -1,4 +1,5 @@
 Actes des [[Apôtres]], rédigé par [[Luc]]
+> Les passages qui seront en gras correspondent aux passages où [[Jésus]] a parlé
 
 >Petite note sur un terme précis utilisé dans ce livre : [[Parole de Dieu (Actes)|Parole de Dieu]]
 ## Chapitre 1
@@ -9,6 +10,15 @@ Intitulé **Introduction** par [[Bible#^358f23|BDS]]
    Dans [[Luc|mon]] [[3eme Evangile - Luc|premier livre]], [[Luc|j]]’ai exposé tout ce que [[Jésus|Jésus]] a commencé de faire et d’enseigner
 2) jusqu’au jour où [[Jésus|il]] fut enlevé au ciel après avoir donné, par le [[Saint-Esprit|Saint-Esprit]], [[Jésus|ses]] instructions à ceux qu’il s’était choisis comme [[Apôtres|apôtres]].
 3) Après [[Jésus|sa]] mort, [[Jésus|il]] se présenta à eux vivant et leur donna des preuves nombreuses de [[Jésus|sa]] résurrection. [[Jésus|Il]] leur apparut pendant quarante jours et leur parla du [[Royaume de Dieu|royaume de Dieu]].
+### Versets 4 à 8
+Intitulé **Dans l’attente de l’[[Saint-Esprit|Esprit]] - La promesse de l’[[Saint-Esprit|Esprit]]** par [[Bible#^358f23|BDS]]
+
+4) Or, un jour qu’[[Jésus|il]] prenait un repas avec eux, [[Jésus|il]] leur recommanda de ne pas quitter [[Jérusalem|Jérusalem]], mais d’y attendre que [[Jésus|son]] [[Dieu|Père]] leur accorde le don qu’[[Jésus|il]] leur avait promis.
+   **– C’est le don que [[Jésus|je]] vous ai annoncé,** leur dit-[[Jésus|il]].
+5) **Car [[Jean Baptiste|Jean]] a baptisé dans l’eau, mais vous, c’est dans le [[Saint-Esprit|Saint-Esprit]] que vous serez baptisés dans peu de jours.**
+6) Comme ils étaient réunis autour de [[Jésus|lui]], ils [[Jésus|lui]] demandèrent : [[Jésus|Seigneur]], est-ce à ce moment-là que [[Jésus|tu]] rendras le royaume à [[Israël|Israël]]  ?
+7) [[Jésus|Il]] leur répondit : **Il ne vous appartient pas de connaître les temps et les moments que  [[Dieu|le Père]] a fixés de [[Dieu|sa]] propre autorité.**
+8) **Mais le [[Saint-Esprit|Saint-Esprit]] descendra sur vous : vous recevrez [[Saint-Esprit|sa]] puissance et vous serez [[Jésus|mes]] témoins à [[Jérusalem|Jérusalem]], dans toute la [[Judée|Judée]] et la [[Samarie|Samarie]], et jusqu’au bout du monde.**
 ## Chapitre 2
 ### Versets 14 à 36
 Intitulé **[[Simon Pierre|Pierre]] témoin de [[Jésus|Jésus-Christ]]** par [[Bible#^358f23|BDS]]

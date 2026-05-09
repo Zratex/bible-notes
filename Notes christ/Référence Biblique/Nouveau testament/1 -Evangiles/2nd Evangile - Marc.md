@@ -303,3 +303,22 @@ Intitulé **De la destruction de [[Jérusalem]] à la venue du [[Jésus|Fils]] d
 34) **Tenez-vous donc vous aussi en éveil ! Car vous ne savez pas quand le maître de la maison doit revenir : sera-ce tard ? à minuit ? au chant du coq ? ou le matin ?**
 35) **Qu’il ne vous trouve pas en train de dormir s’il revient à l’improviste !**
 36) **Ce que [[Jésus|je]] dis là, [[Jésus|je]] vous le dis à tous : Tenez-vous en éveil !**
+## Chapitre 16
+### Versets 9 à 18
+Intitulé **[[Jésus|Jésus]] apparaît aux disciples** par [[Bible#^358f23|BDS]]
+
+9) [ [[Jésus|Jésus]], étant ressuscité le dimanche matin, apparut d’abord à [[Marie de Magdala|Marie de Magdala]] dont [[Jésus|il]] avait chassé sept démons.
+10) [[Marie de Magdala|Celle-ci]] alla porter la nouvelle à ceux qui avaient accompagné [[Jésus|Jésus]] : ils étaient plongés dans la tristesse et en larmes.
+11) Mais eux, en l’entendant dire qu’[[Jésus|il]] était vivant et qu’[[Jésus|il]] [[Marie de Magdala|lui]] était apparu, ne [[Marie de Magdala|la]] crurent pas.
+12) Après cela, alors que deux d’entre eux faisaient route pour se rendre à la campagne, [[Jésus|il]] leur apparut sous un autre aspect.
+13) Ils revinrent à [[Jérusalem|Jérusalem]] et annoncèrent la nouvelle aux autres ; mais ils ne les crurent pas eux non plus.
+14) Plus tard, [[Jésus|il]] se montra aux [[Apôtres|Onze]] pendant qu’[[Apôtres|ils]] étaient à table ; [[Jésus|il]] [[Apôtres|leur]] reprocha leur incrédulité et [[Apôtres|leur]] aveuglement parce qu’[[Apôtres|ils]] n’avaient pas cru ceux qui [[Jésus|l]]’avaient vu ressuscité.
+15) Et [[Jésus|il]] leur dit : **Allez dans le monde entier, proclamez l’[[Évangile|Evangile]] à tous les hommes.**
+16) **Celui qui croira et sera baptisé sera sauvé, mais celui qui ne croira pas sera condamné.**
+17) **Voici les signes miraculeux qui accompagneront ceux qui auront cru : en [[Jésus|mon]] nom, ils chasseront des démons, ils parleront des langues nouvelles,**
+18) **ils saisiront des serpents venimeux, ou s’il leur arrive de boire un poison mortel, cela ne leur causera aucun mal. Ils imposeront les mains à des malades et ceux-ci seront guéris.**
+### Versets 19 et 20
+Intitulé **[[Jésus|Jésus]] enlevé au ciel** par [[Bible#^358f23|BDS]]
+
+19) Après leur avoir ainsi parlé, [[Jésus|le Seigneur Jésus]] fut enlevé au ciel et s’assit à la droite de [[Dieu|Dieu]].
+20) Quant à eux, ils s’en allèrent proclamer la [[Parole de Dieu (Actes)|Parole de Dieu]] en tout lieu. [[Dieu|Le Seigneur]] travaillait avec eux et confirmait leur prédication par les signes miraculeux qui l’accompagnaient.]

@@ -136,6 +136,40 @@ Intitulé **Faire tout pour la gloire de Dieu** par [[Bible#^358f23|BDS]]
 31) Ainsi, que vous mangiez, que vous buviez, bref, quoi que ce soit que vous fassiez, faites tout pour la gloire de [[Dieu|Dieu]].
 32) Mais que rien, dans votre comportement, ne soit une occasion de chute, ni pour les [[Israël|Juifs]], ni pour les païens, ni pour les membres de l’[[Eglise|Eglise]] de [[Dieu|Dieu]].
 33) Agissez comme [[Paul|moi]] qui [[Paul|m]]’efforce, en toutes choses, de [[Paul|m]]’adapter à tous. [[Paul|Je]] ne considère pas ce qui [[Paul|me]] serait avantageux, mais [[Paul|je]] recherche le bien du plus grand nombre pour leur salut.
+## Chapitre 12
+Intitulé **L’exercice des activités et ministères dans l’[[Eglise|Eglise]]** par [[Bible#^358f23|BDS]]
+
+1) [[Paul|J]]’en viens à la question des « manifestations de l’[[Saint-Esprit|Esprit]] » : [[Paul|j]]’aimerais, frères et sœurs, que vous soyez bien au clair là-dessus.
+2) Souvenez-vous comment, lorsque vous étiez encore païens, vous vous laissiez entraîner aveuglément vers des idoles muettes !
+3) C’est pourquoi [[Paul|je]] vous le déclare, si un homme dit : « Maudit soit [[Jésus|Jésus]] », ce n’est pas l’[[Saint-Esprit|Esprit de Dieu]] qui le pousse à parler ainsi. Mais personne ne peut affirmer : « [[Jésus|Jésus]] est [[Dieu|Seigneur]] », s’il n’y est pas conduit par l’[[Saint-Esprit|Esprit Saint]].
+4) Il y a toutes sortes de dons de la grâce, mais c’est le même [[Saint-Esprit|Esprit]].
+5) Il y a toutes sortes de services, mais c’est le même [[Jésus|Seigneur]].
+6) Il y a toutes sortes d’activités, mais c’est le même [[Dieu|Dieu]] ; et c’est [[Dieu|lui]] qui met tout cela en action chez tous.
+7) A chacun, l’[[Saint-Esprit|Esprit]] se manifeste d’une façon particulière, en vue du bien commun.
+8) L’[[Saint-Esprit|Esprit]] donne à l’un une [[Paroles de sagesse|parole de sagesse]] ; à un autre, le même [[Saint-Esprit|Esprit]] donne une [[Paroles de connaissance|parole de connaissance]].
+9) L’un reçoit par l’[[Saint-Esprit|Esprit]] la foi d’une manière particulière ; à un autre, par ce seul et même [[Saint-Esprit|Esprit]] des dons de la grâce sous forme de guérisons, 
+10) à un autre, des actes miraculeux ; à un autre, il est donné de [[Prophétie|prophétiser]] et à un autre, de [[Discernement des esprits|distinguer entre les esprits]]. A l’un est donné de s’exprimer dans des langues inconnues, à un autre d’[[Interprétation du parler en langue|interpréter ces langues]].
+11) Mais tout cela est l’œuvre d’un seul et même [[Saint-Esprit|Esprit]] qui distribue [[Saint-Esprit|son]] activité à chacun de manière particulière comme [[Saint-Esprit|il]] veut.
+12) Le corps humain forme un tout, et pourtant il a beaucoup d’organes. Et tous ces organes, dans leur multiplicité, ne constituent qu’un seul corps. Il en va de même pour ceux qui sont unis à [[Jésus|Christ]].
+13) En effet, nous avons tous été baptisés dans un seul et même [[Saint-Esprit|Esprit]] pour former un seul corps, que nous soyons [[Juif|Juifs]] ou non-[[Juif|Juifs]], esclaves ou hommes libres. C’est de ce seul et même [[Saint-Esprit|Esprit]] que nous avons tous reçu à boire.
+14) Un corps n’est pas composé d’un membre ou d’un organe unique, mais de plusieurs.
+15) Si le pied disait : « Puisque je ne suis pas une main, je ne fais pas partie du corps », n’en ferait-il pas partie pour autant ?
+16) Et si l’oreille se mettait à dire : « Puisque je ne suis pas un œil, je ne fais pas partie du corps », cesserait-elle d’en faire partie pour autant ?
+17) Si tout le corps était un œil, comment ce corps entendrait-il ? Et si tout le corps se réduisait à une oreille, où serait l’odorat ?
+18) [[Dieu|Dieu]] a disposé chaque organe dans le corps, chacun avec sa particularité, comme [[Dieu|il]] l’a trouvé bon.
+19) Car s’il n’y avait en tout et pour tout qu’un seul organe, serait-ce un corps ?
+20) En fait, les organes sont nombreux, mais ils forment ensemble un seul corps.
+21) C’est pourquoi l’œil ne saurait dire à la main : « Je n’ai pas besoin de toi », ni la tête aux pieds : « Je peux très bien me passer de vous. »
+22) Au contraire, les parties du corps qui nous paraissent insignifiantes sont particulièrement nécessaires.
+23) Celles que nous estimons le moins sont celles dont nous prenons le plus grand soin, et celles dont il n’est pas décent de parler, nous les traitons avec des égards particuliers
+24) dont les autres n’ont guère besoin. [[Dieu|Dieu]] a disposé les différentes parties de notre corps de manière à ce qu’on honore davantage celles qui manquent naturellement d’honneur.
+25) Il voulait par là éviter toute division dans le corps et faire que chacun des membres ait le même souci des autres.
+26) Un membre souffre-t-il ? Tous les autres souffrent avec lui. Un membre est-il à l’honneur ? Tous les autres partagent sa joie.
+27) Or vous, vous êtes le corps de [[Jésus|Christ]] et chacun de vous en particulier en est un membre.
+28) C’est ainsi que [[Dieu|Dieu]] a établi dans l’[[Eglise|Eglise]], premièrement des apôtres, deuxièmement des prophètes, troisièmement des enseignants ; puis viennent les miracles, les dons de la grâce sous la forme de guérisons, l’aide, la direction d’[[Eglise|Eglise]], les langues inconnues.
+29) Tous sont-ils apôtres ? Tous sont-ils prophètes ? Tous sont-ils enseignants ? Tous font-ils des miracles ?
+30) Tous ont-ils des dons de la grâce sous forme de guérisons ? Tous parlent-ils dans des langues inconnues ? Tous interprètent-ils ?
+31) Aspirez aux dons de la grâce les meilleurs. Pour cela, [[Paul|je]] vais vous indiquer l’approche par excellence
 # 2 Corinthiens
 ## Chapitre 5
 ### Versets 11 à 21
