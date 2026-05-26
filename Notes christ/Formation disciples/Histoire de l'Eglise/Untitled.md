@@ -101,7 +101,7 @@ Exemple concret : une percée notamment sur l'aspect politique à l'époque de l
 
 L'église est dirigée dans des dérives, mais [[Dieu]] dans sa grâce prend le temps à ce que l'[[Eglise]] revienne à l'essentiel au travers de réveils et du mouvement du [[Saint-Esprit]]
 ## 1- Def
-Réveil : période où un grand nombre de personnes expérimentent une conversion personnelle à [[Jésus]] (et une vie de discipline en conséquence), une intensification de la vie spirituelle, avec un zèle renouvelé pour la première, l'évangélisation, et la recherche de sanctification.
+==Réveil :== période où un grand nombre de personnes expérimentent une conversion personnelle à [[Jésus]] (et une vie de discipline en conséquence), une intensification de la vie spirituelle, avec un zèle renouvelé pour la prière, l'évangélisation, et la recherche de sanctification.
 
 De forts réveils ont pour conséquence de naturellement créer de nouveaux courants chrétiens, et des implémentation de nouvelles églises locales.
 ## 2 - Grand réveils historiques (XVIIIeme)

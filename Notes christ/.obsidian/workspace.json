@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Définitions/Religions/Judaïsme.md",
+                "file": "Formation disciples/Histoire de l'Eglise/Untitled.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Judaïsme"
+              "title": "Untitled"
             }
           }
         ]
@@ -53,7 +53,7 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "",
+                "query": "ministères",
                 "matchingCase": false,
                 "explainSearch": false,
                 "collapseAll": false,
@@ -74,7 +74,8 @@
               "title": "Bookmarks"
             }
           }
-        ]
+        ],
+        "currentTab": 1
       }
     ],
     "direction": "horizontal",
@@ -94,7 +95,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Définitions/Religions/Judaïsme.md",
+                "file": "Formation disciples/Histoire de l'Eglise/Untitled.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -104,7 +105,7 @@
                 "unlinkedCollapsed": true
               },
               "icon": "links-coming-in",
-              "title": "Rétrolien pour Judaïsme"
+              "title": "Rétrolien pour Untitled"
             }
           },
           {
@@ -179,8 +180,12 @@
       "bases:Créer une nouvelle base": false
     }
   },
-  "active": "412ad4b021e16018",
+  "active": "62f95b03a724d931",
   "lastOpenFiles": [
+    "Définitions/Ministères.md",
+    "Référence Biblique/Nouveau testament/3 - Lettres de Paul/7&8 - Corinthiens.md",
+    "Formation disciples/Histoire de l'Eglise/Untitled.md",
+    "Définitions/Religions/Judaïsme.md",
     "Définitions/Hébreu.md",
     "Référence Biblique/Nouveau testament/5 - La fin/Apocalypse.md",
     "Référence Biblique/Nouveau testament/2 - Actes des apôtres/Actes.md",
@@ -203,10 +208,6 @@
     "Référence Biblique/Nouveau testament/3 - Lettres de Paul/7&8 - Corinthiens.sync-conflict-20260509-090855-4D4KN2W.md",
     "Notes pas encore traitées/Jésus sur mon rivage.sync-conflict-20260509-090855-4D4KN2W.md",
     "Référence Biblique/Nouveau testament/1 -Evangiles/2nd Evangile - Marc.sync-conflict-20260509-090854-4D4KN2W.md",
-    "Référence Biblique/Ancien testament/5 - Livres poétiques/19 - Psaumes.sync-conflict-20260509-090855-4D4KN2W.md",
-    "Référence Biblique/Nouveau testament/2 - Actes des apôtres/Actes.sync-conflict-20260509-090855-4D4KN2W.md",
-    "Définitions/Parole de Dieu (Actes).sync-conflict-20260509-090854-4D4KN2W.md",
-    "Personnages bibliques/Nouveau testament/Marie de Magdala.sync-conflict-20260509-090855-4D4KN2W.md",
     "Référence Biblique/Nouveau testament/3 - Lettres de Paul/~syncthing~7&8 - Corinthiens.sync-conflict-20260509-090855-4D4KN2W.md.tmp",
     "Définitions/~syncthing~Sorcellerie.sync-conflict-20260509-090854-4D4KN2W.md.tmp",
     "Lieux historiques/Régions géographiques/~syncthing~Arabie.sync-conflict-20260509-090855-4D4KN2W.md.tmp",

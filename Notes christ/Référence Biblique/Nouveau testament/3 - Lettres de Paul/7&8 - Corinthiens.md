@@ -137,7 +137,7 @@ Intitulé **Faire tout pour la gloire de Dieu** par [[Bible#^358f23|BDS]]
 32) Mais que rien, dans votre comportement, ne soit une occasion de chute, ni pour les [[Israël|Juifs]], ni pour les païens, ni pour les membres de l’[[Eglise|Eglise]] de [[Dieu|Dieu]].
 33) Agissez comme [[Paul|moi]] qui [[Paul|m]]’efforce, en toutes choses, de [[Paul|m]]’adapter à tous. [[Paul|Je]] ne considère pas ce qui [[Paul|me]] serait avantageux, mais [[Paul|je]] recherche le bien du plus grand nombre pour leur salut.
 ## Chapitre 12
-Intitulé **L’exercice des activités et ministères dans l’[[Eglise|Eglise]]** par [[Bible#^358f23|BDS]]
+Intitulé **L’exercice des activités et [[Ministères|ministères]] dans l’[[Eglise|Eglise]]** par [[Bible#^358f23|BDS]]
 
 1) [[Paul|J]]’en viens à la question des « manifestations de l’[[Saint-Esprit|Esprit]] » : [[Paul|j]]’aimerais, frères et sœurs, que vous soyez bien au clair là-dessus.
 2) Souvenez-vous comment, lorsque vous étiez encore païens, vous vous laissiez entraîner aveuglément vers des idoles muettes !
